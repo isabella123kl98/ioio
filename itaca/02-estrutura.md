@@ -1,13 +1,22 @@
-# Estrutura (provisória, ~40 capítulos)
+# Estrutura (não linear, inspirada na forma do filme; cenas e personagens são nossos)
 
-## Parte I — O mar (1–10)
-Emily: Ogígia, Hermes, a jangada, a tempestade, Fórcis. Anne: os pretendentes, a mortalha, o mercador de Creta, o peso da lamparina, Timóteo e Antínoo.
+## Três narradores, primeira pessoa, presente
+- **Anne** — Ítaca, o presente: pretendentes, mortalha, lamparina, Timóteo.
+- **Emily** — dois tempos: o retorno (mendiga, Eumeu, o palácio) e os flashbacks (Troia, ciclope, Circe, Hades, sereias, Calipso, o casamento arranjado).
+- **Timóteo** — a busca pelo paradeiro da mãe (Pilos, Esparta), a viagem de um menino de 10 anos que quer provar que ela está viva.
 
-## Parte II — A casa (11–22)
-Emily mendiga no palácio. Argos. Euricleia e a cicatriz. Anne suspeita e se enfurece. Primeira briga sem que Anne saiba quem é. A cama de oliveira.
+## Regras
+- Abertura: fragmentos curtos (cavalo de Troia na praia; Emily com Calipso) antes de Ítaca.
+- Cada ilha dos flashbacks é um capítulo fechado, com regras e perigos próprios, e lança luz sobre o ressentimento do presente (ex.: Circe e o ciúme de Anne; Hades e a morte da mãe de Emily).
+- Os flashbacks revelam o que Emily **não conta** a Anne, e cada revelação alimenta uma briga no presente.
+- Ninguém se acerta logo: briga, ciúme e raiva atravessam o livro inteiro.
 
-## Parte III — A verdade (23–32)
-Anne descobre. A briga que racha o casamento. Calipso entra no salão, em memória e em fantasma. Ciúme, acusações, silêncio. Timóteo escolhe um lado.
+## Partes
+1. **Ítaca, primeiras noites** — Anne no presente; Emily em Ogígia como abertura; chegada.
+2. **A casa ocupada** — Emily disfarçada; Anne suspeita; flashbacks de Troia e dos ciclopes.
+3. **O que cada uma escondeu** — Timóteo volta; Anne descobre quem é a mendiga; a grande briga; flashbacks de Circe, Hades, Calipso.
+4. **O arco** — concurso, matança, ajuste de contas; a reconciliação é parcial e cara.
 
-## Parte IV — O arco (33–40)
-O concurso do arco, a matança, o acerto de contas entre as duas. A reconciliação é parcial, cara e honesta.
+## Capítulos já escritos
+1. Emily — Ogígia e a partida (passa a funcionar como flashback/abertura)
+2. Anne — Ítaca, o mercador, a lamparina
