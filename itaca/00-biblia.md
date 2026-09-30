@@ -29,7 +29,7 @@ Anel da coruja · lamparina na janela · a cama feita de oliveira viva · o forn
 - Casamento arranjado (Anne 16) → primeiros anos frios → paixão → Timóteo nasce → Emily parte para Troia (Anne 26, Timóteo bebê).
 - 10 anos depois: Emily chega a Ítaca (Anne 36, Timóteo 10). Sete desses anos em Ogígia.
 - Há 20 noites: um mercador de Creta contou no salão, diante de todos, que Emily estava viva na cama de uma ninfa.
-- Capítulo 3: jangada, 17 dias, tempestade, 2 dias nadando, baía de Fórcis, Atena, disfarce de mendiga, o morro, a janela acesa.
+- Plano para o capítulo 3: jangada, 17 dias de mar, tempestade de Poseidon, naufrágio, chegada a Ítaca, Atena, disfarce de mendiga, o morro, a janela acesa.
 
-## Continuidade (capítulos já escritos)
-- Cap. 3 (Emily): escrito pela autora, é a referência de voz. Emily parte de Ogígia; não diz adeus; Calipso lhe deu um pano dourado para a vela.
+## Amostra de estilo
+O texto que a autora colou na conversa (Emily no mar, tempestade, chegada a Ítaca) é **apenas referência de voz**, não faz parte do livro. Os capítulos são escritos do zero.
