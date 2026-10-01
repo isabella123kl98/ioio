@@ -66,3 +66,13 @@ Epílogo — A primeira carta
 - Cronologia pós-matança: dia 0 assembleia (prazo de Leócrito: lua nova, 5 dias, ao amanhecer). Noite 0 Anne parte. Dia 1 Emily febril; Anne chega à noite. Dia 2 manhã: decidem; partem; noite no vale do carvalho (mentira da cama). Dia 3 meio-dia: casa de Eupites; Emily conta tudo, inclusive Circe ("a outra"); Anne foge ao entardecer. Noite 3 Emily procura. Dia 4 Emily volta ao palácio. Dia 5 amanhecer: 42 navios.
 - A exigência de Anne (cap. 22): que ninguém ouça "a outra" (Circe) antes dela. Emily conta a Eupites.
 - Anne foge ao entardecer do dia 3, anda a noite e o dia 4 até a pedra chata do morro (A2, noite do dia 4). Emily procura com Timóteo e o cão na estrada (noite 4). Dia 5 amanhecer: navios de Leócrito; Nísia chega com 40 navios de Same; Atena impõe a paz. Ao pôr do sol do dia 5 a lamparina acende: Anne voltou.
+
+### Notas de continuidade (rev. 3, capítulos 24–30, A6–A9, B1, B3)
+- Lamparina: antes de Troia, Anne punha uma vela de sebo no peitoril quando Emily viajava (fingia que era para ler). A lamparina de bronze começou no 2º mês depois da partida; Emily nunca soube. Calipso inventou, sem saber, a mesma solução (lamparina de luas tortas, 42 gotas; a de Anne, estrela, 37 gotas).
+- Calipso chega a Same num barco de Esquéria que fazia água; Nísia a traz a Ítaca (cap. 28) e a leva de volta (cap. 29). As duas vivem juntas em Same depois.
+- Cap. 29: Anne sinaliza "eu aviso" com as duas lamparinas acesas de dia; Nísia aponta do navio. Emily diz agapi inteira. Anne quase diz ("Ag...") e engole.
+- Cap. 30: viagem de Emily a Corinto (12 dias, ferro/pregos), vela no peitoril; Anne diz agapi na briga do bolo (dia do nome do Timóteo, 11 anos). Laertes entrega o broche a Anne.
+- Peitoril: conta de âmbar, pano dourado, véu da mãe com a lasca de pinho, lamparina de Calipso.
+- Lísia (filha do Perimedes, curtidora) soca Emily (A6). Anne leva trigo a ela há 9 anos.
+- Encruzilhada (dia 16 da estrada): Anne passa na frente da espada e compra os animais do sacrifício de três pastores.
+- Epílogo: 10 invernos depois; Timóteo 21, regente, casado com Clio de Dulíquio; Emily conta a Anne a morte de Anticlo.
