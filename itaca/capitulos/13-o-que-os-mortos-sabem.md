@@ -411,3 +411,5 @@ Paro no meio do pátio, com o sol nascendo atrás do morro.
 E me dou conta de que, pela primeira vez desde a jangada, eu não estou com medo de morrer.
 
 Estou com medo de que ele não conte.
+
+Porque se ele não contar, eu vou ter que contar. Ao meio-dia. No pátio. Com um arco de teixo nas mãos, na frente de cento e sete homens e de uma mulher de vestido verde com uma sobrancelha levantada, a da cicatriz, esperando para ver se a rainha de Ítaca ainda sabe ir dormir no estábulo sozinha ou se, desta vez, vai ficar em pé e aguentar a bronca.
