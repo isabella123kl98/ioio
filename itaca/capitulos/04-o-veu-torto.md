@@ -16,7 +16,7 @@ Fica debaixo da cama, atrás das roupas de inverno, um baú de cedro que veio co
 
 Dentro, enrolado em linho, está o véu.
 
-É de seda tingida de açafrão, tecido por minha mãe com fios que ela mandou buscar de uma caravana do Oriente, o presente mais caro que ela já me deu e o único que ela me deu sem olhar nos meus olhos. Cheira a naftalina e a um perfume antigo, de lavanda e poeira. Desdobro-o devagar, e uma das pontas, a direita, está dobrada para dentro, com um vinco permanente, como se alguém a tivesse apertado com muita força na palma da mão.
+É de seda tingida de açafrão, tecido por minha mãe com fios que ela mandou buscar de uma caravana do Oriente, o presente mais caro que ela já me deu, entregue numa noite em que ela não soube dizer o que significava. Cheira a naftalina e a um perfume antigo, de lavanda e poeira. Desdobro-o devagar, e uma das pontas, a direita, está dobrada para dentro, com um vinco permanente, como se alguém a tivesse apertado com muita força na palma da mão.
 
 Fui eu. Foi no navio, na última noite de viagem, com o mar quebrando em volta e os marinheiros dormindo, e eu deitada no convés com o véu na mão, pensando que eu ia morrer antes de chegar.
 

@@ -76,9 +76,9 @@ Lembro de outro cabelo. Preto, liso, pesado, com cheiro de ervas queimando, espa
 
 Circe não era como Calipso.
 
-Calipso chegou depois, e me pegou fraca. Circe me pegou forte. Estava eu na plenitude, recém-saída da gruta do ciclope, com nove navios ainda e a cabeça cheia de astúcias, quando a ilha de Eéa apareceu no meio do mar como uma promessa de repouso. Desembarcamos. Mandei metade dos homens explorar, sob o comando de Euríloco. Ficaram vinte e dois dias sem voltar, e quando voltou um, correndo, sem fôlego, foi só para dizer que os outros tinham virado porcos.
+Calipso chegou depois, e me pegou fraca. Circe me pegou forte. Estava eu na plenitude, recém-saída da gruta do ciclope, com um único navio e doze homens, e a cabeça cheia de astúcias, quando a ilha de Eéa apareceu no meio do mar como uma promessa de repouso. Desembarcamos. Mandei seis homens explorar, sob o comando de Euríloco. Ficaram três dias sem voltar, e quando voltou um, correndo, sem fôlego, foi só para dizer que os outros tinham virado porcos.
 
-Porcos. Vinte e dois homens. Comendo lavagem no chiqueiro de uma casa de pedra no meio do bosque, guinchando, choramingando, os olhos ainda humanos dentro das caras de bicho.
+Porcos. Cinco homens. Comendo lavagem no chiqueiro de uma casa de pedra no meio do bosque, guinchando, choramingando, os olhos ainda humanos dentro das caras de bicho.
 
 Fui sozinha. Essa era a minha maneira, então: não esperar ajuda. Pelo caminho, um rapaz de chapéu de viajante e sandálias aladas me parou e me deu uma erva de raiz preta e flor branca, que ele chamou de *moly*, e me instruiu, sorrindo, sobre o que fazer quando a feiticeira me oferecesse a taça. Eu agradeci. Desconfiei. Usei.
 
@@ -240,7 +240,7 @@ Não disse nada. Senti as lágrimas chegando.
 
 Beijou-me uma última vez. Um beijo longo, lento, sem urgência, com gosto de sal.
 
-Parti de manhã, ao amanhecer, com os nove navios carregados de comida e vinho. Ela ficou na praia, de vestido vinho, com o cabelo solto ao vento, olhando o mar. Não acenou. Não me chamou. Eu, no convés, olhei para trás até a ilha sumir.
+Parti de manhã, ao amanhecer, com o navio carregado de comida e vinho. Ela ficou na praia, de vestido vinho, com o cabelo solto ao vento, olhando o mar. Não acenou. Não me chamou. Eu, no convés, olhei para trás até a ilha sumir.
 
 Passei três dias sem falar com ninguém. Depois, na noite do quarto dia, fui ao meu camarote e escrevi uma carta para a Anne. Escrevi quatro linhas. Depois rasguei. Escrevi mais duas. Depois queimei. No fim, não mandei nada.
 
