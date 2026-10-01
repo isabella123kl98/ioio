@@ -233,7 +233,7 @@ Leio todas. Na ordem. Uma por uma. E copio aqui do jeito que escrevi, sem mudar 
 
 *Você pensou nele. Até o fim. Até a última linha antes de embarcar. E eu, que passei nove anos te odiando por ter esquecido da gente, descobri que você lembrou de uma coisa que eu nunca soube. A idade em que um menino precisa de um arco.*
 
-*Eu dei o arco. Hoje. Era grande demais para ele. Ele não conseguiu puxar. Chorou de raiva. Eu fiquei com ele no pátio até escurecer, segurando a corda junto, até ele conseguir puxar meio palmo. Ele atira torto. Para a esquerda. Eu não sei consertar.*
+*O Eumeu deu o arco a ele hoje, como você mandou, e eu fingi que não sabia de nada. Era grande demais para ele. Ele não conseguiu puxar. Chorou de raiva. Eu fiquei com ele no pátio até escurecer, segurando a corda junto, até ele conseguir puxar meio palmo. Ele atira torto. Para a esquerda. Eu não sei consertar.*
 
 *O Antínoo quer casar comigo. Disse no salão, na frente de todos, que a minha paciência tem limite. Que uma mulher não pode esperar para sempre. Tem razão. Eu sei que tem.*
 
