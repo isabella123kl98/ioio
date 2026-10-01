@@ -469,3 +469,11 @@ Saio. Fecho a porta. Desço a escada degrau por degrau, contando, sem ver nada, 
 E uma palavra só batendo no ouvido, como um remo batendo na água.
 
 *Sabe. Sabe. Sabe.*
+
+No pé da escada, a Euricleia está me esperando, encostada na parede, com uma bacia de bronze vazia nas mãos e um pano dobrado no braço. Me olha de cima a baixo. Olha a minha cara. Olha a mão do trapo, que eu aperto contra o peito.
+
+— Ao entardecer — diz ela. Não pergunta. — Na sala pequena.
+
+— Você vai ver a cicatriz.
+
+— Eu vi a cicatriz ontem, menina, na bacia. — Ela vira de costas e vai para a cozinha, arrastando os pés. — Hoje quem vai ver é ela.
