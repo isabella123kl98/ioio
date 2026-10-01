@@ -358,6 +358,14 @@ Olho para ele. Para o salão. Para a cabeça branca, abaixada, da velha no chão
 
 A tigela, nas mãos da velha, para de tremer.
 
+E ela levanta a cabeça. Por cima de cento e sete homens, por cima da mesa, das tochas, do Antínoo de pé com a taça, ela me olha. Direto. Sem baixar os olhos como velha. Com a boca que eu quase beijei há duas horas ainda entreaberta, e uma pergunta dentro dos olhos turvos que só eu leio, porque é a pergunta que ela fazia do outro lado da nossa cama quando eu demorava a apagar a vela.
+
+*Você vai mesmo?*
+
+Eu seguro o olhar dela. Três batidas de coração. Quatro.
+
+E levanto a taça, devagar, só um dedo, na direção dela. Ninguém mais vê. O Antínoo acha que é para ele e levanta a dele de volta, rindo.
+
 ---
 
 O Timóteo me pega na curva da escada, depois do jantar.
