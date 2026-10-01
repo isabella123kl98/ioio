@@ -4,13 +4,13 @@
 
 Há uma coisa nos olhos da mendiga que eu não consigo nomear, e isso me tira o sossego mais do que qualquer ameaça do Antínoo.
 
-Penso nisso o resto do dia. Enquanto confiro as contas com o escriba. Enquanto distribuo as tarefas das criadas. Enquanto escuto Euricleia reclamar da umidade da ala sul e recuso, pela quinta vez, o convite de um pretendente de Dulíquio para um passeio ao entardecer. A mão que faz tudo isso é minha. A cabeça, não.
+Penso nisso o resto do dia. Enquanto confiro as contas com o escriba. Enquanto distribuo as tarefas das criadas. Enquanto escuto Euricleia reclamar da umidade da ala sul e recuso, pela quinta vez, o convite de um pretendente de Dulíquio para um passeio ao entardecer. A mão que faz essas coisas é minha. A cabeça, não.
 
 A cabeça ficou no salão. No instante em que passei a dois palmos dela.
 
 Cheiro de fumaça, de sal, de velhice. E um arrepio que me subiu pela nuca sem pedir licença, como quando a gente entra num quarto escuro e sabe, sem ver, que tem alguém lá dentro.
 
-Uma mulher velha, de trapos, com o dedo amarrado num pano. Uma entre mil. Todo mês aparece uma. Uma viúva de Dulíquio, uma peregrina de Same, uma curandeira de Zacinto, pedindo pão, cama e favor. Ítaca sempre foi terra de hospitalidade. Eu mesma mandei pintar na parede do pórtico a frase que o pai dela gravou na pedra: *ao estranho que bate, abra-se a porta.* Sei receber gente. Sei fazer isso sem olhar, sem perguntar, sem sentir nada.
+Uma mulher velha, de trapos, com o dedo amarrado num pano. Uma entre mil. Todo mês aparece uma. Uma viúva de Dulíquio, uma peregrina de Same, uma curandeira de Zacinto, pedindo pão, cama e favor. Ítaca se gaba de ser terra de hospitalidade desde antes do avô dela. Eu mesma mandei pintar na parede do pórtico a frase que o pai dela gravou na pedra: *ao estranho que bate, abra-se a porta.* Receber gente eu faço de olhos fechados, com a boca dizendo bem-vinda e a cabeça contando quanto pão vai custar.
 
 Mas aquela mulher me olhou.
 
@@ -28,11 +28,9 @@ O Timóteo chega ao jantar atrasado e sem fôlego, com o arco no ombro e a túni
 
 Vem correndo pelo salão, desviando dos pretendentes como desvia das cabras no pasto, e se joga no banco baixo ao meu lado com uma energia que eu não via nele havia meses. Desde o poço. Desde antes do poço.
 
-— Mãe.
+— Mãe, a senhora não vai acreditar, e a senhora vai dizer que eu estou inventando para não levar bronca pelo atraso, mas eu juro pelo Argos...
 
-— Você está atrasado.
-
-— Mãe, escuta.
+— Você jura pelo cachorro quando mente e pelo seu avô quando fala sério. Escolha um avô e fale baixo, pardal, que tem cento e sete ouvidos nesta sala.
 
 Os olhos dele brilham. O lábio cortado está quase fechado, e ele sorri tanto que a ferida estica e fica branca.
 
@@ -40,21 +38,19 @@ Os olhos dele brilham. O lábio cortado está quase fechado, e ele sorri tanto q
 
 Sinto alguma coisa se soltar no meu peito. Uma coisa que estava apertada desde a manhã do sangue.
 
-— Doze — repito. — Você treinou muito.
+— Ontem você acertou o celeiro duas vezes e uma galinha — digo, e a boca quer sorrir e eu não deixo. — Hoje acerta o centro doze. O Eumeu te deu vinho de manhã?
 
-— Não foi treino. — Ele se inclina para mais perto, com a boca quase na minha orelha. — Foi uma velha. A velha nova, a do porqueiro. Ela estava no pátio, e eu estava errando, e ela chegou e disse: mira um palmo à direita.
+— Não foi o Eumeu. — Ele se inclina para mais perto, com a boca quase na minha orelha. — Foi uma velha. A velha nova, a do porqueiro. Ela estava no pátio, e eu estava errando, e ela chegou e disse: mira um palmo à direita.
 
 O pão para no meio do caminho entre a mesa e a minha boca.
 
-— O quê?
-
-— Mira um palmo à direita. — Ele ri. — Eu disse que era trapaça. Ela disse que era guerra. E eu mirei, e acertou. E acertou de novo. Mãe, eu atiro torto sempre do mesmo jeito, ela disse que isso é atirar bem. Que eu só tinha que mentir para a flecha.
+— Um palmo à direita — repete ele, encantado com a minha cara, sem entender por que ela está assim. — Eu disse que era roubar. Ela disse que na guerra quem acerta não pede desculpa ao alvo. E eu mirei, e acertou. E acertou de novo. Ela disse que eu erro do mesmo jeito toda vez e que isso é ser bom, que o braço sabe, só não sabe onde está o alvo. Que eu só tinha que mentir para a flecha.
 
 O salão continua fazendo barulho em volta de mim. As taças, as vozes, a lira desafinada. E eu não ouço nada.
 
 *Eu minto para a flecha.*
 
-Ela dizia isso. No primeiro verão, no campo atrás do estábulo, quando me ensinou a atirar e eu errei tudo, e me irritei, e joguei o arco no chão. Ela pegou o arco de volta, rindo, e me mostrou: cotovelo alto, olho errado, a flecha um palmo à esquerda. *Eu nunca aprendi direito*, disse. *Então eu minto para a flecha. Ela acha que está indo para a esquerda, e eu sei que não.*
+Ela dizia isso. No primeiro verão, no campo atrás do estábulo, quando me ensinou a atirar e eu errei as dez primeiras, e me irritei, e joguei o arco no chão. Ela pegou o arco de volta, rindo, e me mostrou: cotovelo alto, olho errado, a flecha um palmo à esquerda. *Eu nunca aprendi direito*, disse. *Então eu minto para a flecha. Ela acha que está indo para a esquerda, e eu mando ela para outro lugar.*
 
 Ninguém mais sabia disso. Ninguém.
 
@@ -64,15 +60,13 @@ O Eumeu sabia.
 
 Solto o ar devagar.
 
-O Eumeu sabia. A velha é parenta do Eumeu. O Eumeu conta tudo para quem dorme na cabana dele, todo mundo sabe que ele fala demais quando tem leite quente e companhia. É só isso. Uma velha que ouviu uma história e repetiu para um menino. É só isso.
+O Eumeu sabia. A velha é parenta do Eumeu. O Eumeu fala pelos cotovelos com quem dorme na cabana dele, ainda mais com leite quente e companhia. É só isso. Uma velha que ouviu uma história e repetiu para um menino. É só isso.
 
-— Mãe? — O Timóteo me olha. — Você ficou branca.
+— Mãe? — O Timóteo me olha. — A senhora ficou da cor do queijo da Euricleia.
 
-— Foi o vinho.
+— Foi o vinho — digo, e ele olha para a minha taça, cheia até a borda, intocada desde o começo do jantar, e me olha de volta com a sobrancelha levantada de um jeito que não aprendeu comigo.
 
-— Você não bebeu vinho.
-
-— Então foi a falta dele. — Ponho a mão no cabelo dele, mal cortado, áspero de palha. — Estou orgulhosa de você, pardal.
+— Então foi a falta dele — corrijo. Ponho a mão no cabelo dele, mal cortado, áspero de palha. — Estou orgulhosa de você, pardal.
 
 Ele sorri de novo. E olha, por cima do salão, para a porta da cozinha.
 
@@ -90,11 +84,33 @@ Mando chamar a mendiga depois do jantar. Não ao salão. À sala pequena do lado
 
 O Antínoo protesta da mesa dele, alto, que a velha ia contar uma história a todos.
 
-— Ia — digo. — Agora vai contar a mim.
+— Ia contar a quem paga a comida dela — digo. — Pelas minhas contas, não foi você.
 
-Ninguém insiste. O Antínoo levanta a taça, sorrindo, e me deixa ir, e eu sei que o sorriso dele vai me cobrar isso depois.
+Ninguém insiste. O Antínoo levanta a taça, sorrindo, e me deixa ir, e o sorriso dele fica pendurado na minha nuca como uma conta a pagar.
 
-Acendo o fogo com as minhas próprias mãos. Mando sair todas as criadas, menos Euricleia, que fica no canto, junto à porta, numa banqueta, com o fuso nas mãos e os olhos fechados de quem finge dormir. Sei que não dorme. Nunca dorme quando eu estou acordada.
+Antes de descer à sala pequena, subo ao quarto e troco de vestido.
+
+Percebo o que estou fazendo só quando já estou com o verde-escuro no chão e o azul-acinzentado na mão, o de lã fina, o que eu não uso desde a primavera. Paro. Fico de camisola no meio do quarto, segurando um vestido na frente do corpo, como uma menina de quinze anos antes de uma festa em Esparta, e sinto o rosto esquentar de raiva de mim mesma.
+
+Para uma mendiga. Estou escolhendo vestido para interrogar uma mendiga de Creta que cheira a porco.
+
+Jogo o azul na cama. Pego o verde de volta. Visto. Prendo o cabelo no alto com quatro grampos, puxado, apertado, do jeito que dá dor de cabeça no fim do dia e que a Euricleia diz que me deixa com cara de juiz.
+
+No caminho até a porta, paro diante do espelho de bronze na mesa de cabeceira.
+
+Tiro um grampo.
+
+Uma mecha cai do lado esquerdo, por cima da orelha, até o ombro. A que ficava solta quando eu acordava. A que ela enrolava no dedo enquanto eu contava as vigas.
+
+Olho a mecha no bronze. Penso em prender de novo. Não prendo.
+
+Se for ela, ela vai ver.
+
+Se não for, ninguém vai notar uma mecha fora do lugar na cabeça de uma rainha cansada no fim de um dia ruim.
+
+Desço a escada com o coração fazendo um barulho que eu tenho certeza de que o Antínoo escuta lá do salão.
+
+Acendo o fogo com as minhas próprias mãos. Mando sair todas as criadas, menos Euricleia, que fica no canto, junto à porta, numa banqueta, com o fuso nas mãos e os olhos fechados de quem finge dormir. Ela não dorme quando eu estou acordada; nunca dormiu, em vinte anos.
 
 Deixo a lamparina do quarto sem trocar o azeite.
 
@@ -120,15 +136,15 @@ Há uma pausa. Curta. Em outra pessoa eu não notaria.
 
 — Éton, senhora.
 
-— É nome de homem.
+— Éton é nome de soldado de Creta, e você não tem barba.
 
-— O meu pai queria um filho. — Ela dá de ombros, um movimento pequeno, ossudo. — Quando eu nasci, não deu tempo de trocar.
+— O meu pai queria um filho e não teve paciência de esperar o segundo. — Ela dá de ombros, um movimento pequeno, ossudo. — Quando viu que era eu, já tinha mandado gravar o nome no berço. Madeira cara. Ele não ia jogar fora por minha causa.
 
 Não sorrio. Mas alguma coisa na resposta me agrada. O tom seco. A falta de súplica. Uma mulher que sabe mentir com economia.
 
-— De onde?
+— E de onde vem essa filha econômica?
 
-— De Creta. Faz muitos anos. O mar me trouxe para cá. Eu só fui atrás.
+— De Creta, faz muitos anos. Depois de muitos lugares. O mar me trouxe para cá, eu só fui atrás reclamando.
 
 Fala com um sotaque que não é de Creta. Nem de nenhum lugar que eu conheça. Curto, cortante, de quem aprendeu a falar no meio de soldados.
 
@@ -136,27 +152,19 @@ Fala com um sotaque que não é de Creta. Nem de nenhum lugar que eu conheça. C
 
 Ela não se mexe. Mas o fogo estala, e eu vejo, na luz, os dedos dela se fecharem em volta do cajado.
 
-— Ele já sabia atirar, senhora. Só estava mirando no lugar errado.
+— Ele já sabia atirar, senhora. Só estava mirando no lugar errado. Isso acontece com muita gente da família, imagino.
 
-— Quem te contou aquilo? O palmo à direita.
-
-— Ninguém me contou.
-
-— Alguém contou. — Dou um passo para perto. — O Eumeu?
+— Não fale da família dele. — Dou um passo para perto. — Quem te contou do palmo à direita? Foi o Eumeu, com leite quente, ou foi algum soldado bêbado no porto de Creta que viu a rainha de Ítaca atirar e achou graça?
 
 Ela levanta os olhos. Pela primeira vez. Cinza, turvos, com uma névoa leitosa nas bordas. E por um instante, só um, alguma coisa nesses olhos me olha de volta de um lugar muito mais fundo do que um rosto de velha devia ter.
 
-— Eu tive um filho, senhora — diz, devagar. — Há muito tempo. Atirava torto. Igual.
+— Eu tive um filho, senhora — diz, devagar. — Há muito tempo. Atirava torto, igual. Eu não estava lá quando ele aprendeu, e alguém teve de ensinar a ele um truque que devia ter vindo de mim.
 
-— E onde ele está?
+— Teve? Morreu?
 
-— Longe.
+Ela demora tanto que eu escuto o fuso da Euricleia parar.
 
-— Morto?
-
-Ela demora.
-
-— Vivo. Mas longe de mim.
+— Está vivo. A uns passos de mim, às vezes. E mais longe do que o mar.
 
 O fogo estala de novo. No canto, Euricleia parou de girar o fuso.
 
@@ -178,9 +186,9 @@ Isso não é segredo. Metade dos pescadores da ilha viu o broche quando ela emba
 
 Mas o meu corpo não acredita.
 
-— Você vê as coisas com muita clareza — digo — para quem só ouviu falar.
+— Você descreve um broche de ouro com muita precisão — digo — para quem só ouviu falar dele numa taverna de Creta.
 
-— Eu tenho boa memória.
+— Eu ouço bem, senhora. É a única parte de mim que não envelheceu.
 
 Ela olha o fogo. Quando volta a falar, a voz está mais baixa. Quase sem entonação nenhuma.
 
@@ -190,11 +198,11 @@ O fogo estala.
 
 Sinto uma onda de calor subir pelo meu rosto. E depois uma de frio.
 
-— Isso qualquer pessoa desta ilha sabe — digo. — Metade de Ítaca viu esse anel. Você não está me dizendo nada que eu não saiba.
+— Metade de Ítaca viu esse anel — digo. — O ourives do porto conta essa história até hoje para vender coruja de bronze às noivas. Você está me vendendo coisa velha, mulher.
 
 Ela me olha com uma tranquilidade que me dá vontade de esbofeteá-la.
 
-— Só o que me contaram, senhora.
+— Então a senhora deve ter muitas corujas de bronze. Vendem bem.
 
 E é aí que alguma coisa em mim cede.
 
@@ -206,25 +214,17 @@ Desabo na cadeira em frente, sem pedir licença. As mãos, que passei o dia inte
 
 Ela demora muito a responder. Quando responde, a voz é tão baixa que eu tenho que me inclinar.
 
-— Eu não sei se a parte da cama é verdade, senhora. — Engole. — Mas sei de outra coisa. Ninguém volta do mar do jeito que entrou.
+— A parte da cama eu não posso jurar, senhora. — Engole. — Mas do mar eu posso. Ninguém volta dele do jeito que entrou. A água tira um pedaço da gente e devolve outro no lugar, e a gente passa o resto da vida sem saber qual é qual.
 
-— Você acha que ela pode ter ficado por vontade?
+— Isso é resposta de bardo. Eu perguntei se ela ficou porque quis.
 
-— Acho que pode ter ficado por medo.
-
-— Medo de quê?
-
-— De voltar.
-
-— De mim?
-
-— De si mesma. — Ela fecha os olhos. — De não ser mais a pessoa que deixou.
+— Eu acho que ela ficou com medo. — A voz dela racha. — Não da senhora. Ou da senhora também, um pouco, que a senhora assusta até velha de Creta. Mas mais de si mesma. De voltar e descobrir que não cabia mais na própria casa.
 
 Levanto de repente.
 
 Dou dois passos até a janela, onde o vento faz a vela tremer, e fico de costas para ela, olhando a noite preta, escondendo as mãos trêmulas nos braços cruzados.
 
-Sinto uma raiva tão grande e tão inesperada que tenho medo de vomitar na frente dessa estranha. Não é a raiva de sempre, calculada, arrumada, guardada em cofre. É outra. Crua. Animal. Que sobe do estômago e queima tudo no caminho.
+Sinto uma raiva tão grande e tão inesperada que tenho medo de vomitar na frente dessa estranha. Não é a raiva calculada, arrumada, guardada em cofre, que eu uso no conselho. É outra. Crua. Animal. Que sobe do estômago e queima o que encontra no caminho.
 
 ---
 
@@ -236,7 +236,7 @@ A voz não é a da rainha. Não sei de quem é.
 
 O vento bate na janela.
 
-— E durante esse tempo inteiro, enquanto eu me recusava a olhar para qualquer outro rosto, enquanto eu rezava para uma deusa que nunca respondeu, ela estava *feliz.* Você entende? Não sofrendo. Não lutando. Não morrendo aos poucos como eu. Deitada numa cama de lã. Sendo servida. Sendo amada. Sem nem lembrar o meu nome.
+— E durante esse tempo inteiro, enquanto eu me recusava a olhar para qualquer outro rosto, enquanto eu rezava para uma deusa que nunca respondeu, ela estava *feliz.* Você entende? Enquanto eu morria aos poucos aqui, ela estava deitada numa cama de lã. Sendo servida. Sendo amada. Sem nem lembrar o meu nome.
 
 Minha voz quebra. Eu deixo quebrar.
 
@@ -244,7 +244,7 @@ Minha voz quebra. Eu deixo quebrar.
 
 Paro. Respiro.
 
-— E depois, e eu sei que não faz sentido, depois eu quero que ela me abrace. Quero bater nela e quero que ela me abrace. As duas coisas ao mesmo tempo. E não sei qual vai ganhar.
+— E depois, e isso não faz sentido nenhum, depois eu quero que ela me abrace. Quero bater nela e quero que ela me abrace. As duas coisas ao mesmo tempo. E não sei qual vai ganhar.
 
 ---
 
@@ -254,13 +254,13 @@ A mendiga está sentada na cadeira, imóvel, com as mãos cruzadas no colo, e o 
 
 Não soluça. As lágrimas só descem. Uma atrás da outra, pelas rugas, pelas bochechas, pelo queixo, sem esforço, como chuva escorrendo num vidro.
 
-— Eu sinto muito — diz, numa voz que eu nunca ouvi sair de um rosto tão velho. — Por tudo.
+— Eu sinto muito — diz, numa voz que eu nunca ouvi sair de um rosto tão velho. — Pela casa. Pelo lado vazio da cama. Pelos porcos.
 
-— Por que você chora?
+— Ninguém chora por porco alheio. Você está chorando por quê, Éton?
 
 Ela passa a manga no rosto. Um gesto brusco, quase furioso.
 
-— Porque a senhora fala da sua dor como ninguém que eu conheci. — Uma pausa. — E porque eu também já esperei alguém que não voltou.
+— Porque a senhora fala da sua raiva como quem descreve uma casa onde morou a vida inteira. — Uma pausa. — E porque eu também fiz alguém esperar, e nunca ouvi de perto como era.
 
 É mentira. Tem o peso de uma mentira. Mas tem também a forma de uma verdade, e essa mistura me perturba mais do que qualquer mentira pura.
 
@@ -272,9 +272,7 @@ Ela não resiste. Deixa.
 
 Olho. Olho bem. Os olhos cinzentos, turvos, cobertos de névoa, mas fundos. As rugas desordenadas. A pele queimada e rachada. A boca fina, tremendo.
 
-Nada que eu conheça.
-
-Nada que me diga o que o corpo grita.
+Nada que eu conheça. Nada que confirme o que o corpo grita.
 
 Estou perto. Perto demais. Sinto o hálito dela, quente, com cheiro de leite e de mar. Sinto a pele do queixo dela debaixo dos meus dedos, fina como papiro, e por baixo dela uma coisa que não combina: uma firmeza, um osso, uma linha de maxilar que não é de velha nenhuma.
 
@@ -304,9 +302,9 @@ A velha levanta os olhos do canto. E eu vejo passar pelo rosto enrugado dela uma
 
 — Leve esta mulher ao quarto de hóspedes do fundo do corredor sul — digo. — Dê comida. Banho. Roupa limpa. E que ninguém saiba.
 
-— Senhora, essa é...
+— Senhora, essa mulher é...
 
-— Eu sei o que ela é. — Não sei. Não sei nada. — Faça o que eu mandei.
+— Uma hóspede com fome e com os pés sujos — corto, e a minha voz sai mais alta do que eu queria, e eu não tenho a menor ideia do que ela é. — Faça o que eu mandei.
 
 Euricleia se levanta com esforço, os joelhos estalando como galho seco. Vai até a mendiga e toca o ombro dela. A mendiga ficou imóvel, de olhos baixos, com as mãos agarradas nos braços da cadeira, e eu vejo de longe um tremor atravessar o corpo inteiro dela.
 
@@ -322,13 +320,71 @@ Há mil explicações. Uma curandeira que já foi soldado. Uma mulher que trabal
 
 Uma velha que sabe do palmo à direita.
 
-Uma velha que sabe do broche. Do anel. Da coruja.
+Uma velha que sabe do broche e da coruja.
 
 Uma velha cujo queixo tem osso de quarenta anos.
 
 Mas o meu corpo, a parte de mim que nunca aprendeu a mentir, continua sentado na frente da lareira, com as mãos tremendo e o coração batendo no pescoço, e com uma palavra só na boca. Uma palavra que eu recuso. Que eu engulo. Que eu mastigo até o osso sem deixar sair.
 
 *Emily.*
+
+---
+
+Não vou ao quarto. Vou ao corredor sul.
+
+Digo a mim mesma que é para conferir se a Euricleia fez o que mandei. Que uma rainha confere. Atravesso a galeria escura de camisola e manto, sem vela, com a mão na parede para não tropeçar no degrau quebrado do meio, e paro a três passos da última porta.
+
+Tem luz por baixo dela. Uma fresta amarela no chão de pedra. E vapor saindo pela fresta, fino, com cheiro de sabão de cinza e de folha de louro, que a Euricleia joga na água quente desde que eu cheguei a esta casa e que ela jogava antes de mim, na água de outra pessoa.
+
+E vozes.
+
+A da Euricleia, baixa, resmungando como resmunga com as panelas. E outra. Rachada. De velha.
+
+Eu chego mais perto. Encosto a palma na madeira. Não empurro.
+
+— Está quente demais — diz a voz rachada, e tem um riso dentro dela, um riso pequeno, que não combina com a voz. — A senhora quer me cozinhar como lentilha?
+
+— Quente cura — diz a Euricleia. — Quem é velha aguenta.
+
+— Quem é velha tem a pele fina, Euricleia. A senhora sabe disso melhor do que ninguém.
+
+Silêncio. A água mexe. Eu ouço a concha de bronze entrar na bacia e sair, e a água cair num corpo, e um suspiro.
+
+Um suspiro comprido, de quem afunda até o pescoço depois de muito tempo. Um suspiro que eu conheço.
+
+Eu tiro a mão da porta como se ela tivesse esquentado.
+
+Conheço esse suspiro. Ouvi esse suspiro mil vezes, de dentro da nossa banheira de pedra no primeiro andar, nas noites em que ela voltava do porto com o corpo duro de frio, e eu ficava sentada na beira lendo as contas em voz alta só para ela reclamar que eu não deixava ninguém descansar em paz. Ela entrava na água e afundava e soltava esse suspiro, e depois dizia, de olhos fechados, toda santa vez: *Coruja, se você me ama, cala a boca por uma hora.*
+
+Qualquer pessoa cansada suspira, digo a mim mesma. Qualquer velha numa bacia de água quente.
+
+Encosto a testa na porta. A madeira está morna do vapor.
+
+A água para de mexer. Ninguém fala. Eu escuto a respiração das duas através da madeira, e escuto a minha, e as três estão erradas, compridas demais, presas demais.
+
+Depois a Euricleia começa a cantarolar.
+
+Baixinho. Sem letra. Uma cantiga de ninar de Ítaca, de três notas que sobem e uma que desce, que ela cantava ao Timóteo quando ele tinha cólica e que, ela me contou um dia, já tinha cantado para outra criança, muito antes, uma menina que não dormia nunca e mordia quem chegasse perto do berço.
+
+Ela não canta para hóspede. Em vinte anos eu nunca ouvi a Euricleia cantar para ninguém que não fosse desta casa.
+
+Minha mão desce até o trinco. Os dedos fecham nele. O ferro está frio. É só levantar. Um dedo. Um movimento que eu fiz mil vezes em todas as portas desta casa, e que separa esta noite de todas as outras.
+
+A cantiga para no meio, na nota que desce.
+
+— Vira, filha — diz a Euricleia, com uma voz que eu não conheço nela, molhada. — Deixa eu lavar as costas.
+
+E a água volta a mexer.
+
+Eu tiro a mão do trinco.
+
+Não sei por quê. Medo de estar certa. Medo de estar errada. Medo de abrir a porta e ver uma velha de Creta pelada numa bacia, e ter que explicar à Euricleia o que a rainha de Ítaca estava fazendo encostada na porta dos hóspedes de madrugada como uma criada curiosa. Medo de abrir a porta e não ver uma velha.
+
+Volto pelo corredor escuro. No degrau quebrado do meio, tropeço, e me seguro na parede, e fico ali um tempo, de mão espalmada na pedra fria, rindo baixinho de mim mesma, um riso horrível, que não é riso.
+
+Uma cantiga de três notas.
+
+E um suspiro numa bacia, que qualquer velha cansada pode soltar, e que eu passei vinte anos ouvindo do outro lado de uma porta, sentada na beira da banheira de pedra, fingindo que lia contas.
 
 ---
 
@@ -340,7 +396,7 @@ Um sinal. Uma coincidência. Uma falta de azeite.
 
 Encho de novo com mãos que não obedecem direito. Derramo. Limpo com a barra do vestido. Acendo. Penduro.
 
-Fico na janela olhando o morro escuro, e pela primeira vez em vinte noites procuro de propósito a pedra chata lá no alto. Uma silhueta. Uma sombra. Qualquer coisa.
+Fico na janela olhando o morro escuro, e pela primeira vez em vinte noites procuro a pedra chata lá no alto. Uma silhueta. Uma sombra. Qualquer coisa.
 
 Nada. Só o escuro.
 
@@ -356,6 +412,6 @@ Não sei o que eu faria.
 
 Fico ali, de braços cruzados, com a testa encostada no batente gelado, até o frio subir pelos ossos e o dia clarear. Pensando na mulher que dorme, ou não dorme, do outro lado do palácio, numa cama de hóspede, com o rosto de outra pessoa e o calo da minha no indicador.
 
-E pensando, pior do que tudo, no meu filho sorrindo. No meu filho rindo no pátio, alto, como eu não ouvia desde que ele tinha cinco anos.
+E pensando, pior ainda, no meu filho sorrindo. No meu filho rindo no pátio, alto, como eu não ouvia desde que ele tinha cinco anos.
 
 Por causa dela.
