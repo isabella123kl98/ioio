@@ -300,9 +300,9 @@ Ela não se ofendeu. Recostou na cadeira. Fechou o pote de unguento. E sorriu, c
 
 — Na próxima lua eu trago outro pote — disse. — Esse vai acabar. As tuas mãos não vão parar de sangrar enquanto você desmanchar esse pano toda noite.
 
-Ela sabia do pano. Ninguém sabia do pano.
+Ela sabia do pano. Ninguém fora do meu quarto sabia do pano, nem a Melanto ainda, e uma comerciante de Same tinha adivinhado olhando as minhas mãos.
 
-Ela pegou a capa e foi embora, e eu fiquei com as mãos no colo, cheirando a calêndula, com o pulso direito latejando no lugar exato onde o polegar dela tinha parado.
+Ela pegou a capa, ajeitou a trança no ombro com aquele gesto lento de quem tem a vida inteira, e foi embora, e eu fiquei com as mãos no colo, cheirando a calêndula, com o pulso direito latejando no lugar exato onde o polegar dela tinha parado.
 
 ---
 
