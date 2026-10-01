@@ -508,15 +508,15 @@ O pomar está preto e cheira a pera caída. Conto as fileiras no escuro, com a m
 
 Ponho a palma na casca.
 
-Ali, na altura do meu ombro, um pouco mais baixo, a casca está lisa. Gasta. Polida como o corrimão de uma escada que muita gente sobe. Eu passo os dedos e sinto o formato: uma curva rasa, do tamanho de um ombro de mulher, onde uma mulher se encostou de lado, todo mês, dez anos, para chorar sem ninguém ver.
+Ali, um palmo acima do meu ombro, a casca está lisa. Gasta. Polida como o corrimão de uma escada que muita gente sobe. Eu passo os dedos e sinto o formato: uma curva rasa, do tamanho de um ombro de mulher, onde uma mulher se encostou de lado, todo mês, dez anos, para chorar sem ninguém ver.
 
 Encosto o meu ombro no mesmo lugar.
 
-Não cabe igual. Ela é mais baixa, e mais estreita, e eu fico torta para caber. Fico torta. Encosto a testa na casca, onde a testa dela devia ficar, e respiro. A pereira não cheira a ela. Cheira a pereira. Mas eu fecho os olhos e ponho o cheiro, o mel de tomilho, a lã, o suor de raiva, e de repente ela está ali, de costas para mim, encostada no tronco, chorando baixinho, e eu chego por trás.
+Não cabe igual. Ela é mais alta, como ela me disse no molhe com aquele queixo, e o meu ombro fica um palmo abaixo do lugar gasto. Encosto a testa na casca lisa, onde o ombro dela ficava, e respiro. A pereira não cheira a ela. Cheira a pereira. Mas eu fecho os olhos e ponho o cheiro, o mel de tomilho, a lã, o suor de raiva, e de repente ela está ali, de costas para mim, encostada no tronco, chorando baixinho, e eu chego por trás.
 
 Não para consolar. Eu nunca soube consolar.
 
-Chego por trás e encosto o corpo inteiro no dela, devagar, a barriga nas costas dela, a boca na nuca, e ela para de chorar de susto, e não se vira, e eu ponho as mãos espalmadas no tronco dos dois lados dela, prendendo, e ela empurra o quadril para trás, contra mim, sem dizer nada, como fazia na cama quando fingia que dormia. E eu desço uma mão pelo flanco dela, devagar, por cima do vestido, até a coxa, e subo o pano...
+Chego por trás e encosto o corpo inteiro no dela, devagar, a barriga nas costas dela, a boca na nuca, na ponta dos pés, e ela para de chorar de susto, e não se vira, e eu ponho as mãos espalmadas no tronco dos dois lados dela, prendendo, e ela empurra o quadril para trás, contra mim, sem dizer nada, como fazia na cama quando fingia que dormia. E eu desço uma mão pelo flanco dela, devagar, por cima do vestido, até a coxa, e subo o pano...
 
 Abro os olhos. Estou sozinha, abraçada numa pereira, no escuro, com o coração disparado e a respiração curta, e um calor entre as pernas que não tem para onde ir.
 
