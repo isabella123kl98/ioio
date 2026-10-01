@@ -423,3 +423,5 @@ Fico ali, de braços cruzados, com a testa encostada no batente gelado, até o f
 E pensando, pior ainda, no meu filho sorrindo. No meu filho rindo no pátio, alto, como eu não ouvia desde que ele tinha cinco anos.
 
 Por causa dela.
+
+Ou por causa de uma velha de Creta com um nome de soldado, um calo de espada e um suspiro de banheira, que eu vou mandar chamar de novo amanhã, com qualquer desculpa, só para olhar a mão dela mais uma vez à luz do dia.
