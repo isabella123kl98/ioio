@@ -24,9 +24,11 @@ Passamos o último olival. A curva se abre.
 
 E lá está.
 
-Quando eu parti, era uma construção pequena de pedra clara e telhado vermelho, com um pátio no meio e duas alas, aberta ao vento, cheirando a pão e a cal nova. A Anne mandou pintar os batentes de azul no primeiro ano. Eu reclamei. Disse que azul era cor de barco de pescador. Ela disse que uma casa que olha para o mar tem de usar as cores do mar, e que se eu não gostasse podia ir morar no estábulo, que era marrom.
+Quando eu parti, era uma construção pequena de pedra clara e telhado vermelho, com um pátio no meio e duas alas, aberta ao vento, cheirando a pão e a cal nova. A Anne quis pintar os batentes de azul no primeiro ano. Eu não deixei. Disse que azul era cor de barco de pescador. Ela disse que uma casa que olha para o mar tem de usar as cores do mar, e que se eu não gostasse podia ir morar no estábulo, que era marrom, e eu fui dormir no estábulo uma noite só para ganhar a discussão, e perdi, porque o cavalo pisou no meu pé.
 
-Agora a casa está cinzenta. Suja. Manchada de fuligem até a altura das janelas. O azul dos batentes descascou e virou um desenho de ilhas brancas sobre a madeira escura. Os canteiros do pátio viraram lama. Há um monte de lixo encostado na parede leste, onde ficava a horta. No telhado da ala oeste uma telha escorregou e ninguém a recolocou, e o buraco deixa uma janela aberta para a chuva.
+Agora a casa está cinzenta. Suja. Manchada de fuligem até a altura das janelas. E os batentes estão azuis.
+
+Azuis. Ela pintou. Em algum ano em que eu não estava, ela pegou a tinta e o pincel e pintou cada batente desta casa da cor que eu proibi, e o azul agora descascou e virou um desenho de ilhas brancas sobre a madeira escura, de tão velho. Eu fico parada olhando um batente descascado como quem olha uma carta escrita para outra pessoa. Os canteiros do pátio viraram lama. Há um monte de lixo encostado na parede leste, onde ficava a horta. No telhado da ala oeste uma telha escorregou e ninguém a recolocou, e o buraco deixa uma janela aberta para a chuva.
 
 Uma casa que alguém segura com as duas mãos para não cair.
 
@@ -64,13 +66,13 @@ Fecho os punhos com tanta força que as unhas furam a palma. O trapo que esconde
 
 Lembro dele do tamanho de um pão. Do tamanho do Timóteo quando eu parti. Lembro da mãe dele morta na palha do estábulo, numa noite de chuva, e de mim, com dezessete anos, sentada no chão com seis filhotes no colo, cinco que morreram antes do amanhecer e um que não quis morrer. Mergulhei um trapo no leite de cabra e dei a ele gota por gota, a noite inteira, e ele mamava no pano com uma fúria que me fez rir e chorar. Dormia na minha cama. A Anne reclamava do pelo no lençol. Depois descobri que, quando eu saía para o porto antes do sol, ele subia para o meu lado do colchão e deitava com a cabeça nos pés dela, e ela fingia que não gostava.
 
-Não posso me ajoelhar. Não posso estender a mão. Não posso dizer o nome dele.
+Eu queria me ajoelhar no estrume e pôr a cabeça dele no colo e dizer o nome dele uma vez, uma só, no ouvido.
 
 Há cinco rapazes no pátio olhando para nós. Um deles, vejo de relance, ri.
 
 — Ele fez festa para a senhora — murmura o Eumeu, franzindo a testa. — Ele não faz festa para ninguém. Nem para mim.
 
-— Os cachorros gostam dos velhos — digo. — Somos parecidos.
+— Os cachorros gostam dos velhos — digo. — Sentem cheiro de quem também já foi deixado no estrume.
 
 A minha voz sai tão firme que me assusta.
 
@@ -94,15 +96,15 @@ O pátio me recebe como uma boca.
 
 Eu esperava o cheiro, o barulho, a sujeira. O que não esperava era a indiferença. Ninguém repara em nós. Os rapazes que jogam dados no chão levantam os olhos por um segundo, veem um porqueiro velho com um cesto e uma mendiga de cajado, e voltam ao jogo. Duas mulheres lavam roupa em tinas de bronze, de cabeça baixa. Um galo atravessa o pátio como se fosse dono.
 
-Procuro uma muda no canteiro onde plantei as doze oliveiras. Uma folha. Qualquer sinal. Há cascas de fruta e uma jarra quebrada.
+Procuro uma rosa no canteiro do portão, onde a Anne plantou as dela no segundo ano. Uma folha. Qualquer sinal. Há cascas de fruta e uma jarra quebrada.
 
 Procuro os que vi do morro. O de ombros largos está agachado no poço lavando a cara. O pequeno de riso alto dorme debaixo de uma carroça, de boca aberta. O alto, de cabelo escuro, não está.
 
 O Eumeu me leva pela porta da cozinha.
 
-A cozinha é a mesma.
+A cozinha não mudou.
 
-A mesma mesa comprida de carvalho, riscada de facadas. O mesmo forno de pedra. A mesma chaminé enegrecida. O mesmo cheiro de cebola refogada e pão. Até a mesma panela de bronze pendurada no mesmo gancho, onde eu ficava olhando meu reflexo torto quando era pequena, fazendo caretas até Euricleia me mandar parar.
+A mesa comprida de carvalho, riscada de facadas. O forno de pedra. A chaminé enegrecida. O cheiro de cebola refogada e pão. Até a panela de bronze pendurada no gancho de ferro, onde eu ficava olhando meu reflexo torto quando era pequena, fazendo caretas até Euricleia me mandar parar.
 
 Só as pessoas mudaram.
 
@@ -130,9 +132,9 @@ A vinte passos de onde eu dormia quando criança. A vinte do quarto onde fui cor
 
 A porta do salão se abre, e entra um homem que eu não preciso olhar duas vezes.
 
-Alto. Ombros largos. Cabelo escuro e cacheado caindo na testa. Túnica de linho finíssimo bordada de vermelho, aberta até o meio do peito. O queixo forte, os dentes muito brancos, um rosto que foi bonito quando era menino e agora é bonito de um jeito mais duro, mais calculado. Uma taça de vinho na mão direita, um pedaço de pão na esquerda. E nos olhos a preguiça satisfeita de quem nunca precisou pedir nada.
+Alto. Ombros largos. Cabelo escuro e cacheado caindo na testa. Túnica de linho finíssimo bordada de vermelho, aberta até o meio do peito. O queixo forte, os dentes muito brancos, um rosto que foi bonito quando era menino e agora é bonito de um jeito mais duro, mais calculado. Uma taça de vinho na mão direita, um pedaço de pão na esquerda. E nos olhos a preguiça de quem nunca ouviu um não que durasse até o jantar.
 
-Ele se serve de assado. Mastiga de boca aberta. Passa a mão pela cintura da Melanto, que se deixa puxar com um riso que pode ser forçado ou não. Não sei. Não sei mais ler as pessoas desta casa.
+Ele se serve de assado. Mastiga de boca aberta. Passa a mão pela cintura da Melanto, que se deixa puxar com um riso que pode ser forçado ou não. Eu perdi a prática de ler as pessoas desta casa.
 
 Antínoo.
 
@@ -160,7 +162,7 @@ O mundo fica muito quieto.
 
 Sinto o sangue subir até as orelhas. O trapo no dedo arde como ferro quente. A mão que segura o cajado aperta tanto que a madeira range.
 
-Eu podia levantar o cajado agora. Num movimento só. Acertar na têmpora, no ponto mole atrás do olho, onde os ossos são finos como casca de ovo. Ele cairia sem um som. E eu teria matado um dos cento e oito. E os outros cento e sete entrariam por aquela porta antes de eu terminar de respirar.
+Eu podia levantar o cajado agora. Num movimento só. Acertar na têmpora, no ponto mole atrás do olho, onde os ossos são finos como casca de ovo. Ele cairia sem um som. E eu teria matado um dos cento e sete. E os outros cento e seis entrariam por aquela porta antes de eu terminar de respirar.
 
 E depois o menino.
 
@@ -168,7 +170,7 @@ E depois o menino.
 
 A minha voz sai calma. A voz de quem fala do tempo.
 
-— Dizem que no fim do mundo há uma ilha onde o tempo é diferente. Quem chega lá para de envelhecer, mas também para de lembrar. Dizem que uma rainha, uma vez, passou sete anos nela sem saber. E que quando voltou, o mundo inteiro tinha mudado, menos o que ela deixou. — Olho para ele. Só para ele. — Dizem que foi recebida por um bando de cães a quem tinha confiado a casa. Que tinham comido tudo, bebido tudo, e ainda assim a olhavam com fome. E dizem que ela lembrou, naquele instante, o nome de cada um.
+— Dizem que no fim do mundo há uma ilha onde o tempo é diferente. Quem chega lá para de envelhecer, mas também para de lembrar. Dizem que uma rainha, uma vez, passou sete anos nela sem saber. E que quando voltou, o mundo inteiro tinha mudado, menos o que ela deixou. — Olho para ele. Só para ele. — Dizem que foi recebida por um bando de cães a quem tinha confiado a casa. Que tinham comido os porcos dela, bebido o vinho dela, e ainda assim a olhavam com fome. E dizem que ela lembrou, naquele instante, o nome de cada um.
 
 O sorriso do Antínoo hesita.
 
@@ -198,11 +200,11 @@ Um, sentado com os pés em cima da mesa, dá uma gargalhada.
 
 — Diz que ela sabe a história da ninfa! — grita outro.
 
-Sinto as orelhas queimando. Sinto a mão da moça no meu cotovelo, fria, tremendo. E por cima de tudo uma coisa que eu não sentia havia anos, nem em Troia, nem em Ogígia.
+Sinto as orelhas queimando. Sinto a mão da moça no meu cotovelo, fria, tremendo. E por cima disso uma coisa que eu não sentia havia anos, nem em Troia, nem em Ogígia.
 
 A vergonha de ser olhada.
 
-A vergonha que a Anne deve ter sentido naquela noite, sentada naquela cadeira, com cento e oito homens rindo dela. Por minha causa.
+A vergonha que a Anne deve ter sentido naquela noite, sentada naquela cadeira, com cento e sete homens rindo dela. Por minha causa.
 
 E é então que eu a vejo.
 
@@ -220,13 +222,13 @@ A cicatriz da sobrancelha esquerda, a da queda de cavalo aos doze anos, ficou ma
 
 Trinta e seis anos de vida na minha frente, e nenhum deles a descreve.
 
-Ela é outra. Não a mulher que eu deixei, nem a que eu imaginei por dez anos. Uma pessoa inteira, diferente, feita de tudo o que eu não estava aqui para ver. Tem um vinco fundo entre as sobrancelhas que não existia. Tem um cansaço que desenha o canto da boca para baixo. Tem uma postura de quem aprendeu a segurar uma casa inteira com a coluna.
+Ela é outra. Não a mulher que eu deixei, nem a que eu imaginei por dez anos. Uma pessoa inteira, diferente, feita de dez anos que eu não estava aqui para ver. Tem um vinco fundo entre as sobrancelhas que não existia. Tem um cansaço que desenha o canto da boca para baixo. Tem uma postura de quem aprendeu a segurar uma casa inteira com a coluna.
 
 E tem nos olhos uma coisa dura, líquida, vigilante. Como a lâmina de uma faca debaixo da água.
 
 Ela olha para mim e não me reconhece. Claro que não. Olha para uma velha de trapos que o Antínoo trouxe para se divertir, e nenhum músculo do rosto se move.
 
-Mas eu conheço aquela cara melhor do que a minha. E vejo, por baixo da máscara, o tremor pequeno nas pálpebras. O mesmo que ela tinha quando era obrigada a ouvir uma besteira cerimonial e não podia responder.
+Mas eu conheço aquela cara melhor do que a minha. E vejo, por baixo da máscara, o tremor pequeno nas pálpebras. Igual ao que ela tinha quando era obrigada a ouvir uma besteira cerimonial e não podia responder.
 
 Está com raiva.
 
@@ -236,11 +238,11 @@ E o que eu sinto, parada na frente da mulher que eu amei e traí e deixei e dese
 
 *Como ela está linda.*
 
-O frio me sobe pela barriga. O mesmo do molhe. O mesmo da primeira noite, quando ela disse *cale a boca* contra a minha boca. Tenho que me apoiar no cajado, porque as pernas esqueceram o ofício.
+O frio me sobe pela barriga. É o frio do molhe e da primeira noite, quando ela disse *cale a boca* contra a minha boca. Tenho que me apoiar no cajado, porque as pernas esqueceram o ofício.
 
 ---
 
-Ela atravessa o salão devagar. Sem pressa. Sem olhar para nenhum deles.
+Ela atravessa o salão devagar, sem olhar para nenhum deles.
 
 Alguns se levantam, os que ainda guardam um resto de educação. Os outros erguem as taças.
 
@@ -260,7 +262,7 @@ A voz atravessa o salão sem se levantar. Os de trás calam a boca para ouvir.
 
 — Uma parenta do porqueiro, senhora — diz a Melanto, rápida.
 
-— Eu não perguntei a você.
+— Quando eu quiser ouvir a sua voz, Melanto, eu vou olhar para você. Estou olhando para você?
 
 Os olhos dela pousam em mim.
 
@@ -276,7 +278,7 @@ Engulo. Desce queimando.
 
 Ela me olha um instante a mais.
 
-Não sei o que vê. Não sei o que procura. Um músculo mínimo se mexe na bochecha dela, perto do canto da boca. E some.
+O que ela vê, eu não adivinho. Um músculo mínimo se mexe na bochecha dela, perto do canto da boca. E some.
 
 — Deem comida a ela — diz. — E um lugar perto do fogo. E que ninguém toque nela.
 
@@ -296,9 +298,67 @@ E eu, parada no meio do salão onde fui criança, rainha e esposa, sinto os joel
 
 ---
 
+Quem me salva da cadeira vazia é o varal.
+
+A Melanto me larga no pátio com a tigela e corre para o salão quando alguém grita o nome dela. Eu fico de pé, sem rumo, e os pés me levam, porque os pés conhecem esta casa melhor do que a cabeça, pelo corredor dos depósitos até o pátio de trás, o pequeno, onde as criadas estendem roupa.
+
+Ninguém. As tinas de bronze viradas para secar. Uma vassoura de piaçava encostada no muro. E as cordas atravessadas de uma coluna a outra, cheias de pano molhado batendo no vento como velas de uma frota pequena.
+
+Toalhas. Lençóis de linho grosso, remendados. Uma túnica de menino com o joelho rasgado e costurado de novo com linha de outra cor, verde em cima de azul, e não preciso que ninguém me diga quem costurou, porque ela nunca soube escolher linha e nunca admitiu.
+
+E na ponta da última corda, um pano mais fino.
+
+Uma camisola.
+
+Linho branco, comprido, com um laço no decote e uma barra bordada de folhinhas, pequenas, miúdas, folha de oliveira, num fio cinza-prata. Está quase seca. O vento entra por baixo dela e a enche, e por um segundo ela fica no ar com a forma de um corpo, ombros, cintura, quadril, como se alguém tivesse acabado de sair de dentro dela.
+
+Eu conheço esse bordado. Conheço essa barra. Eu rasguei uma igual na noite do casamento, puxando o laço com os dentes, e ela me cobrou durante um ano inteiro, e no fim do ano a mãe dela mandou de Esparta uma nova, com a barra de folhinhas igual, e ela usou na noite em que fizemos o Timóteo.
+
+Não está mais branca. Amarelou. A barra está gasta, o bordado descosturando em dois pontos.
+
+Ela ainda usa. Dez anos depois, com a barra caindo, ela ainda dorme dentro dessa camisola.
+
+Eu largo o cajado contra a coluna. Estendo a mão. A mão de velha, manchada, de nós inchados. E toco o pano com a ponta dos dedos.
+
+Está morno do sol. Cheira a sabão de cinza e a lavanda. E por baixo, quase nada, uma coisa que nenhum sabão tira e que eu reconheço com o corpo inteiro antes de reconhecer com a cabeça: ela. A pele dela. O cheiro da nuca dela de manhã, quando eu enfiava a cara ali antes de levantar e ela resmungava que eu tinha a boca fria.
+
+O corpo de velha não sabe o que fazer com isso. O meu sabe. Sobe uma coisa quente da barriga até a garganta, e desce, e se espalha onde não devia, e eu fico parada no meio do pátio de trás de uma casa cheia de inimigos, com a mão num pano molhado, sentindo desejo por uma camisola.
+
+Os bardos não vão cantar essa parte.
+
+Eu fecho a mão no pano. Só um pouco. Trago a barra até o rosto e encosto a boca nas folhinhas bordadas, onde o linho é mais grosso, e respiro.
+
+Dez anos.
+
+— Tira a mão daí, velha.
+
+Eu largo o pano tão depressa que a corda inteira balança.
+
+É uma criada que eu não conheço. Moça, de cesto no quadril, parada na porta do corredor com a cara fechada. Não grita. Fala baixo, que é pior.
+
+— Essa é da rainha — diz. — Ninguém encosta na roupa da rainha. Nem eu. Ela lava as dela sozinha, de madrugada, na tina pequena, e estende ela mesma. A Euricleia diz que é mania de Esparta. — A moça me olha de cima a baixo. — Se ela souber que uma mendiga cheirou a camisola dela, ela manda pôr você no barco para Dulíquio com os ratos.
+
+— Eu só queria ver o bordado — digo, e a voz sai rachada. — Na minha terra a gente bordava assim. Folha de oliveira. Faz muito tempo que eu não vejo.
+
+A moça hesita. Olha para a camisola, que voltou a encher de vento.
+
+— É bonito — admite, a contragosto. — Ela não deixa ninguém consertar. A barra está caindo e ela não deixa. Diz que se alguém mexer, desmancha.
+
+Ela pega o cesto mais firme no quadril e vai embora pelo outro lado do pátio, olhando para trás duas vezes.
+
+Eu pego o cajado.
+
+Antes de sair, olho a camisola mais uma vez. Os dois pontos onde o bordado está descosturando. Costurar eu aprendi, mal e porcamente, numa gruta, num tear, com uma mulher que tinha paciência.
+
+Não toco.
+
+Ela lava sozinha, de madrugada. Ela não deixa ninguém consertar. Eu guardo as duas coisas como quem guarda duas moedas no fundo da bolsa, sem saber ainda em que mercado vou gastar.
+
+---
+
 Fico no pátio até o fim da tarde, num banco de pedra encostado na parede do estábulo, com a tigela de sopa que me deram esfriando no colo.
 
-Não como. Não consigo.
+A sopa esfria e eu não como.
 
 O sol desce e o pátio fica dourado, depois laranja, e as sombras dos pilares se esticam pelo chão de terra como dedos. Os pretendentes entram para o jantar aos poucos. A Melanto passa duas vezes com jarras e não me olha. O cheiro da lamparina continua no meu nariz.
 
@@ -312,7 +372,7 @@ Viro a cabeça.
 
 No fundo do pátio, do lado do estábulo, um menino atira flechas num alvo de palha amarrado na porta do celeiro.
 
-Tem dez anos. Sei porque sei, não porque vejo. É magro, comprido, de ombros estreitos e pernas que cresceram antes do resto. Tem o cabelo escuro cortado curto, mal cortado, como se alguém tivesse feito isso com uma faca de cozinha. Tem uma mancha amarelada no queixo. Tem o lábio cortado, quase fechado.
+Tem dez anos. A conta está na minha cabeça desde a jangada. É magro, comprido, de ombros estreitos e pernas que cresceram antes do resto. Tem o cabelo escuro cortado curto, mal cortado, como se alguém tivesse feito isso com uma faca de cozinha. Tem uma mancha amarelada no queixo. Tem o lábio cortado, quase fechado.
 
 Tem a minha testa.
 
@@ -326,7 +386,7 @@ A flecha bate no alvo um palmo à esquerda do centro.
 
 Ele bufa. Pega outra flecha na aljava. Puxa. Cotovelo alto. Olho errado.
 
-Um palmo à esquerda.
+Outra vez à esquerda, no buraco da primeira.
 
 Eu atirava um palmo à esquerda a vida inteira. Nunca consertei o cotovelo. Aprendi a mentir para a flecha.
 
@@ -340,25 +400,23 @@ Eu me levanto.
 
 Não decido. O corpo decide, como decidiu o salto em cima do redemoinho. Ponho a tigela no banco. Atravesso o pátio, devagar, com o cajado, arrastando a perna. Ele ouve o cajado e se vira, e me vê, e a mão dele vai por reflexo para a aljava, e fica lá.
 
-De perto, ele tem o queixo da Anne. Exatamente. A mesma linha, o mesmo jeito de empinar quando está com medo.
+De perto, ele tem o queixo da Anne. A linha dela, o jeito dela de empinar quando está com medo.
 
-— O que foi, velha? — pergunta, desconfiado.
+— Se a senhora veio pedir comida, a cozinha é para lá — diz ele, desconfiado. — E se veio rir, pode rir de longe, que todo mundo nesta casa ri de longe.
 
-Paro a três passos. Não chego mais perto. Se eu chegar mais perto, eu toco nele. E se eu tocar nele, acabou.
+Paro a três passos. Não chego mais perto. Se eu chegar mais perto, eu toco nele, e se eu tocar nele, acabou.
 
-— Você atira bem — digo.
+— Eu vim dizer que você atira bem — digo, e a voz de velha arranha na garganta.
 
-A voz de velha arranha na garganta.
+— Eu acerto um palmo para a esquerda desde os nove anos. O Eumeu diz que é o cotovelo. A Euricleia diz que é castigo dos deuses. A minha mãe diz que é porque eu não presto atenção.
 
-— Eu atiro torto.
+— Cinco flechas, cinco no mesmo buraco. Isso é atenção demais, menino. O braço sabe o que faz, só não sabe onde está o alvo. — Aponto com o queixo. — Mira um palmo à direita.
 
-— Atira torto sempre igual. Isso é atirar bem. — Aponto o alvo com o queixo. — Mira um palmo à direita.
+Ele franze a testa, ofendido no orgulho.
 
-Ele franze a testa.
+— Isso é roubar.
 
-— Isso é trapaça.
-
-— Isso é guerra.
+— Isso é guerra. Na guerra quem acerta não pede desculpa ao alvo.
 
 Ele me olha por um longo momento. Os olhos são verdes. Os dela. Desconfiados, inteligentes, cansados, velhos demais para a cara.
 
@@ -372,9 +430,7 @@ Ele fica parado com o arco abaixado. Olhando. Depois se vira devagar para mim, c
 
 — Como a senhora sabia?
 
-Não respondo.
-
-Não posso. A garganta fechou. Viro de costas e volto para o banco, arrastando a perna, contando os passos para não cair, e ouço atrás de mim, um depois do outro, os zunidos e as batidas.
+A garganta fechou e não deixa passar resposta nenhuma. Viro de costas e volto para o banco, arrastando a perna, contando os passos para não cair, e ouço atrás de mim, um depois do outro, os zunidos e as batidas.
 
 No centro. No centro. No centro.
 
