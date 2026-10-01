@@ -284,7 +284,7 @@ Olho o pano. Ele me olha de volta, com aquele brilho de coisa feita por mão que
 
 Ela conta a outra primeiro.
 
-Conta com a voz baixa e seca de quem relata o naufrágio de outro navio. A ilha de Eéa. Os vinte e dois homens que subiram a encosta e voltaram em quatro patas, e o cheiro de chiqueiro que ficou nela até muito depois. A erva de flor branca e raiz preta que o mensageiro deu. A espada no pescoço da feiticeira. O juramento.
+Conta com a voz baixa e seca de quem relata o naufrágio de outro navio. A ilha de Eéa. Os seis homens que subiram a encosta e voltaram em quatro patas, e o cheiro de chiqueiro que ficou nela até muito depois. A erva de flor branca e raiz preta que o mensageiro deu. A espada no pescoço da feiticeira. O juramento.
 
 — Ela jurou pelos deuses que não ia me fazer mal — diz a Emily. — E que ia devolver os homens. E depois ela disse: *agora sobe na minha cama, que é assim que a gente aprende a confiar.* E eu subi.
 

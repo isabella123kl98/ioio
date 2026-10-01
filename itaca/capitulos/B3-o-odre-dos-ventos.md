@@ -2,54 +2,492 @@
 
 *Emily*
 
-Lavo o sangue no poço, à meia-noite, e quando a água da bacia fica limpa ainda sinto os dedos colados.
+Lavo o sangue no poço à meia-noite, e quando a água da bacia fica limpa eu ainda sinto os dedos grudando.
 
-O pátio está vazio. Os criados foram dormir, ou fingem. Eumeu e Filécio levaram os últimos corpos, e a última carroça, rangendo, desceu a colina deixando atrás de si um rastro de cal e de vinagre. O Timóteo, exausto, adormeceu num banco da cozinha com a cabeça no colo de Euricleia e o cachorro aos pés, e a casa inteira respira baixo, como um animal que levou um golpe e ainda não sabe se vai viver. Estou sentada na borda de pedra do poço, sozinha, com os pés na terra fria e as mãos na bacia, olhando o céu. Não há lua. Só estrelas, muitas, imensas, pregadas num veludo escuro. Ouço o mar ao longe. Sinto o cheiro de ferro que não sai do meu cabelo, a cabeça latejando onde o banco me acertou, o ombro, a perna, as costas, mas a dor agora é uma coisa distante, como um vizinho que fala numa língua que não entendo.
+O pátio está vazio. Os criados foram dormir, ou fingem. O Eumeu e o Filécio levaram os últimos corpos, e a última carroça desceu o morro rangendo, deixando atrás um rastro de cal e de vinagre que vai ficar nas pedras uma semana. A casa inteira respira baixo, como um bicho que levou uma paulada e ainda não sabe se vai viver.
 
-Levanto a cabeça e olho a torre leste. A janela, alta, pequena, meio escondida pela sombra, tem uma luz. Uma chama pequena, amarela, tremendo: a lamparina, acesa, como em todas as noites dos últimos dez anos, presumo, que eu não vi. Quer dizer: que eu vi uma vez.
+Eu estou sentada na borda de pedra do poço. Sozinha. Com os pés descalços na terra fria e as duas mãos dentro da bacia de bronze, esfregando uma na outra pela décima vez, pela vigésima, já sem sabão, já sem areia, só água.
 
----
+Não tem lua. Só estrela. Muita. Pregada num pano preto.
 
-Foi na terceira manhã depois de Eéa, e a ilha de Éolo apareceu no meio do mar como um castelo de bronze, um rochedo flutuante cercado de muralhas inquebrantáveis de bronze polido que brilhavam ao sol como espelho, e no alto um palácio de marfim e ouro onde vivia o guardião dos ventos, com seis filhos e seis filhas casados entre si, banqueteando-se dia e noite num salão de música. Era uma casa feliz, barulhenta, cheia de gargalhadas. Fiquei um mês lá, hospedada, contando histórias de Troia, e a cada noite, ao me deitar, pensava: *é isto que eu queria, uma família que ri.* Não era a minha. Mas era uma.
+Ouço o mar lá embaixo, mastigando o molhe.
 
-No fim do mês Éolo me chamou ao gabinete. Era um homem de barba prateada, olhos claros, mãos enormes, com o poder de soltar ou prender as forças do mundo, e sentou-se diante de mim com uma taça de vinho e me olhou em silêncio por um longo tempo antes de dizer que eu queria voltar. Disse que sim, que fazia três anos, que tinha uma esposa e um filho, e quando ele perguntou se a esposa era bonita respondi, sem pensar, que era difícil, e ele riu uma risada grave que fez tremerem as taças. Disse que então me ajudaria. Foi a um armário e tirou dele um odre de couro de boi, grande, pesado, atado por uma corda de prata, e estendeu-o a mim com as duas mãos: ali estavam todos os ventos, menos um; o Zéfiro, o do oeste, sopraria sozinho e me levaria direto a Ítaca, em nove dias estaria em casa; mas eu não devia abrir o odre, por nada, nem deixar ninguém abrir. Jurei pelos deuses. Ele sorriu e me desejou boa sorte.
+Sinto o cheiro de ferro que não sai do meu cabelo. A cabeça lateja no lugar onde o banco do Antínoo me pegou faz três dias, o corte reabriu na luta. O ombro esquerdo não levanta. A perna, a da coxa do mar, está quente e inchada por baixo da atadura que eu mesma amarrei mal. As costas. As mãos, em carne viva da corda do arco, de cento e sete vezes puxar.
 
-Partimos ao amanhecer, com um vento suave, constante, morno, que enchia as velas e nos empurrava a leste com a mansidão de uma mão amiga. Eu ao leme sentia o odre a meus pés, enrolado num cobertor como um bebê, e olhava-o de quando em quando com um carinho absurdo: dentro dele os ventos da terra, inquietos, e fora, um só, o que me levaria para casa.
+E a bochecha.
 
----
+A bochecha esquerda, onde ela bateu, faz umas três horas, no alpendre dos fundos, na frente da Euricleia. A palma aberta. O som seco. E a palavra que eu disse depois, de cabeça virada para o lado, sem nem pensar, a única que me saiu: *nossa.*
 
-Não dormi nove dias. Não podia. Fiquei no leme, dia e noite, olhando o horizonte, contando as ondas, conferindo as estrelas, comendo em pé um pedaço de pão duro e um gole de água, mandando os homens dormirem em turnos enquanto eu, que nunca soube descansar, ficava. Sentia os olhos pesados, a cabeça leve, as pernas tremendo, e repetia baixinho, como oração: *mais um dia, mais um.* Achava que aguentava. No sexto dia vi a primeira ilha, no sétimo a segunda, no oitavo reconheci a forma das montanhas, e era Ítaca, que eu conhecia como se conhece o corpo de uma amante, pelos contornos, pelas curvas, pelo jeito de a luz bater nas encostas, e senti o coração disparar e as lágrimas descerem pela primeira vez em muito tempo, limpas, sem culpa. Gritei. Os homens acordados gritaram também, abraçando-se, dançando no convés, rindo como crianças.
+Eu passo a mão molhada na bochecha. Ainda está quente. Das outras dores todas, é a única que eu sinto direito. As outras são distantes, como um vizinho que fala alto numa língua que eu não entendo.
 
-No nono dia, ao entardecer, estávamos tão perto que eu via as fogueiras. Não sei dizer o que senti: um tremor, uma alegria tão grande que doía. Via as luzes do porto, pequenas, amarelas, acesas uma a uma, a colina do palácio escura contra o céu cor de cobre, o desenho da torre leste, alta, esguia, recortada contra as estrelas nascentes. E no alto da torre, numa janela minúscula, uma luz. Uma luz pequena, dourada, teimosa. Não podia saber o que era; pensei *uma tocha, um guarda, uma criada.* Mas o corpo, que sabe coisas que a cabeça ignora, se apertou, e eu, sem respirar, olhei: uma luz fixa, balançando de leve ao vento, que não era de festa nem de vigia nem de aviso. Uma luz que alguém pusera ali com as mãos, para que outro visse. O coração parou. *Anne.* Não tinha como ser, e foi. Eu soube com a clareza de um raio, com a certeza cega de quem reconhece um rosto: a lamparina, a mulher na janela, a cinco léguas, com a mão no batente e os olhos no mar. Levantei o braço. Não sei por quê; um gesto inútil, de quem acena para alguém que não pode ver. Acenei. Gritei o nome dela, uma vez, muito alto, por cima do vento, por cima da água, e a voz me saiu rouca, quebrada, cheia de dez meses de silêncio.
+Levanto a cabeça. E olho a torre leste.
 
-E então, sem aviso, o mundo apagou.
+A janela é alta. Pequena. Meio escondida na sombra do beiral. E tem luz.
 
----
+Uma chama pequena. Amarela. Tremendo atrás de uma tampa furada.
 
-Acordei com o uivo. Não era vento, nem trovão, nem mar, mas tudo ao mesmo tempo, o rugido de uma garganta imensa, uma explosão de ar, um grito de mil bocas soltas de uma só vez. Abri os olhos e o céu, que estava claro, era um turbilhão negro, o mastro rangia, a vela rasgada pendia como bandeira de guerra, o navio que um segundo antes deslizava sobre um mar liso rodopiava como folha. Estava caída no convés, de bruços, com a cabeça latejando: tinha adormecido, de pé, junto ao leme, no último instante, depois de nove dias e noites, os joelhos cederam e eu desabei e dormi como pedra. O odre estava aberto. Vi-o a dois passos de mim, a boca escancarada, a corda de prata solta como cobra morta, e em volta, de joelhos, com os rostos branqueados de terror, os homens.
+A lamparina.
 
-Gritei o que tinham feito, uma vez, outra, e um rapaz de dezoito anos, de olhos enormes, sussurrou que acharam que era ouro, que Éolo dera à rainha um tesouro, que pensaram que era só uma espiada, que eu dormia e eles não quiseram me acordar, só um pouquinho. Olhei em volta: o céu, o mar, o horizonte inclinado em ângulos impossíveis, e ao longe, a leste, onde minutos antes estava Ítaca, uma mancha cinzenta que encolhia, engolida pela tempestade. Não gritei nem chorei. Levantei-me devagar, com as pernas trêmulas, fui até a amurada, segurei o corrimão com as duas mãos. O vento me batia no rosto cheirando a sal e a ferro. Olhei a ilha, a sombra da minha casa, a colina, a torre, a pequena luz, que ainda vi por um instante, um ponto dourado no meio da escuridão, como estrela que caiu. Depois sumiu.
+Acesa. Como em todas as noites dos últimos dez anos, eu presumo, que eu não vi.
 
-Soube que ia pular, e pensei nisso com perfeita calma, como quem considera uma decisão prática: eram cinco léguas, eu nadava bem, poderia chegar, se a tempestade deixasse, se as ondas não me levassem, uma chance em mil. Levantei uma perna. Uma mão me agarrou pela cintura. Euríloco, vivo ainda nessa época, forte como um touro, de olhos escuros e rosto fechado, segurou-me com um braço só e me puxou para trás com uma força que não discuti, e caí contra o peito dele, e me debati com os punhos, os cotovelos, os dentes, gritando sem som. Gritei que me soltasse, que ela estava lá, que ela acendera a luz. "Eu sei", rugiu ele contra o meu ouvido. "Você vai morrer." "Eu quero." "Não quer. Você quer chegar. E se se jogar agora, não chega. Se ficar, talvez." Perguntei quando. "Não sei." Disse que nunca mais, e ele disse talvez, e eu disse nunca, nunca, nunca.
+Quer dizer.
 
-Não sei quanto tempo lutei. Sei que a força me abandonou e amoleci nos braços dele como um pano, e ele me segurou, sem soltar, até o fim da tempestade, e que fiquei de joelhos no convés, o rosto enfiado no peito de um homem que não era ela, chorando como criança. Sei que quando o céu clareou, e o mar se acalmou, e a ilha sumiu, ele me soltou, e eu me levantei e olhei os homens, um por um, os homens dos doze navios, sem gritar, sem punir, sem dizer nada, e eles baixaram os olhos. O rapaz de dezoito anos disse, com a voz trêmula, que eu tinha razão de odiá-los. "Não os odeio. Fiz a mesma coisa durante dez anos: abri o odre, várias vezes. Só que o meu tem outro nome. Esperança." Ninguém respondeu.
-
----
-
-Éolo nos recusou. Voltamos à ilha de bronze a remo, em sete dias, exaustos, famintos, cobertos de sal, e fomos recebidos como mendigos. O rei dos ventos, que antes nos oferecera vinho, apareceu diante de nós em pé, de braços cruzados, com os olhos de uma frieza mortal, e disse que eu jurara. Ajoelhei-me no chão de mármore, sem levantar os olhos: errei, disse, não nos ajude se não quiser, só queria pedir, e a voz me falhou, que me deixasse tentar de novo. "Não. Saia daqui, mulher. Você é amaldiçoada pelos deuses. Quem ajudar você, sofre." Levantei-me devagar, com as pernas dormentes, e olhei uma última vez o salão, o palácio de ouro, as colunas de marfim, os filhos e filhas de Éolo que me olhavam em silêncio com uma mistura de piedade e medo, e uma das moças, a mais nova, de olhos claros e cabelo dourado, chorando baixinho com as mãos na boca. Saí.
-
-Partimos sem vento, a remo. E foi nessa noite, deitada no convés, olhando as estrelas, que tomei a decisão que me custou dez anos. Não a de desistir; essa eu não tomei. A de parar de olhar. Jurei a mim mesma, com os punhos cerrados e o rosto molhado, que enquanto não estivesse em casa nunca mais procuraria uma luz, nem na janela, nem no mar, nem no céu, que aprenderia a viver sem o que me fora mostrado e tirado, e que se visse uma chama pequena e amarela no alto de uma torre fecharia os olhos. Foi uma decisão estúpida. Mas cumpri.
-
-Três semanas depois os lestrigões comeram onze dos meus doze navios. Não conto; não consigo. Sei que foram gigantes de boca enorme que arrancavam os homens do mar como quem colhe uvas, que o porto era uma armadilha cercada de rochedos e a frota atracada na enseada estreita não teve como fugir, que os gigantes atiraram pedras, quebraram cascos, cravaram arpões nos corpos, e que eu, no único navio que ficara fora da enseada, cortei as amarras com a espada e gritei aos remadores que remassem, que não parassem. Remaram. Ficamos doze, no único navio que restou, de quinhentos e quarenta. Não olhei para trás. Não chorei. Dei as ordens com voz de pedra e naveguei em silêncio, de olhos fechados, por dois dias, e só no terceiro, quando os sobreviventes adormeceram de exaustão, me permiti um gemido, um só, baixinho, abafado contra o braço. Foi nessa noite que parei de contar os mortos.
+Que eu vi uma vez.
 
 ---
 
-"Mãe Emily."
+Foi na terceira manhã depois da ilha do ciclope.
 
-A voz me tira da lembrança e me sobressalto, com a bacia nas mãos, e a água derrama pelo chão. O Timóteo está de pé à entrada do pátio, de camisola, descalço, com o cabelo em pé e os olhos inchados, o cobertor arrastando pelo chão e Fido atrás dele, bocejando, com a expressão de quem acordou de um pesadelo e foi procurar alguém. Diz que acordou, que não sabe por quê, que eu não estava. Digo que estava ali. "Mas não estava lá", diz, apontando a cozinha. "Quando acordo, quero saber onde a senhora está. Toda noite, desde a semana passada. Tenho medo de que a senhora suma." Não respondo. Olho aquele menino de ombros estreitos, olhos enormes, queixo trêmulo, tão menor do que à tarde, quando enfiou uma lança no peito de um homem. "Venha cá." Ele vem. Senta-se ao meu lado na pedra fria, com as pernas balançando e o cobertor nos ombros, e fica calado um longo tempo, olhando as estrelas, antes de perguntar por que eu olhava a torre da mãe Anne. Digo que não olhava. "Olhava. Eu vi da porta. A senhora ficou muito tempo olhando a luz."
+Ainda com o grito do gigante cego no ouvido. Ainda com o meu nome que eu gritei para ele, por vaidade, ecoando no mar. *Emily de Ítaca, filha de Laertes.* Ainda com doze navios, quinhentos e trinta e quatro homens. Eu tinha contado os que o ciclope comeu. Seis. Eu sabia o nome de todos.
 
-Fico calada. Ele diz que é a lamparina, que ela acende toda noite, desde que fui embora, e pergunta se eu já tinha visto. O vento bate nas folhas das oliveiras, o poço sob nós guarda o murmúrio de uma água funda. "Uma vez", digo. "No mar, a cinco léguas. Vi. E não vim porque adormeci. Nove dias sem dormir, tão perto, e nas últimas horas os joelhos cederam. Acordei com os ventos soltos, o navio em pedaços e a ilha sumindo." Ele diz que foi culpa dos ventos. Digo que foi minha. Ele diz que eu estava cansada, que ninguém aguenta nove dias. "Eu achava que sim." "Então a senhora era burra." Rio, sem querer, um riso curto, molhado. "Era." "Mas chegou." "Dez anos depois." "Mas chegou", repete, segurando o meu braço. "Isso é mais do que muita gente."
+A ilha de Éolo apareceu no meio do mar como um castelo flutuando.
 
-Olho o menino, que me olha com aquele olhar de juiz velho demais para o rosto, e sinto subir da barriga ao peito uma coisa que não é alívio nem perdão, uma coisa mais larga, mais calma. Pergunto se ele acha que ela me perdoa. Ele pensa. Olha a torre, a luz, a chama pequena e amarela que tremula na janela como estrela doméstica. "Eu acho que ela já começou." "Como sabe?" "Porque ela não apagou. Podia ter apagado hoje, depois do que a senhora fez. Mas deixou acesa." Olho a janela, o ponto dourado no alto da torre, e penso, pela primeira vez em dez anos, sem esforço de esquecer, sem impulso de fechar os olhos: *ela deixou acesa.* Fico olhando até as lágrimas turvarem a vista. O menino não diz nada. Só encosta a cabeça no meu ombro e fica ali, com o cobertor e o cachorro, sentado na borda de um poço, olhando comigo a luz.
+Uma rocha subindo direto da água, sem praia, sem porto, cercada de uma muralha de bronze polido que brilhava no sol como espelho e cegava quem olhava. Lá em cima, um palácio de marfim e ouro. E dentro do palácio, o guardião dos ventos, com seis filhos e seis filhas, casados uns com os outros, comendo e bebendo e tocando lira dia e noite num salão onde ninguém parava de rir.
 
-Não digo a ele que uma vez, a cinco léguas, acenei para aquela mesma chama. Que gritei o nome dela. Que a vi sumir. Não preciso. Ele sabe.
+Era uma casa feliz. Barulhenta. Cheia de gargalhada e de gente se esbarrando nos corredores.
+
+Eu fiquei um mês. Hospedada. Contando histórias de Troia em troca de vinho. E toda noite, quando deitava na cama de lençol bordado que eles me deram, eu pensava: *é isso que eu queria. Uma família que ri.*
+
+Não era a minha. Mas era uma.
+
+No fim do mês, o Éolo me chamou.
+
+Era um homem de barba prateada até o peito, olhos claros como água rasa, mãos enormes. Tinha o poder de soltar ou prender todas as forças do mundo. Sentou na minha frente com uma taça de vinho e ficou me olhando um tempo comprido antes de falar.
+
+— Você quer voltar — disse.
+
+— Quero.
+
+— Faz quanto tempo?
+
+— Dois anos e meio. A guerra foi curta para uma guerra e comprida para uma mulher. Tenho uma esposa. E um filho que eu vi com dois meses e que já deve andar.
+
+— A esposa é bonita?
+
+E eu respondi sem pensar. Saiu antes de eu decidir.
+
+— É difícil.
+
+E ele riu. Uma risada grave, funda, que fez as taças tremerem na mesa e uma das filhas espiar pela porta.
+
+— Então eu ajudo — disse. — Quem diz *difícil* em vez de *bonita* merece chegar em casa.
+
+Ele foi até um armário de cedro, no fundo da sala, e tirou de dentro um odre. De couro de boi. Grande. Pesado. Inflado como uma barriga. Amarrado na boca com uma corda de prata trançada.
+
+Estendeu para mim. Com as duas mãos.
+
+— Aqui dentro estão todos os ventos — disse. — Todos menos um. O do oeste eu deixei solto. Ele sopra sozinho e te leva direto para Ítaca. Nove dias. Em nove dias você está em casa. — Ele não soltou o odre ainda. — Mas você não abre. Por nada. E não deixa ninguém abrir. Nem para espiar. Nem um dedo.
+
+— Eu juro.
+
+— Pelos deuses?
+
+— Pelos deuses. E pela minha mulher, que é pior.
+
+Ele soltou o odre nas minhas mãos. Pesava como um homem.
+
+---
+
+A gente partiu ao amanhecer. Com um vento macio, constante, morno, que enchia a vela e empurrava os doze navios para leste com a mansidão de uma mão amiga nas costas.
+
+Eu ia no leme do meu. O odre ficava nos meus pés, embrulhado num cobertor de lã, como um bebê. E eu olhava para ele de vez em quando com um carinho que hoje me dá vergonha. Dentro dele, todos os ventos do mundo, se debatendo. Fora dele, um só. O que me levava para casa.
+
+Eu não dormi nove dias.
+
+Não podia. Era o que eu dizia a mim mesma. Fiquei no leme dia e noite. Olhando o horizonte. Contando as ondas. Conferindo as estrelas. Comendo de pé um pedaço de pão duro, um gole de água. Mandando os homens dormirem por turno enquanto eu, que nunca soube descansar, ficava.
+
+Os olhos pesavam. A cabeça ficava leve. As pernas tremiam. E eu repetia baixinho, como reza, de olho aberto:
+
+*Mais um dia. Mais um.*
+
+Eu achava que aguentava. Eu sempre acho que aguento.
+
+No sexto dia eu vi a primeira ilha conhecida. No sétimo, a segunda. No oitavo eu reconheci o desenho das montanhas no horizonte. E era Ítaca. Que eu conheço como se conhece o corpo de uma pessoa amada. Pelo contorno. Pela curva. Pelo jeito como a luz da tarde bate nas encostas e deixa o lado norte azul.
+
+O coração disparou. As lágrimas desceram pela primeira vez desde Troia. Limpas. Sem culpa nenhuma ainda, porque a culpa ainda não tinha acontecido.
+
+Eu gritei.
+
+Os homens acordados gritaram também. Se abraçaram. Dançaram no convés. Riram como menino.
+
+---
+
+No nono dia, no fim da tarde, a gente estava tão perto que eu via as fogueiras do porto.
+
+Eu não sei dizer o que eu senti. Um tremor. Uma alegria tão grande que doía nos dentes.
+
+Eu via as luzes do porto acendendo, uma a uma, pequenas, amarelas. O morro do palácio escuro contra um céu cor de cobre. O desenho da torre leste, alta e fina, recortada contra as primeiras estrelas.
+
+E lá em cima, na torre, numa janela minúscula, uma luz.
+
+Pequena. Dourada. Teimosa.
+
+Eu não podia saber o que era. Eu pensei: *uma tocha. Um guarda. Uma criada esqueceu uma vela.*
+
+Mas o corpo, que sabe coisa que a cabeça não sabe, apertou. Inteiro. E eu olhei sem respirar.
+
+Uma luz parada. Balançando de leve no vento. Que não era de festa. Nem de vigia. Nem de farol. Uma luz que alguém tinha posto ali com as mãos, alta, na janela que dá para o mar, para outro alguém ver.
+
+O coração parou.
+
+*Anne.*
+
+Não tinha como ser. E era.
+
+Eu soube como se sabe uma coisa por um raio. Com a certeza cega de quem reconhece uma cara no meio de uma multidão. A luz. A mulher na janela. A cinco léguas. Com a mão no batente e os olhos no mar.
+
+A vela. A de sebo. A que ela punha no peitoril quando eu saía para Corinto e fingia que era para ler. Só que essa não apagava no vento.
+
+Eu levantei o braço.
+
+Não sei por quê. Um gesto inútil. De quem acena para alguém que não pode ver. Eu acenei. E gritei o nome dela. Uma vez. Muito alto. Por cima do vento. Por cima da água. E a voz saiu rouca, rachada, cheia de dois anos e meio de silêncio.
+
+— *ANNE!*
+
+E então, sem aviso nenhum, o mundo apagou.
+
+---
+
+Acordei com um uivo.
+
+Não era vento. Não era trovão. Não era mar. Era tudo junto. O rugido de uma garganta do tamanho do céu. Uma explosão de ar. Mil bocas gritando ao mesmo tempo, soltas de uma vez depois de nove dias presas.
+
+Abri os olhos.
+
+O céu, que estava limpo, era um redemoinho preto. O mastro gemia. A vela, rasgada, batia como bandeira de guerra. O navio, que um segundo antes deslizava em mar liso, rodava em cima da água como uma folha num ralo.
+
+Eu estava caída no convés. De bruços. Com a cabeça latejando.
+
+Eu tinha dormido.
+
+De pé. Do lado do leme. No último instante. Depois de nove dias e nove noites. Os joelhos tinham cedido sem me avisar, e eu tinha desabado, com o braço levantado ainda, com o nome dela ainda na boca, e dormido como pedra.
+
+O odre estava aberto.
+
+A dois passos de mim. Com a boca escancarada. A corda de prata solta no chão como uma cobra morta. E em volta dele, de joelhos no convés, com as caras brancas de pavor, os homens.
+
+— O que vocês fizeram?
+
+Eu gritei. Uma vez. Outra. Arranhando a garganta.
+
+Um rapaz de dezoito anos, de olhos enormes, chamado Polites, o que segurava a colher como quem segura uma pena, sussurrou:
+
+— A gente achou que era ouro, rainha. Que o rei dos ventos tinha dado um tesouro à senhora e que a senhora não ia dividir. A gente só ia espiar. A senhora estava dormindo. A gente não quis acordar. Era só um pouquinho...
+
+Eu olhei em volta.
+
+O céu. O mar. O horizonte inclinado em ângulos que não existem. E longe, a leste, onde um minuto antes estava Ítaca, uma mancha cinzenta encolhendo, engolida pela tempestade.
+
+Eu não gritei mais. Não chorei.
+
+Me levantei devagar, com as pernas tremendo. Fui até a amurada. Segurei a borda com as duas mãos. O vento me batia na cara com cheiro de sal e de ferro.
+
+E olhei a ilha. A sombra da minha casa. O morro. A torre.
+
+A luz pequena.
+
+Eu ainda vi. Por um instante. Um ponto dourado no meio da escuridão. Como uma estrela que caiu no mar e ficou boiando.
+
+Depois sumiu.
+
+---
+
+Eu soube que ia pular.
+
+E pensei nisso com uma calma perfeita. Como quem considera uma coisa prática, de ordem de carga. Eram cinco léguas. Eu nadava bem. Eu nadava melhor que qualquer homem da frota. Podia chegar, se a tempestade deixasse. Se as ondas não me levassem para o lado errado. Uma chance em mil.
+
+Eu levantei uma perna por cima da amurada.
+
+Uma mão me agarrou pela cintura.
+
+O Euríloco. Vivo ainda nessa época. Forte como um boi, de olhos escuros, cara fechada, que nunca concordou com nada do que eu fiz e que me seguiu em tudo. Me segurou com um braço só e me puxou para trás com uma força que não tinha discussão. Eu caí contra o peito dele.
+
+E bati. Com os punhos. Com os cotovelos. Com os dentes. Gritando sem som.
+
+— Me solta!
+
+— Não.
+
+— Ela está lá! Ela acendeu a luz!
+
+— Eu sei. — Ele rugiu no meu ouvido. — Eu vi também. Você vai morrer.
+
+— Eu quero.
+
+— Não quer. Você quer *chegar*. E se você pular agora, não chega. Se ficar, talvez.
+
+— Quando?
+
+— Não sei.
+
+— Nunca mais.
+
+— Talvez.
+
+— Nunca. *Nunca, nunca, nunca.*
+
+Eu não sei quanto tempo eu lutei. Eu sei que a força me largou de uma vez, e eu amoleci nos braços dele como um pano molhado. E ele me segurou. Sem soltar. Até o fim da tempestade. E eu fiquei de joelhos no convés com a cara enfiada no peito de um homem que não era ela, chorando como criança, com o odre vazio rolando de um lado para o outro do convés a cada onda.
+
+Quando o céu clareou, e o mar acalmou, e a ilha tinha sumido de vez, ele me soltou.
+
+Eu me levantei. E olhei os homens. Um por um. Os homens dos doze navios, que tinham ido com os barcos deles para onde o vento quis, e os do meu, ali, sentados no convés molhado, sem olhar para mim. Eu não gritei. Não castiguei. Não disse nada.
+
+Eles abaixaram os olhos.
+
+O Polites, o rapaz da colher, disse, com a voz tremendo:
+
+— A senhora tem razão de odiar a gente.
+
+E eu disse uma coisa que eu não sabia que ia dizer.
+
+— Eu não odeio vocês. Eu fiz a mesma coisa. Eu abri um odre também. Muitas vezes. Na guerra. Cada vez que eu achei que ia voltar logo. — Olhei para o mar vazio. — O meu tem outro nome.
+
+— Qual, rainha?
+
+— Pressa.
+
+Ninguém respondeu.
+
+---
+
+O Éolo recusou a gente.
+
+Voltamos à ilha de bronze no remo. Sete dias. Mortos de cansaço, de fome, cobertos de sal. E ele nos recebeu na porta do palácio como quem recebe mendigo. De pé. De braços cruzados. Com os olhos de uma frieza de morte.
+
+— Você jurou — disse.
+
+Eu me ajoelhei no mármore. Sem levantar os olhos.
+
+— Eu errei. Eu dormi. Não ajuda se não quiser. Eu só queria pedir... — A voz falhou. — Que me deixe tentar de novo.
+
+— Não. — Ele não descruzou os braços. — Sai daqui, mulher. Os deuses te odeiam. Quem te ajudar, sofre junto.
+
+Eu me levantei devagar. Com as pernas dormentes. E olhei uma última vez o salão. O ouro. As colunas de marfim. Os filhos e as filhas do Éolo, me olhando em silêncio, com uma mistura de pena e de medo. E uma das moças, a mais nova, de olhos claros e cabelo dourado, chorando baixinho com as duas mãos na boca.
+
+Eu saí.
+
+A gente partiu sem vento. No remo.
+
+E foi nessa noite, deitada de costas no convés, olhando as estrelas, que eu tomei a decisão que me custou dez anos.
+
+Não a de desistir. Essa eu nunca tomei.
+
+A de parar de olhar.
+
+Eu jurei a mim mesma, com os punhos fechados e a cara molhada, que enquanto eu não pisasse em casa eu nunca mais ia procurar uma luz. Nem numa janela. Nem no mar. Nem no céu. Que eu ia aprender a viver sem aquilo que tinham me mostrado e arrancado. E que se eu visse de novo uma chama pequena e amarela no alto de uma torre, eu ia fechar os olhos.
+
+Foi uma decisão idiota.
+
+Mas eu cumpri.
+
+Três semanas depois os lestrigões comeram onze dos meus doze navios.
+
+Eu não conto essa. Não consigo. Eu sei que eram gigantes de boca enorme que tiravam os homens da água como quem colhe uva no cacho. Que o porto deles era uma armadilha, uma enseada estreita entre dois paredões, e que a frota entrou toda e não tinha como sair. Que eles jogaram pedra do alto, quebraram os cascos, espetaram os homens com arpão como peixe. E que eu, no único navio que tinha ficado fora da enseada, porque eu desconfiei, porque eu sempre desconfio, cortei as amarras com a espada e gritei para os remadores remarem e não pararem.
+
+Eles remaram.
+
+Sobrou um navio. Doze homens. De quinhentos e quarenta.
+
+Eu não olhei para trás. Não chorei. Dei as ordens com voz de pedra e naveguei calada, de olhos fechados, dois dias. E só no terceiro, quando os onze que sobraram dormiram de exaustão em cima dos remos, eu me deixei soltar um gemido. Um só. Baixinho. Abafado contra o braço.
+
+Foi nessa noite que eu parei de contar os mortos.
+
+E foi a Anne, dez anos depois, quem me ensinou a contar de novo.
+
+---
+
+— Mãe.
+
+A voz me tira de lá. Eu levo um susto, com a bacia nas mãos, e a água derrama no chão e molha os meus pés.
+
+O Timóteo está de pé na entrada do pátio. De camisola. Descalço. Com o cabelo em pé e os olhos inchados de chorar, arrastando um cobertor de lã pelo chão. O cachorro cinzento vem atrás dele, bocejando, com aquela cara de quem acordou e foi atrás do dono sem saber para quê.
+
+Ele não diz nada. Fica parado olhando para mim.
+
+Eu também não digo nada.
+
+Faz dezesseis horas que eu sou a mãe dele. Desde a madrugada, no arsenal, quando eu tirei o trapo do dedo e mostrei a coruja para ele e para o Eumeu, na luz da tocha, com as espadas nas mãos. Antes disso eu era uma velha de Creta que ensinou ele a mirar um palmo à direita.
+
+Dezesseis horas. E no meio delas ele matou um homem para me salvar.
+
+— Eu fui lá em cima — diz ele, afinal. A voz fina. — Na porta dela. Eu pedi.
+
+— Pediu o quê?
+
+— Para ela deixar a senhora subir. Para dormir. A senhora está machucada. A Euricleia disse que a senhora não deixou ninguém cuidar.
+
+Eu fico quieta.
+
+— Ela disse não — diz o Timóteo.
+
+— Eu imaginei.
+
+— Ela nem abriu a porta. Falou de dentro. Disse *vai dormir, Timóteo*. — Ele aperta o cobertor. — Com aquela voz.
+
+Eu conheço aquela voz. Ouvi três horas atrás, no alpendre, antes do tapa.
+
+— Ela tem direito — digo.
+
+— Por quê?
+
+Eu não sei responder a isso para um menino de dez anos à meia-noite, com sangue de homem ainda embaixo das unhas dele, que alguém esfregou e não tirou tudo.
+
+— Vem cá — digo.
+
+Ele vem.
+
+Senta do meu lado na pedra fria do poço, com as pernas balançando e o cobertor nos ombros. O cachorro deita nos nossos pés com um suspiro de velho. E o Timóteo fica muito tempo calado, olhando as estrelas, antes de falar.
+
+— Eu acordei e a senhora não estava.
+
+— Eu estava aqui.
+
+— Mas não estava *lá*. — Ele aponta a cozinha com o queixo, onde a Euricleia tinha deixado ele dormindo num banco. — Eu acordei e procurei e a senhora não estava. E eu achei que a senhora tinha ido embora de novo. Que tinha sido sonho. Que a velha de Creta tinha sido sonho e o arsenal tinha sido sonho e o salão...
+
+Ele para.
+
+— O salão não foi sonho — diz, mais baixo.
+
+— Não.
+
+— Eu matei um homem.
+
+— Eu sei. Eu vi.
+
+— Ele ia te acertar pelas costas. Com o machado.
+
+— Eu sei.
+
+— Eu não pensei. Eu só soltei a flecha. Um palmo à direita. Como você ensinou.
+
+Eu fecho os olhos.
+
+— E depois eu vomitei atrás da coluna — diz ele. — E você veio. E ficou com a mão na minha nuca.
+
+— Eu lembro.
+
+Ele fica quieto um tempo. Depois:
+
+— Por que você estava olhando a torre da mãe?
+
+— Eu não estava.
+
+— Estava. Eu vi da porta da cozinha. Você ficou muito tempo olhando a luz. Sem mexer a mão na água.
+
+Eu não digo nada.
+
+— É a lamparina — diz o Timóteo. — Ela acende toda noite. Desde que você foi embora. Eu nunca vi uma noite sem. — Ele pensa. — Uma vez. Quando eu tinha seis anos. O azeite acabou. Ela disse. Não tinha acabado.
+
+Eu fico olhando para ele.
+
+Não sei o que foi aquela noite. Ninguém me contou. Não pergunto.
+
+— Você já tinha visto? — pergunta ele. — A luz? Antes de hoje?
+
+O vento passa nas folhas das oliveiras velhas. O poço embaixo de nós guarda o barulho de uma água funda.
+
+— Uma vez — digo.
+
+— Quando?
+
+— No mar. A cinco léguas daqui. No nono dia de uma viagem que era para ser de nove dias. Eu vi. E não vim. Porque eu dormi. Nove dias sem dormir, tão perto, e nas últimas horas os joelhos cederam. E quando eu acordei os ventos estavam soltos e o navio estava rodando e a ilha estava sumindo.
+
+— Foi culpa dos ventos.
+
+— Foi minha.
+
+— Você estava cansada. Ninguém aguenta nove dias sem dormir.
+
+— Eu achava que aguentava.
+
+— Então você era burra.
+
+Eu rio. Sem querer. Um riso curto, molhado, que dói na costela.
+
+— Era.
+
+— Mas chegou.
+
+— Dez anos depois.
+
+— Mas chegou. — Ele segura o meu braço. O direito. Por cima da atadura mal feita. — Isso é mais do que muita gente. O Ântifo não chegou. O Polites não chegou.
+
+Eu olho para ele. Para aquele menino que me olha com uma cara de juiz velha demais para a cara dele.
+
+E sinto subir da barriga uma coisa que não é perdão. Ninguém me perdoou. Não é alívio. É outra coisa. Mais larga. Mais calma.
+
+— Você acha que ela me perdoa? — pergunto.
+
+Eu não devia perguntar isso a ele. Eu sei que não devia. Ele tem dez anos. Ele é o filho.
+
+Ele pensa. De verdade. Olha para a torre. Para a luz. A chama pequena e amarela que treme na janela como uma estrela de casa.
+
+— Eu acho que ela já começou — diz.
+
+— Como você sabe?
+
+— Porque ela não apagou. — Ele aponta com o queixo. — Ela podia ter apagado hoje. Depois do tapa. Ela bateu na senhora e subiu e trancou a porta e podia ter apagado. Ela sabe que a senhora está aqui embaixo. Ela sabe que a senhora olha. A Euricleia contou a ela. Eu ouvi.
+
+— E ela não apagou.
+
+— Ela deixou acesa.
+
+Eu olho a janela.
+
+O ponto dourado lá no alto da torre. E penso, pela primeira vez em dez anos, sem fazer força para esquecer, sem a vontade de fechar os olhos que eu jurei no convés do navio sem vento:
+
+*Ela deixou acesa.*
+
+E aí eu vejo.
+
+Na janela. Na frente da luz. Uma sombra.
+
+Um ombro. Uma cabeça. O desenho de uma mulher de pé, parada, com a luz por trás, recortada como a torre ficava recortada contra as estrelas daquela tarde a cinco léguas.
+
+Olhando para baixo. Para o pátio. Para o poço.
+
+Para nós dois.
+
+Eu paro de respirar.
+
+O Timóteo não vê. Está olhando para as próprias mãos, para as unhas.
+
+A sombra fica parada. Eu não sei quanto tempo. Eu conto. Eu não contava desde os lestrigões e conto. Onze. Doze. Treze.
+
+Eu não aceno. Eu não grito o nome dela. Eu não levanto o braço.
+
+Eu só olho. De olho aberto. Quebrando o juramento do convés.
+
+Vinte e um. Vinte e dois.
+
+E a sombra se mexe. Uma mão sobe. Eu vejo a mão subir contra a luz. E por um instante eu acho que ela vai apagar. Que a mão vai até a tampa furada e sopra, e acabou.
+
+A mão para no meio do caminho.
+
+E fica ali. Aberta. Encostada no batente, ou em nada. Uma palma aberta na frente da luz.
+
+Igual à minha no convés. A que acenou para ninguém.
+
+Depois a sombra vira. E some.
+
+E a luz fica.
+
+---
+
+As lágrimas me turvam a vista e a janela vira um borrão dourado.
+
+O Timóteo não diz nada. Ele não viu. Ou viu e é filho dela e sabe fingir.
+
+Ele só encosta a cabeça no meu ombro. No bom. E fica ali. Com o cobertor e o cachorro. Sentado na borda de um poço de madrugada, olhando comigo a luz.
+
+Eu não conto a ele que uma vez, a cinco léguas daqui, eu acenei para aquela mesma chama. Que eu gritei o nome da mãe dele por cima do vento. Que eu vi a luz sumir e jurei nunca mais olhar.
+
+Não preciso.
+
+Ele dorme no meu ombro antes de o céu mudar de cor.
+
+E eu fico acordada. Eu fico acordada a noite inteira, como fiquei nove dias, olhando aquela janela.
+
+Dessa vez não durmo.
+
+Dessa vez eu não durmo de jeito nenhum.
