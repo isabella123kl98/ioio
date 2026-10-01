@@ -32,7 +32,7 @@ Euricleia aparecia do meu lado, de avental, com as mãos enrugadas, e tirava o m
 
 — Ele está ótimo, menina. Quem está uma lástima é você.
 
-Eu dormia duas horas por noite. Ao amanhecer descia à sala do conselho, onde os anciãos me esperavam com os papiros e as queixas, e eu, com vinte e sete anos e um filho no braço, olhava para eles sabendo que governava um reino que ninguém me ensinou a governar.
+Eu dormia duas horas por noite, de lado, com uma mão no berço para sentir o menino respirar e a outra embaixo do travesseiro dela, que eu não deixava ninguém afofar. Ao amanhecer descia à sala do conselho, onde os anciãos me esperavam com os papiros e as queixas, e eu, com vinte e sete anos e um filho no braço, olhava para eles sabendo que governava um reino que ninguém me ensinou a governar.
 
 A Emily tinha deixado ordens escritas numa folha de pergaminho. Guardei numa caixa. Não abri. Abrir seria aceitar que ela tinha ido.
 
