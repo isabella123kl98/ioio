@@ -30,7 +30,7 @@ Ele me olha e não sabe.
 
 A voz que sai é de velha. Rachada, arrastada, com um assobio entre os dentes. Me surpreende tanto que quase olho em volta procurando quem falou.
 
-Ele me segura pelo cotovelo com uma delicadeza que eu não esperava e me guia pelo caminho de pedras. Sinto o cheiro dele, que é o mesmo de trinta anos atrás: lã molhada, porco e fumaça. E sobe pelo meu peito uma onda de amor tão violenta por aquele velho que preciso morder o lado de dentro da bochecha até sentir gosto de sangue.
+Ele me segura pelo cotovelo com uma delicadeza que eu não esperava e me guia pelo caminho de pedras. Sinto o cheiro dele, que não mudou em trinta anos: lã molhada, porco e fumaça. E sobe pelo meu peito uma onda de amor tão violenta por aquele velho que preciso morder o lado de dentro da bochecha até sentir gosto de sangue.
 
 ---
 
@@ -40,47 +40,41 @@ Conto sem querer.
 
 Sessenta.
 
-Antes havia mil. Eu sei porque contei, na véspera da partida, com o Eumeu do lado, ele dizendo os números de cabeça e eu conferindo na tábua. Mil e doze, entre porcas, varrões e leitões. Uma riqueza que alimentava a ilha inteira num inverno ruim.
+Antes havia mil. Contei, na véspera da partida, com o Eumeu do lado, ele dizendo os números de cabeça e eu conferindo na tábua. Mil e doze, entre porcas, varrões e leitões. Uma riqueza que alimentava a ilha inteira num inverno ruim.
 
 Eumeu percebe que estou contando. Desvia a cara.
 
-— Os meninos do palácio levam os melhores — diz, olhando para o chão. — Um por dia. O mais gordo. Às vezes dois, quando tem festa, e sempre tem festa. Eu separo o que a rainha manda separar para o tributo, e eles pegam o que querem do resto, e eu não conto a ela. — Faz uma pausa. — Ela já tem o que aguentar.
+— Os meninos do palácio levam os melhores — diz, olhando para o chão. — Um por dia. O mais gordo. Às vezes dois, quando tem festa, e festa tem toda noite. Eu separo o que a rainha manda separar para o tributo, e eles pegam o que querem do resto, e eu não conto a ela. — Faz uma pausa. — Ela já tem o que aguentar.
 
 Na ponta do cercado há uma cabana baixa, de teto de palha, com uma fogueira pequena estalando no meio. Pobre e limpa por dentro. Uma cama de peles num canto. Uma mesa de tábua. Um banco. Penduradas nas vigas, cestas, panelas, réstias de alho, um arco curto e um feixe de flechas.
 
 Sento no banco. Os ossos doem de um jeito que eu não sabia que ossos podiam doer.
 
-Ele me serve leite quente numa caneca de barro, pão de cevada e um pedaço de queijo, sem perguntar nada. Eu como com as mãos tremendo. O queijo é de cabra, salgado, curado em folha de figueira, e eu conheço esse gosto. É o queijo da mulher dele, que morreu de febre no ano em que eu fiz quinze anos, e que ele continua fazendo do mesmo jeito, com a mesma folha, porque ninguém nunca lhe disse que podia mudar.
+Ele me serve leite quente numa caneca de barro, pão de cevada e um pedaço de queijo, sem perguntar nada. Eu como com as mãos tremendo. O queijo é de cabra, salgado, curado em folha de figueira, e eu conheço esse gosto. É o queijo da mulher dele, que morreu de febre no ano em que eu fiz quinze anos, e que ele continua fazendo igual, na folha de figueira, porque ninguém nunca lhe disse que podia mudar.
 
 Paro de mastigar. Fico com o pedaço na boca.
 
-— Está ruim? — pergunta ele.
+— Se está ruim, a senhora cospe no fogo, que ninguém aqui vai se ofender — diz ele, desconfiado da minha cara. — A minha mulher fazia melhor. Eu faço como lembro, e a lembrança vai ficando salgada com o tempo.
 
-— Está bom. — Engulo. — Está igual.
-
-— Igual a quê?
-
-— Igual a um queijo que eu comi uma vez. Faz muito tempo.
+— Está bom. — Engulo, e a voz de velha sai mais molhada do que devia. — Uma mulher me deu um igual, quando eu era menina, numa ilha longe daqui. Eu tinha esquecido o gosto. A boca lembrou antes de mim.
 
 Ele me olha um instante a mais. Depois dá de ombros e mexe no fogo.
 
 ---
 
-— De onde vem a senhora? — pergunta, por fim, sentando diante de mim, do outro lado das brasas.
+— De onde vem a senhora? — pergunta, por fim, sentando diante de mim, do outro lado das brasas. — Que a senhora não tem cara de Same, nem de Zacinto. E fala o nosso grego com um jeito de quem aprendeu aqui e esqueceu um pedaço no caminho.
 
-— Do mar.
+— Do mar — digo. — Naufraguei. O que eu tinha ficou lá embaixo, com os peixes, e eles que façam bom proveito.
 
-É verdade, e a verdade é o único disfarce que eu sei usar sem tremer.
-
-— Naufraguei. Tudo o que eu tinha ficou lá embaixo.
+É verdade, e a verdade é o único disfarce que me deixa a mão parada.
 
 — Esta ilha está difícil para estrangeiro. — Ele balança a cabeça devagar. — Se a senhora tivesse chegado dez anos atrás, ganhava mesa na casa da rainha, cama, roupa e um barco para voltar. Era a lei aqui. A nossa rainha dizia que os deuses andam disfarçados de mendigo para ver quem é gente, e que ninguém passa fome na porta do palácio de Ítaca enquanto ela for viva.
 
-Eu disse isso. Lembro do dia. Foi para irritar um primo do meu pai que mandou enxotar uma velha do portão.
+Eu disse isso. Lembro do dia. Foi para irritar um primo do meu pai que mandou enxotar uma velha do portão, e eu sentei a velha na cadeira dele e servi o vinho dele a ela.
 
-— E agora?
+— Então eu cheguei dez anos tarde para a mesa boa — digo.
 
-— Agora a porta é deles.
+— Chegou dez anos tarde para muita coisa, mulher. — Ele cospe nas brasas. — Hoje a porta é deles. A senhora vai ver amanhã. Quem entra com fome sai com fome e com um hematoma.
 
 E conta. Sem que eu peça, como fazem os velhos quando finalmente encontram alguém que não conhece a história. Ele cutuca o fogo com uma vara de oliveira enquanto fala, e as faíscas sobem e morrem no teto de palha, e eu acompanho cada uma, porque não consigo olhar para o rosto dele.
 
@@ -96,7 +90,11 @@ Mexe no fogo.
 
 — Eu vi ela chorar uma vez. Uma só. No dia em que chegou a notícia de que todos os reis tinham voltado menos um. — A vara para no ar. — Foi aqui. Neste pátio. Ela veio a pé, sozinha, com o menino no colo, e ficou parada no meio dos porcos, olhando para nada. Eu perguntei o que a rainha queria. Ela disse que só queria ficar um pouco num lugar onde ninguém pudesse ver.
 
-— E chorou?
+Eu aperto a caneca.
+
+— Ela não é das que choram na frente dos outros — digo, sem pensar, e no mesmo instante mordo a língua, porque uma velha de lugar nenhum não tem como saber de que tipo a rainha é.
+
+Eumeu não repara. Ou repara e guarda.
 
 — Não fez barulho. — Ele olha as brasas. — Ficou duas horas de pé, com o menino dormindo no peito, e as lágrimas descendo, e ela nem limpava. Deixava descer. Depois enxugou a cara na manga, me agradeceu, e foi embora. E no dia seguinte desceu para contar os porcos como se nada.
 
@@ -120,7 +118,7 @@ Quando abro, ele está me servindo mais leite.
 
 Tento que saia casual. Uma velha curiosa, puxando conversa. Não sai.
 
-Eumeu sorri pela primeira vez de verdade. Os dentes que sobraram são poucos e marrons, e o sorriso fica enorme na cara dele.
+Eumeu sorri pela primeira vez. Os dentes que sobraram são poucos e marrons, e o sorriso fica enorme na cara dele.
 
 — O Timóteo. — Diz o nome como quem prova mel. — Vem aqui duas, três vezes na lua. Foge do palácio quando a mãe não está olhando, ou quando está olhando e finge que não. Sobe o morro sozinho, com aquele arco nas costas.
 
@@ -130,11 +128,11 @@ Aponta para as vigas. Para o arco curto pendurado ali.
 
 Agarro a caneca com as duas mãos. O barro está quente demais e eu não solto.
 
-— Ele atira bem?
+— Um menino que dorme com o arco deve acertar uma mosca em pé num boi — digo, e a voz falha no fim, e eu disfarço tossindo.
 
-— Ele atira torto. — Eumeu ri, agora de verdade. — Sempre um palmo para a esquerda. Puxa a corda com o cotovelo alto demais e fecha o olho errado. Eu falo, falo, e ele não ouve. Diz que a mãe dele atirava assim e acertava.
+— Acerta o boi, quando muito. — Eumeu ri, agora com os olhos. — Atira um palmo para a esquerda, toda flecha, como se tivesse um ímã do lado. Puxa a corda com o cotovelo alto demais e fecha o olho errado. Eu falo, falo, e ele não ouve. Diz que a mãe dele atirava assim e acertava, e que se servia para ela, serve para ele.
 
-— E acertava?
+— E a mãe acertava, ou o menino inventou?
 
 Ele me olha, surpreso com a pergunta.
 
@@ -148,9 +146,9 @@ Abaixo a cabeça. Deixo o cabelo de velha cair na frente do rosto.
 
 — A senhora está bem? — pergunta ele.
 
-— A fumaça — digo.
+— É a fumaça. A sua cabana tem mais fumaça do que telhado.
 
-— A fumaça. — Ele assente. — Esta cabana tem muita fumaça. A rainha também dizia isso.
+— Tem, tem. — Ele assente devagar, olhando para mim de lado. — A rainha dizia a mesma coisa quando chorava aqui escondida da mãe dela. Engraçado as mulheres que choram na minha cabana. Nenhuma admite.
 
 ---
 
@@ -158,11 +156,11 @@ Ele insiste em cuidar das minhas mãos.
 
 Vê os trapos amarrados quando eu pego o pão, e vê o sangue seco nas bordas, e faz um barulho com a língua, e antes que eu possa recusar já está com uma bacia de água morna entre os joelhos e um pote de banha de porco com sal.
 
-— Mostra.
+— Mostra essas mãos.
 
-— Não precisa.
+— São mãos de velha, não valem a banha.
 
-— Mostra, mulher. Eu cuido de porco há cinquenta anos. Uma mão de velha não é diferente de uma pata.
+— Mostra, mulher. Eu cuido de porco há cinquenta anos, e uma mão de velha não é diferente de uma pata, só reclama mais.
 
 Estendo a esquerda. A que não tem o anel.
 
@@ -170,9 +168,9 @@ Ele desenrola o trapo devagar. Por baixo, as feridas do machado, que abriram de 
 
 — Agora a outra.
 
-— Essa está boa.
+— Essa a mulher do mar já cuidou, ela tinha mais jeito que o senhor.
 
-— Está sangrando o trapo, mulher. Dá aqui.
+— Está sangrando o trapo, mulher. A sua mulher do mar não sabia amarrar nó. Dá aqui.
 
 Não tenho escolha. Estendo a direita.
 
@@ -202,11 +200,11 @@ Ele passa a banha por cima do trapo, mesmo assim, por teimosia, e amarra uma tir
 
 — Ela tem alguém? — pergunto mais tarde, quando o fogo já baixou e ele está tirando as botas. — A rainha. Amigas. Conselheiras. Alguém que fique com ela.
 
-Não sei por que pergunto. Sei. Não devia.
+A pergunta sai antes do juízo, como sai a mão para segurar uma taça que cai.
 
 — Tem a velha Euricleia, que não sai de perto. E o menino, claro. — Ele puxa a segunda bota com um gemido. — E tem uma mulher de Same. Uma viúva. Vem todo mês trazer cartas de comércio e fica uns dias no palácio.
 
-— Uma mulher.
+— Uma viúva rica que atravessa o canal todo mês por causa de carta de comércio — digo. — Deve gostar muito de comércio.
 
 — Nísia, se não me engano. — Ele coloca as botas lado a lado junto ao fogo, alinhadas, como um soldado. — Essa é diferente. Dizem que também é pretendente, mas não parece. Nunca pediu a mão da rainha em voz alta. Nunca bebeu com os outros. Fica no canto, quieta, e a rainha...
 
@@ -218,21 +216,21 @@ Fico muito quieta.
 
 Lá dentro, muito longe, alguma coisa vira a cabeça. Uma coisa que eu conheço bem, que já mordeu outras vezes, num banquete, em Ítaca, quando uma mulher de Zacinto olhou a Anne tempo demais e foi a Anne quem atirou a taça, e não eu, porque eu fui mais rápida em fingir que não tinha visto.
 
-— É bom que ela tenha alguém — digo.
+— É bom que ela tenha alguém para respirar perto — digo, e a voz quase não treme.
 
-A voz quase não treme.
+— A senhora fala como quem engoliu um espinho de peixe. — Ele me olha por cima das botas. — Conhecia a rainha, por acaso?
 
-— Ninguém devia ficar sozinho — concorda ele.
+— Conheci uma rainha parecida. Faz muito tempo. Também respirava mal perto das pessoas erradas.
 
 Me dá uma manta grossa de lã e diz que eu durma ali, junto ao fogo. Que amanhã me leva ao palácio com o tributo, se eu quiser comer resto de mesa. E que não espere muito deles, que são lobos. Que ele, se fosse eu, dormia mais uma noite e fugia de manhã.
 
 Aceito a manta. Deito no chão perto das brasas, enrolada na lã, com o rosto virado para o fogo. Ouço o Eumeu se ajeitar na cama de peles, bufar, murmurar uma oração a Hermes, que é o deus dos porqueiros e dos ladrões e ele nunca soube muito bem por quê. Ouço os cachorros voltando a se acomodar lá fora, um a um, com um suspiro de cada.
 
-E o que eu escuto, no meio de tudo, é o nome da outra. Dito com aquela hesitação carinhosa de um velho que não sabe o que significa o que está dizendo.
+E o que eu escuto, por cima dos roncos e dos suspiros dos cães, é o nome da outra. Dito com aquela hesitação carinhosa de um velho que não sabe o que significa o que está dizendo.
 
 *Nísia.*
 
-Não tenho o direito de sentir nada. Eu sei. Sete anos na cama de uma ninfa me tiraram o direito de perguntar a qualquer pessoa, por qualquer motivo, quem fica ao lado da minha mulher.
+Não tenho o direito de sentir nada. Sete anos na cama de uma ninfa me tiraram o direito de perguntar a qualquer pessoa, por qualquer motivo, quem fica ao lado da minha mulher.
 
 E mesmo assim o corpo não obedece. O corpo aperta a manta com os dois punhos. Um calor amargo sobe do estômago até o fundo da língua. E eu, com a cara enfiada na lã que cheira a porco, me pergunto, sem som, a pergunta mais baixa que já fiz na vida.
 
@@ -240,7 +238,55 @@ E mesmo assim o corpo não obedece. O corpo aperta a manta com os dois punhos. U
 
 ---
 
-Não durmo. E o que vem, à medida que a cabana silencia, não é ela.
+No meio da noite, a porca pare.
+
+Eu ouço antes do Eumeu. Um gemido baixo, comprido, de bicho que não sabe o que está acontecendo com o próprio corpo, vindo do chiqueiro mais perto da cabana. O velho ronca. Eu fico deitada um tempo, dizendo a mim mesma que não é da minha conta, que uma velha de lugar nenhum não se mete em porca alheia. O gemido vira grito.
+
+Levanto. Pego um tição do fogo. Saio.
+
+É uma porca grande, malhada, deitada de lado na palha, com a barriga subindo e descendo como um fole. Já saíram dois leitões, roxos, molhados, que se arrastam cegos procurando a teta. E o terceiro está preso. Vejo o focinho e uma pata só. A pata errada.
+
+Eu não penso. As mãos já sabem. Aos onze anos eu ajudei o Eumeu a tirar um leitão virado da Bocuda, no inverno da neve, e ele me disse para enfiar a mão sem medo porque a mão de menina era fina e a dele não cabia. Ajoelho na palha. Enrolo a manga. Passo banha no braço, a banha que ele usou nas minhas mãos, ainda no pote em cima do muro. E enfio.
+
+O calor lá dentro é enorme. Molhado, apertado, vivo. A porca grita e tenta levantar, e eu ponho o joelho no lombo dela e falo baixinho, como ele falava, o nome que me vem:
+
+— Calma, Rainha Velha. Calma, minha velha. Eu sei que dói.
+
+Acho a outra pata. Dobro. Puxo devagar, na hora em que a barriga aperta, e o leitão sai de uma vez, escorregando para a palha, enrolado na bolsa. Rasgo a bolsa com a unha. Limpo o focinho com o dedo. Ele não respira. Pego pelas patas de trás, balanço, uma vez, duas, como o Eumeu me ensinou, e ele espirra e grita, e eu caio sentada na palha com o braço sujo até o ombro, rindo.
+
+— Rainha Velha.
+
+A voz vem de trás. Eu congelo.
+
+O Eumeu está na porta do chiqueiro, de camisa de dormir e pés descalços, com uma lanterna de barro na mão. Não sei há quanto tempo está ali.
+
+— A senhora chamou a porca de Rainha Velha — diz ele, devagar.
+
+O sangue me sobe ao rosto debaixo da pele emprestada. Procuro a mentira. Ela demora. Demora tanto que eu ouço os leitões mamando, três, quatro.
+
+— Toda porca grande é rainha velha em algum lugar — digo, afinal. — Na minha terra a gente chama assim as que já pariram muito.
+
+Ele não se mexe. Os olhos pequenos e pretos ficam na minha cara, depois no meu braço sujo, depois na mão direita, a do trapo, que eu escondi atrás do corpo sem perceber.
+
+— A Rainha Velha morreu faz doze anos — diz ele. — Essa aí é neta dela. Chama Pintada. Mas tem o lombo da avó, isso tem. — Ele entra. Pendura a lanterna num prego. Se ajoelha do meu lado na palha, com um gemido nos joelhos, e passa a mão no focinho do leitão que eu tirei. — A senhora tem mão de quem já fez isso muitas vezes.
+
+— Fiz algumas. Numa ilha com mais porco que gente.
+
+— Ah. Uma ilha. — Ele fica quieto. Depois, sem me olhar: — A rainha Emily também fazia isso. Aos onze anos. Enfiava o braço até o ombro e saía rindo, toda suja, e a mãe dela gritava da janela que princesa não mexia em porca. E ela gritava de volta que princesa que não mexe em porca não come presunto.
+
+Eu não respondo. Não consigo.
+
+Ficamos os dois ajoelhados na palha até o último leitão sair, o sétimo, sozinho, sem ajuda. Ele conta em voz baixa. Eu conto calada. Damos o mesmo número.
+
+Quando voltamos para a cabana ele lava o meu braço numa bacia sem dizer nada, e eu deixo, e ele não toca na mão do trapo. Antes de deitar, de costas para mim, ele diz para a parede:
+
+— Na lua nova a gente olha essa gangrena, mulher. Não esqueça.
+
+E eu fico acordada sabendo que ele não esqueceu de nada.
+
+---
+
+Não durmo de novo. E o que vem, à medida que a cabana silencia, não é ela.
 
 É Troia.
 
@@ -272,7 +318,7 @@ O menino me olha por cima do ombro da mãe, com os olhos enormes, pretos, e uma 
 
 — Não vou te machucar — digo, em grego, e depois em troiano, que aprendi em dois anos de cerco. — Eu juro.
 
-Não sei por que digo. Não sei se é mentira.
+Digo sem saber se é promessa ou mentira.
 
 Sei que alguma coisa nele, o queixo, o jeito de fechar a mão em volta do colar da mãe, me lembra o meu filho. E sei que, se eu o levar dali, sou a rainha de Ítaca que desobedeceu à assembleia, que desafiou Agamêmnon, que escondeu no próprio navio o herdeiro de uma cidade que todos juraram apagar.
 
@@ -282,13 +328,13 @@ Não é uma decisão. É um segundo.
 
 Não o levo.
 
-Essa é a parte que eu conto para mim mesma como se tivesse sido escolha. Não levei porque não havia onde esconder. Porque os outros reis tinham olhos em todos os cantos. Porque um gesto de piedade custaria a minha cabeça e talvez a do meu filho. Tudo verdade. Tudo um pouco mentira.
+Essa é a parte que eu conto para mim mesma como se tivesse sido escolha. Não levei porque não havia onde esconder. Porque os outros reis tinham olhos em todos os cantos. Porque um gesto de piedade custaria a minha cabeça e talvez a do meu filho. Verdade, cada razão. E cada uma, também, um pouco mentira.
 
 A verdade inteira é que eu fiquei parada. De joelhos, com a mão estendida, olhando aquela criança olhar para mim. E que em algum momento Diomedes apareceu na porta com dois soldados e disse, sem tom nenhum:
 
 — Vamos.
 
-Não impedi. Não segurei o menino. Não gritei.
+Não impedi. Fiquei com a mão estendida no ar, segurando nada, e a boca fechada.
 
 Andrômaca gritou por mim. Se jogou em cima do filho como um bicho, e os soldados a arrancaram à força, e eu fiquei de joelhos assistindo como quem assiste a uma peça, com as pernas inúteis e a boca com gosto de ferrugem.
 
@@ -306,7 +352,7 @@ Depois da queda, parei. Não por falta de papiro, de tinta, de mensageiro. Por f
 
 Como escrever à Anne depois daquilo? *Querida, estou bem, derrubamos a cidade e eu vi o filho do inimigo cair de uma muralha. Mande um beijo ao nosso menino.*
 
-Fiquei calada. Deixei o silêncio crescer. E o silêncio, como tudo o que a gente alimenta, virou outra coisa.
+Fiquei calada. Deixei o silêncio crescer. E o silêncio, como um bicho que a gente alimenta escondido, cresceu e virou outra coisa.
 
 Acho que, em algum momento, parei de querer ser encontrada.
 
@@ -334,7 +380,7 @@ Fico olhando muito tempo. E alguma coisa dentro de mim, que andou quieta desde q
 
 Não.
 
-Eu sei que não. Conheço a Anne. A Anne não acende lamparina para ninguém. Acende por teimosia, por ordem, por orgulho, por uma necessidade que não explicaria nem sob tortura.
+Conheço a Anne. A Anne não acende lamparina para ninguém. Acende por teimosia, por ordem, por orgulho, por uma necessidade que não explicaria nem sob tortura.
 
 Mas a Anne que eu conheço é a de dez anos atrás. E dez anos são tempo de sobra para fazer de uma mulher outra pessoa. Eu, por exemplo. Eu sou outra pessoa. Eu tenho cara de velha e gosto de cedro na boca.
 
@@ -342,9 +388,9 @@ Mando a voz calar.
 
 Desço o morro devagar, com o cajado, a perna, a velhice que não é minha e a culpa que é. Quando chego ao cercado, o Eumeu já está de pé, fervendo leite num caldeirão amassado, e me olha com a bondade cansada de quem nunca soube ser outra coisa.
 
-— Está melhor, mulher?
+— Dormiu, mulher? Tem cara de quem passou a noite brigando com fantasma.
 
-— Estou.
+— Briguei com vários. Ganhei de dois.
 
 E digo mais uma coisa. Uma coisa que quase é verdade. Que eu não dizia havia dez anos.
 
