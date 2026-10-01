@@ -244,7 +244,7 @@ Uma folha de oliveira. Seca. Da nossa árvore.
 
 E a túnica cheira.
 
-Nada de cheiro de guardado ou de baú. Cheira a mel de tomilho e a lã limpa e, por baixo, a uma coisa morna, de pele, que só tem num lugar no mundo: no lado esquerdo de uma cama com um tronco de oliveira no meio. Ela não guardou esta túnica no baú das minhas coisas. Ela guardou no dela. Junto da roupa dela. Dez anos.
+Nada de cheiro de guardado ou de baú. Cheira a lavanda e a lã limpa e, por baixo, a uma coisa morna, de pele, que só tem num lugar no mundo: no lado esquerdo de uma cama com um tronco de oliveira no meio. Ela não guardou esta túnica no baú das minhas coisas. Ela guardou no dela. Junto da roupa dela. Dez anos.
 
 Ou dormiu com ela.
 

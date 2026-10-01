@@ -418,7 +418,7 @@ Ponho a mão no pescoço sem querer. Debaixo dos dedos, a pele ainda dói, em tr
 
 O sangue me sobe inteiro para a cara.
 
-— Não, pai. Isso é da que cheira a mel de tomilho.
+— Não, pai. Isso é da que cheira a lavanda.
 
 O velho solta uma risada rouca, de serrote, que acorda o cachorro.
 
@@ -512,7 +512,7 @@ Ali, um palmo acima do meu ombro, a casca está lisa. Gasta. Polida como o corri
 
 Encosto o meu ombro no mesmo lugar.
 
-Não cabe igual. Ela é mais alta, como ela me disse no molhe com aquele queixo, e o meu ombro fica um palmo abaixo do lugar gasto. Encosto a testa na casca lisa, onde o ombro dela ficava, e respiro. A pereira não cheira a ela. Cheira a pereira. Mas eu fecho os olhos e ponho o cheiro, o mel de tomilho, a lã, o suor de raiva, e de repente ela está ali, de costas para mim, encostada no tronco, chorando baixinho, e eu chego por trás.
+Não cabe igual. Ela é mais alta, como ela me disse no molhe com aquele queixo, e o meu ombro fica um palmo abaixo do lugar gasto. Encosto a testa na casca lisa, onde o ombro dela ficava, e respiro. A pereira não cheira a ela. Cheira a pereira. Mas eu fecho os olhos e ponho o cheiro, a lavanda, a lã, o suor de raiva, e de repente ela está ali, de costas para mim, encostada no tronco, chorando baixinho, e eu chego por trás.
 
 Não para consolar. Eu nunca soube consolar.
 

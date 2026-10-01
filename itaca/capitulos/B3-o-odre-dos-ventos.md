@@ -24,7 +24,7 @@ O pior não foi o tapa.
 
 O pior foi antes, quando ela chegou a um passo de mim e eu senti o cheiro.
 
-Mel de tomilho no cabelo. Lã limpa. Um suor fino, de raiva, que subia do decote dela e que eu conheço desde a primeira briga, no segundo mês, quando ela me jogou um pente na cara porque eu tinha vendido um cavalo sem perguntar. Aquele cheiro entrou em mim pela boca, que eu estava respirando pela boca para não chorar, e desceu. Quando ela levantou a voz e disse *eu estou cansada de engolir*, eu olhei a boca dela dizendo *engolir*, e o corpo, esse corpo que acabou de matar cento e sete homens, que dorme mal, que não sente mais o ombro, ficou mole entre as pernas como o de uma menina atrás de uma coluna.
+Lavanda no cabelo. Lã limpa. Um suor fino, de raiva, que subia do decote dela e que eu conheço desde a primeira briga, no segundo mês, quando ela me jogou um pente na cara porque eu tinha vendido um cavalo sem perguntar. Aquele cheiro entrou em mim pela boca, que eu estava respirando pela boca para não chorar, e desceu. Quando ela levantou a voz e disse *eu estou cansada de engolir*, eu olhei a boca dela dizendo *engolir*, e o corpo, esse corpo que acabou de matar cento e sete homens, que dorme mal, que não sente mais o ombro, ficou mole entre as pernas como o de uma menina atrás de uma coluna.
 
 Eu tinha sangue de homem nas unhas e queria pôr a mão dentro do vestido dela.
 
