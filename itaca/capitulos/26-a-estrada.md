@@ -4,326 +4,52 @@
 
 Na terceira noite de estrada, eu já tinha decidido matá-la duas vezes.
 
-Não é exagero. Sou uma mulher que conta, e contei: a primeira vez foi no segundo dia, à tarde, num desfiladeiro de pedra onde ela insistiu em tomar a trilha da esquerda contra a minha opinião, e a trilha acabou num precipício, e voltamos duas horas. A segunda foi naquela mesma noite, ao redor da fogueira, quando ela me perguntou, com um ar de inocência que só pode ser fingido, se eu tinha certeza de que a água do odre era potável. Eu tinha enchido o odre. Eu, com as minhas mãos, numa fonte limpa, a menos de meia légua do acampamento. Respondi que sim. Ela bebeu um gole, franziu o nariz e disse que tinha gosto de bronze. Eu respondi que o gosto era do odre, que era de bronze, que o odre era dela. Ela disse que o odre era da cozinha. Eu disse que, nesse caso, o problema era da cozinha. Ficamos as duas ali, uma de cada lado do fogo, olhando-nos como duas cabras que se encontram numa ponte.
-
-Foi a primeira vez que rimos. Só que não rimos: bufamos. Cada uma virou o rosto para o lado oposto, escondendo o canto da boca.
-
-Essa é a nossa maneira de fazer as pazes. Ainda não sei se é boa.
+Não é exagero. Sou uma mulher que conta, e contei: a primeira vez foi no segundo dia, à tarde, num desfiladeiro de pedra onde ela insistiu em tomar a trilha da esquerda contra a minha opinião, e a trilha acabou num precipício, e voltamos duas horas. A segunda foi naquela mesma noite, ao redor da fogueira, quando ela me perguntou, com um ar de inocência que só pode ser fingido, se eu tinha certeza de que a água do odre era potável. Eu tinha enchido o odre. Eu, com as minhas mãos, numa fonte limpa, a menos de meia légua do acampamento. Respondi que sim. Ela bebeu um gole, franziu o nariz e disse que tinha gosto de bronze. Eu disse que o gosto era do odre, que era de bronze, que o odre era dela; ela disse que era da cozinha; eu disse que então o problema era da cozinha, e ficamos as duas ali, uma de cada lado do fogo, olhando-nos como duas cabras que se encontram numa ponte. Foi a primeira vez que rimos. Só que não rimos: bufamos, cada uma virando o rosto para o lado oposto, escondendo o canto da boca. Essa é a nossa maneira de fazer as pazes. Ainda não sei se é boa.
 
 ---
 
-Partimos de Ítaca ao amanhecer, num barco de pesca emprestado por um dos homens de Eumeu, com o remo atravessado no fundo, enrolado em pano, como um cadáver. O Timóteo nos acompanhou até o cais. Não chorou. Ficou de pé na pedra, com Fido ao lado, de camisa limpa, os cabelos penteados, o queixo erguido, e quando o barco se afastou, levantou a mão numa saudação seca, militar, que me fez rir e chorar ao mesmo tempo. A Euricleia, atrás dele, enxugava os olhos com a ponta do avental. O Eumeu tinha o gorro na mão. O Filécio, de braços cruzados, fingia olhar as gaivotas.
+Partimos de Ítaca ao amanhecer, num barco de pesca emprestado por um dos homens de Eumeu, com o remo atravessado no fundo, enrolado em pano, como um cadáver. O Timóteo nos acompanhou ao cais. Não chorou. Ficou de pé na pedra, com Fido ao lado, de camisa limpa, o cabelo penteado, o queixo erguido, e quando o barco se afastou levantou a mão numa saudação seca, militar, que me fez rir e chorar ao mesmo tempo. Euricleia, atrás dele, enxugava os olhos na ponta do avental, Eumeu tinha o gorro na mão e Filécio, de braços cruzados, fingia olhar as gaivotas. Emily me disse, do leme, que ele ficaria bem, que puxara de mim; eu disse que puxara dela; ela disse que dos dois lados; eu disse que pior. Senti o sorriso dela sem olhar, pelo jeito como o ar mudou. Atravessamos o canal em meio dia, com vento de popa, e desembarcamos numa baía deserta do continente que os pescadores chamam Porto do Louco, e escondemos o barco entre as pedras, e ela pôs o remo ao ombro, e eu prendi as alças da trouxa, e seguimos a pé, para o interior, por uma trilha de cabras que sobe entre rochedos e pinheiros, sem outro plano além da direção: *para longe do mar.*
 
-— Ele vai ficar bem — disse a Emily, ao meu lado, no banco do barco, com o leme na mão.
-
-— Eu sei.
-
-— Ele puxou de você.
-
-— Puxou de você.
-
-— Dos dois lados.
-
-— Pior.
-
-Ela sorriu. Senti o sorriso sem olhar, pelo jeito como o ar mudou.
-
-Atravessamos o canal em meio dia, com vento de popa, e desembarcamos numa baía deserta do continente, num lugar que os pescadores chamam de Porto do Louco. Escondemos o barco entre as pedras. Ela pôs o remo ao ombro. Eu prendi as alças da trouxa. E seguimos a pé, para o interior, por uma trilha de cabras que sobe entre rochedos e pinheiros, sem nenhum plano além da direção: *para longe do mar.*
+Caminhar com ela é uma forma de tortura que eu não conhecia. Não é a caminhada, que aguento, sou filha de espartanos, criada a pé, e estas pernas atravessaram mais colinas do que muito soldado. É o jeito dela. A maneira como anda, com o remo no ombro, sem pressa, olhando o horizonte, cantarolando baixinho uma canção de marinheiro que me irrita porque é a mesma que ela cantava no primeiro ano, quando ainda achava que eu ia gostar. A maneira como para, sem aviso, diante de uma flor, uma pedra, uma nuvem, com um interesse quase infantil que me desespera. A maneira como nunca pergunta o caminho, porque acha que sabe, e quando não sabe finge que sabe até o fim. Nos primeiros dois dias brigamos por tudo: pelo caminho, pela comida, pelo horário, pela água, pelo abrigo; brigamos porque ela acorda cedo demais e eu tarde demais, porque ela come como soldado e eu como rainha, porque ela quer subir a colina pelo lado íngreme e eu pelo suave, e ela diz que a sensatez é o vício dos covardes, e eu que a pressa é o vício dos tolos, e ficamos as duas no meio da trilha, arfando, vermelhas, com vontade de bater uma na outra. Ninguém bate. Ela ri. Eu ranjo os dentes. E seguimos. Acho que em algum momento entendi o que fazíamos: não era briga de verdade, era treino, aprendíamos de novo a discordar sem que o mundo acabasse, e cada implicância, cada bufo irritado era um teste do chão, uma forma de perguntar sem dizer *você ainda está aqui? E se eu for chata, você fica? E se eu for injusta? E se eu estiver errada?* Ela ficava, todas as vezes, e eu, ranzinza, ofendida, cansada, ficava também.
 
 ---
 
-Caminhar com ela é uma forma de tortura que eu não conhecia.
+No quarto dia chegamos a um vale largo, cortado por um rio, com uma aldeia de pastores na beira da água, a primeira povoação que víamos em três dias: uma dúzia de casas de pedra cobertas de colmo em volta de uma praça de terra batida, com um poço no centro e um velho plátano, cães, cabras, crianças descalças olhando de longe, uma mulher de xale escuro parada à porta de uma casa, de braços cruzados, com a expressão de quem já viu muita coisa e não se espanta. Emily disse que pediríamos pousada. Eu disse que era melhor acampar, e ela disse que eu estava com bolhas, e eu perguntei como sabia, e ela disse que eu mancava, e eu disse que andava com dignidade, e ela, olhando de lado, com o jeito de quem já ganhou: "Está mancando com dignidade. Vamos pedir pousada."
 
-Não é a caminhada, que aguento. Sou filha de espartanos, criada a pé, e estas pernas já atravessaram mais colinas do que muito soldado. É ela. O jeito dela. A maneira como anda, com o remo no ombro, sem pressa, olhando o horizonte, cantarolando baixinho uma canção de marinheiro que eu reconheço e que me irrita, porque é a mesma que ela cantava no primeiro ano, quando ainda achava que eu ia gostar. A maneira como para, de vez em quando, sem aviso, para olhar uma flor, uma pedra, uma nuvem, com um interesse quase infantil que me desespera. A maneira como nunca, nunca, pergunta o caminho, porque acha que sabe, e quando não sabe, finge que sabe, até o fim.
+A mulher se chamava Dorcas, tinha uns quarenta e cinco anos e uma casa de dois cômodos, limpa, cheirando a ervas secas e fumaça de lenha, e olhou o remo de Emily com desconfiança, depois Emily, depois eu, e vi nos olhos dela o cálculo rápido de quem pesa uma situação. Disse que éramos duas viajantes, uma com um pau de barco, que nunca vira mar, e a outra com os pés em sangue, e perguntou se vínhamos de longe. De uma ilha, respondeu Emily, uma pequena. "Ah. Uma pequena." Levou-nos a um quarto nos fundos, com duas camas de palha, trouxe água quente, um pano e um pote de unguento, e ajoelhou-se diante de mim, sem pedir licença, e tirou as minhas sandálias, e olhou as bolhas, e estalou a língua. Disse que eu tinha pés de quem nunca parou. Agradeci, e ela disse que não era elogio, era verdade, e levantou os olhos, pretos, vivos, de uma franqueza desarmante: a outra, parece, para demais; eu, nunca; as duas deviam dar uma média. Não respondi. Emily, na porta, abafou um riso.
 
-Nos primeiros dois dias, brigamos por tudo. Pelo caminho, pela comida, pelo horário, pela água, pelo abrigo. Brigamos porque ela acorda cedo demais e eu acordo tarde demais. Brigamos porque ela come como um soldado e eu como uma rainha. Brigamos porque ela quer subir a colina pelo lado íngreme e eu, pelo suave, e ela diz que o íngreme é mais rápido, e eu digo que o suave é mais sensato, e ela diz que a sensatez é o vício dos covardes, e eu digo que a pressa é o vício dos tolos, e ficamos as duas ali, no meio da trilha, arfando, vermelhas, com a vontade de bater uma na outra.
-
-Ninguém bate. Ela ri. Eu ranjo os dentes. E seguimos.
-
-Acho que, em algum momento, entendi o que estávamos fazendo. Não era briga de verdade. Era treino. Estávamos aprendendo de novo a discordar sem que o mundo acabasse. Cada discussão boba, cada implicância, cada bufo irritado era um teste do chão. Uma forma de perguntar, sem dizer: *você ainda está aqui? E se eu for chata, você fica? E se eu for injusta? E se eu estiver errada?*
-
-Ela ficava. Todas as vezes.
-
-E eu, ranzinza, ofendida, cansada, ficava também.
+Jantamos com a família: o marido, pastor silencioso de mãos enormes, três filhos pequenos que nos olharam com a curiosidade cerimoniosa das crianças do campo, e uma velha, a mãe do pastor, que comeu sem dizer nada com os olhos fixos em Emily. Queijo, pão preto, sopa de lentilhas, carne de cabra, vinho de cevada, grosso e ácido. Dorcas falava sem parar, da colheita, do rio, do tempo, de um primo que foi para a cidade e nunca voltou. Depois os homens foram fumar lá fora, as crianças dormiram, a velha adormeceu num banco junto ao fogo, e ficamos as três na cozinha ao redor de uma mesa gasta com uma jarra quase vazia, e foi nesse momento que vi o que não quis ver: Dorcas olhava para Emily. Não do jeito de quem olha uma hóspede, do jeito de quem olha uma mulher, um olhar comprido, lento, que pousava nos ombros dela, no pescoço, na cicatriz do queixo, nas mãos calejadas, um olhar que eu conhecia, porque já o recebera de uma mulher de trança e olhos cor de mel. E Emily, a minha Emily, sorria. Um sorriso pequeno, tímido, polido, o sorriso de quem não quer ofender, mas era um sorriso, e ela respondia, e contava histórias, e ria, e gesticulava, e eu, sentada ao lado, com a caneca de vinho na mão, sentia crescer na garganta uma coisa quente, amarga, ácida. Dorcas disse que mulheres como ela não apareciam por ali, mulheres que carregam remos e cicatrizes; Emily riu, sem graça, olhou para mim de relance, desviou os olhos, sorriu de novo para a mesa; a mão de Dorcas, que estava sobre o tampo, deslizou um palmo em direção à dela. Levantei-me. "Com licença. Preciso de ar."
 
 ---
 
-No quarto dia, chegamos a um vale largo, cortado por um rio, com uma aldeia de pastores na beira da água.
+O ar lá fora é frio e cheira a pinho e a fumaça. Fico sentada nos degraus de pedra da entrada, os braços em volta dos joelhos, olhando as estrelas. Conto-as. Perco a conta. Começo de novo. A raiva sobe e desce em ondas, e sei que é injusta, sei que ela só foi educada, sei que não tenho direito, mas o corpo não obedece à razão, nunca obedeceu, e a cada vez que fecho os olhos vejo o sorriso tímido, polido, e a mão de Dorcas avançando no tampo da mesa. *Você tem ciúme*, diz uma voz dentro de mim, calma, clínica, a voz que sempre me diz a verdade nas horas erradas. *Não tenho o direito. Não é sobre direito.* A porta range atrás de mim e ouço passos que hesitam, e uma sombra cai sobre os degraus, e sei quem é sem olhar. Ela senta a um palmo, sem me tocar, e fica em silêncio um longo tempo. O vento sopra. Uma coruja pia numa árvore distante.
 
-Era a primeira povoação que víamos em três dias. Uma dúzia de casas de pedra, cobertas de colmo, agrupadas em volta de uma praça de terra batida, com um poço no centro e um velho plátano que dava sombra. Cães. Cabras. Crianças descalças, olhando de longe. Uma mulher de xale escuro, parada à porta de uma casa, com os braços cruzados e uma expressão de quem já viu muita coisa e não se espanta.
+"Eu não fiz nada", diz, por fim, baixinho. "Ela só estava sendo gentil. Eu também. Mas vi a sua cara quando você se levantou, e não preciso que me explique, porque eu faria o mesmo, e já fiz, em outras casas, com outras mulheres que olhavam você mais tempo do que uma hóspede olha uma anfitriã. Só quero que saiba que eu não estava ali. Estava sorrindo para a mesa, porque não sei o que fazer com a cara quando uma mulher me olha assim. Aprendi a ficar educada, e a educação, às vezes, parece outra coisa."
 
-— Vamos pedir pousada — disse a Emily.
+"Eu sei que você não fez nada", respondo, e a voz me escapa, sobe, quase grito, e a baixo depressa, olhando por cima do ombro. "Sei que ela só estava sendo gentil, e que a mão dela avançou no tampo porque estava sozinha, como eu estive, como todas as mulheres desta estrada parecem estar. Mas eu odeio, Emily. Odeio quando uma mulher te olha, odeio quando você sorri, odeio que tenha essa cara de quem não sabe o que faz. E odeio mais ainda não ter o direito, porque você poderia me responder a qualquer momento com duas palavras, *e a Nísia?*, e eu não teria resposta. Estou sentada aqui há uma hora tentando achar uma, e só acho raiva e vergonha, na mesma proporção, como se tivessem sido misturadas por um padeiro mau."
 
-— Não é melhor acampar?
+"Eu não ia dizer isso", responde ela, sem sorrir. "Mas posso dizer uma coisa que talvez ajude e talvez piore. A Nísia e a Dorcas não são a mesma coisa. A Nísia te amava, e você a deixou amar, e isso é tudo o que existe entre nós duas e o que fizemos às outras. A Dorcas só estava só. Olhei para ela e vi o que Calipso deve ter visto quando me viu: uma mulher que não sabe como pedir. E eu, que passei dez anos tentando ser outra pessoa, não consegui. Continuo sendo uma só coisa. Quero uma pessoa, e essa pessoa está sentada ao meu lado, com bolhas nos pés e ciúme no rosto, e nunca, em vinte anos, deixou de me fazer falta." Pergunto se ensaiou. "Um pouco. Mas é verdade mesmo assim."
 
-— Você está com bolhas.
-
-— Como sabe?
-
-— Está mancando.
-
-— Não estou.
-
-— Anne.
-
-— Estou andando com dignidade.
-
-— Está mancando com dignidade. — Ela sorriu, e me olhou de lado, com aquele jeito de quem já ganhou. — Vamos pedir pousada.
-
-Pedimos.
-
-A mulher de xale preto se chamava Dorcas, tinha uns quarenta e cinco anos, e uma casa de dois cômodos, limpa, cheirando a ervas secas e a fumaça de lenha. Olhou o remo de Emily com um ar desconfiado, depois olhou Emily, depois olhou para mim, e eu vi nos olhos dela o cálculo rápido de quem pesa uma situação.
-
-— Duas viajantes — disse. — Uma com um pau de barco, que nunca viu mar, e a outra com os pés em sangue. Vieram de longe?
-
-— De uma ilha — respondeu Emily.
-
-— Que ilha?
-
-— Uma pequena.
-
-— Ah. — Ela sorriu. — Uma pequena.
-
-Levou-nos a um quarto nos fundos, com duas camas de palha. Trouxe água quente, um pano, um pote de unguento. Ajoelhou-se diante de mim, sem pedir licença, e tirou minhas sandálias. Olhou as bolhas. Estalou a língua.
-
-— A senhora anda demais — disse. — Tem pés de quem nunca parou.
-
-— Muito obrigada.
-
-— Não é elogio.
-
-— Eu sei.
-
-— É a verdade. — Levantou os olhos, e eles eram pretos, vivos, de uma franqueza desarmante. — A outra parece que para demais. A senhora, nunca. Vocês duas deviam dar uma média.
-
-Não respondi. Emily, na porta, abafou um riso.
+Solto o ar devagar. A raiva vai saindo, pouco a pouco, como água de bacia rachada, e fica o cansaço, e fica a ternura ridícula, e fica o desejo, que eu empurrara para o fundo nos últimos dias e que agora sobe, rápido, sem aviso, pelas pernas, pelo ventre, pela nuca. Digo que quero beijá-la, ali, nos degraus de uma casa de pastores, e pergunto se ela tem um lugar melhor. Ela ri, rouca, baixinho, e diz que não. Viro-me, e ela também, e ficamos frente a frente no escuro, com as estrelas sobre nós, e vejo o brilho dos olhos dela muito perto, a boca entreaberta. Sou eu quem beija.
 
 ---
 
-Jantamos com a família de Dorcas: o marido, um pastor silencioso, de mãos enormes; três filhos pequenos, que nos olharam com a curiosidade cerimoniosa das crianças do campo; e uma velha, a mãe do pastor, que comeu sem dizer nada, com os olhos fixos na Emily. Comemos queijo, pão preto, uma sopa de lentilhas, carne de cabra. Bebemos vinho de cevada, grosso e ácido. Conversamos pouco. Dorcas, ao contrário, falava sem parar. Sobre a colheita, o rio, o tempo, um primo que foi para a cidade e nunca voltou.
+Não terminamos nos degraus. Dorcas, que não é tola, arrumara o quarto dos fundos com uma só cama, junto à janela, uma cama larga de madeira escura coberta de lã vermelha, e quando entramos de mãos dadas, descalças, sem fazer barulho, vemos as duas camas de palha empurradas para um canto e uma terceira, de verdade, no meio, e sobre o travesseiro uma flor seca de lavanda. Emily sussurra que ela sabia. É claro que sabia: estava tentando, e desistiu, com muita elegância. Fecho a porta. Passo o ferrolho. Digo que agradecerei de manhã. Volto-me, e ela está de pé ao lado da cama, à luz de uma vela, com o remo encostado na parede e o cabelo em desalinho, olhando-me, sem dizer nada, esperando.
 
-Depois do jantar, os homens foram para fora fumar. As crianças dormiram. Ficamos as três na cozinha, Dorcas, a Emily e eu, ao redor de uma mesa gasta, com uma jarra de vinho quase vazia. A velha tinha adormecido num banco junto ao fogo.
+Dou-lhe a mão. Levo-a ao leito, faço-a sentar na beirada, fico de pé diante dela, entre os joelhos, olhando-a de cima. Ela levanta o rosto. Toco-lhe as faces com as duas palmas, as têmporas, a testa, o queixo, a cicatriz nova, e ela fecha os olhos. "Hoje sou eu quem conduz", digo. "Sem pressa, e se eu parar, você para comigo, e se eu quiser chorar, você espera, e se eu rir, você ri junto. Eu preciso que seja assim hoje, agapi, porque nas outras vezes você me levou, e eu me deixei levar, e foi bom, mas quero saber o que o meu corpo sabe fazer quando não está com medo. Não me julgue se eu hesitar. Não me ajude se eu errar. Só fique, e olhe, e deixe." Ela diz, baixinho: "Fico. E olho. E deixo."
 
-Foi nesse momento que eu vi o que eu não quis ver.
+Sorrio. Desato o laço da minha túnica devagar, olhando nos olhos dela, e deixo o tecido escorregar pelos ombros, pela cintura, pelos quadris, até o chão. O ar frio na pele. O olhar dela percorrendo-me sem pressa, sem pudor, sem a hesitação de outras vezes, um olhar que me vê como sou, com as cicatrizes, com os fios brancos, com o corpo de trinta e seis anos que já deu à luz, já esperou, já chorou. Ela diz que sou linda, que já disse e não cansa de ser verdade, e mando que cale a boca, sorrindo. Inclino-me e a beijo, e desta vez o beijo é lento, profundo, cheio de promessas, a boca dela se abrindo sob a minha, a língua quente, o gosto de vinho e de sal, as mãos dela subindo pelas minhas coxas, pelos quadris, pela cintura, sem pressa, como quem relê um livro querido. Desato os laços da túnica dela, um por um, arranco-a por cima da cabeça e a deixo nua diante de mim, à luz da vela. Olho-a. Vejo o corpo que conheço: os ombros largos, a cicatriz da lança nas costelas, as marcas novas do mar, da guerra, do arco, os seios pequenos, o ventre firme, o quadril estreito, a coxa esquerda com a cicatriz da infecção, vermelha, franzida. Passo os dedos sobre ela, e ela estremece, e pergunto se dói, e ela diz que só quando chove, e como hoje não chove, não dói.
 
-Dorcas olhava para a Emily.
+Empurro-a de leve pelos ombros, e ela se deita de costas na lã vermelha, de braços abertos, me olhando. Subo à cama, de joelhos, sobre ela, sentindo o calor do corpo dela sob o meu, o coração dela batendo contra o meu peito, rápido, insistente, e fico olhando por um longo momento sem tocar, querendo gravar esse instante: o rosto dela sob a vela, os olhos abertos, a boca entreaberta, a respiração curta. Ela diz que me ama. Digo que sei. Ela pergunta se não vou dizer, e eu digo que ainda não, e ela sorri e diz que tudo bem, que espera. Beijo-a de novo, e desço: o pescoço, os ombros, a cicatriz da lança, os seios, o ventre, e levo a boca pelo interior das coxas, pela pele fina, arrepiada, e ouço-a prender a respiração, e sinto a mão dela no meu cabelo, leve, sem puxar, só pousada. Olho para cima. Ela me observa com os olhos enormes, escuros. Pergunto se posso, e ela diz *por favor.*
 
-Não do jeito de quem olha uma hóspede. Do jeito de quem olha uma mulher. Um olhar comprido, lento, sem pressa, que pousava nos ombros dela, no pescoço, na cicatriz do queixo, nas mãos calejadas. Um olhar que eu conhecia, porque já o tinha recebido uma vez, de uma mulher de trança e olhos cor de mel.
-
-E a Emily, a minha Emily, sorria.
-
-Um sorriso pequeno, tímido, polido. O sorriso de quem não quer ofender. Mas era um sorriso. E ela respondia, e contava histórias, e ria, e gesticulava com as mãos, e eu, sentada ao lado, com a caneca de vinho na mão, sentia uma coisa crescer na garganta, quente, amarga, ácida.
-
-— Você deve ter visto muito mundo — dizia Dorcas.
-
-— Um pouco.
-
-— Mulheres como você não aparecem por aqui.
-
-— Mulheres como eu?
-
-— Que carregam remos e cicatrizes.
-
-Emily riu, sem graça, e olhou para mim de relance. Desviou os olhos. Sorriu de novo, para a mesa. A mão de Dorcas, que estava sobre o tampo, deslizou um palmo em direção à dela.
-
-Levantei-me.
-
-— Com licença — disse, com uma voz que não reconheci. — Preciso de ar.
+Tomo-a com a boca, devagar, com uma atenção que não sabia ter. Conheço o corpo dela e não conheço, porque dez anos o mudaram, como mudaram o meu, e descubro de novo os lugares sensíveis, as curvas, os ritmos, e ela geme baixo, rouca, a mão apertando o meu cabelo, o corpo inteiro se arqueando sob a minha boca. Faço-a esperar. Levo-a até a beira, e paro, e volto, com uma paciência cruel, com um prazer secreto de quem tem, pela primeira vez em dez anos, o poder de fazer alguém implorar. Ela diz o meu nome com a voz quebrada, pede por favor, e quando pergunto por favor o quê, ri, trêmula, e diz que me ama tanto que não sabe o que dizer, e eu digo que então diga isso, e ela diz, e eu peço de novo, e ela diz de novo, *eu te amo, Anne, eu te amo*, e eu cedo. Dou a ela o que pede, com a língua, com os dedos, com a voz, sussurrando o nome dela contra a pele, e sinto-a chegar, com um grito abafado, o corpo inteiro tenso como a corda de um arco e depois mole, desabando, trêmulo, ofegante. Subo, deito-me ao lado dela, e ela se vira e enterra o rosto no meu pescoço e soluça, baixinho, sem parar. Peço que se cale com um *shh*, e ela pede desculpas, e eu digo que não precisa, passando a mão pelo cabelo curto dela: é o que acontece quando a gente se lembra de que podia ser assim. Ela fica um longo tempo com o rosto escondido, o corpo estremecendo, e eu abraço sem dizer mais nada e conto as batidas do coração dela, e quando chego a duzentas ela levanta a cabeça e me olha, o rosto molhado, os olhos vermelhos, o cabelo colado à testa, e diz que é a minha vez. Digo que pode, mas devagar. "Muito." "Emily." "Sim?" "Não me faça esperar dez anos." Ela ri, e o riso vibra na minha pele, e depois a boca dela me encontra, e eu esqueço o que ia dizer.
 
 ---
 
-O ar lá fora é frio e cheira a pinho e a fumaça. Fico sentada nos degraus de pedra da entrada, com os braços em volta dos joelhos, olhando as estrelas. Conto-as. Perco a conta. Começo de novo. A raiva me sobe e desce em ondas. Sei que é injusta. Sei que ela só foi educada. Sei que não tenho direito. Mas o corpo não obedece à razão, nunca obedeceu, e a cada vez que fecho os olhos vejo o sorriso dela, tímido, polido, e a mão de Dorcas avançando no tampo da mesa.
+Amanhece com um galo cantando, e acordo de bruços, com um braço atravessado na minha cintura e um hálito quente na nuca. Fico imóvel, de olhos fechados, sentindo o corpo dela colado ao meu, o peito nas minhas costas, a coxa entre as minhas pernas, a respiração lenta, regular, de quem dorme fundo. A luz entra pela janela, cinza e rosada. Lá fora alguém corta lenha. Uma criança chora e é logo consolada. Faz dez anos que não acordo assim. Quase digo a palavra: está ali, na língua, pronta, *agapi*, a que ela não disse, a que eu não disse, a que temos guardada, cada uma no seu canto, como duas moedas que ninguém gastou, e sinto-a chegar aos dentes, e engulo. Ainda não. Não porque não a sinta, mas porque, se eu disser agora, vou estar dizendo porque a noite foi boa, o corpo está mole, a manhã é bonita, e a palavra merece mais: merece ser dita num dia de raiva, num momento de dúvida, numa hora em que dizê-la custe alguma coisa. Vai custar. Eu sei.
 
-*Você tem ciúme*, diz uma voz dentro de mim, calma, clínica, a voz que sempre me diz a verdade nas horas erradas.
+A mão dela aperta a minha cintura, de leve, e uma voz rouca, sonolenta, murmura na minha nuca que estou pensando, que ela ouve daqui, que eu penso alto, e que antes que eu diga que não, deixe-a falar primeiro, porque dormiu melhor do que em dez anos e quer contar: não sonhou com o mar, nem com a ninfa, nem com Troia, sonhou com um forno de pão torto e uma mulher de farinha no cabelo chamando-a de mentirosa, e acordou com a certeza de que, se um dia tiver de escolher entre ser inteira e ser esperta, escolhe ser inteira, mesmo que doa. Sabe que ainda estou com raiva, agapi, e que vou estar por anos, e aceita. Só queria que eu soubesse que, hoje de manhã, não tem pressa nenhuma.
 
-*Não tenho.*
+Rio. Viro-me devagar dentro do braço dela, e ficamos frente a frente, a um palmo, os olhos dela pesados de sono, o cabelo em pé, uma marca de travesseiro na bochecha. Digo que ela, sem pressa, é coisa que eu preciso ver; que a sensatez é o vício dos covardes, ela disse na primeira estrada, e a pressa é o vício dos tolos, eu respondi, e nenhuma das duas estava errada; que hoje acho que ela tem razão em parte, a vida é curta demais para perder-se em prudências, e eu tenho razão em parte, a vida é longa demais para gastar-se em arrancadas, e deve haver um meio-termo, e acho que é isto: dois corpos numa cama de lã vermelha, numa casa de pastores, numa manhã em que ninguém precisa chegar a lugar nenhum. Quero guardar isto. Quero lembrar, daqui a dez anos, quando estivermos brigando por um bolo, que um dia ela acordou sem pressa e eu acordei sem raiva.
 
-*Tem.*
-
-*Não tenho o direito.*
-
-*Não é sobre direito.*
-
-A porta atrás de mim range. Ouço passos, que hesitam. Uma sombra cai sobre os degraus, e eu sei quem é sem olhar. Ela se senta a um palmo, sem me tocar, e fica em silêncio um longo tempo. O vento sopra. Uma coruja pia numa árvore distante.
-
-— Eu não fiz nada — diz, por fim, baixinho. — Ela só estava sendo gentil. Eu também. Mas eu vi a sua cara quando você se levantou, e não preciso que me explique, porque eu faria o mesmo, e já fiz, em outras casas, com outras mulheres que olhavam você mais tempo do que uma hóspede olha uma anfitriã. Só quero que você saiba que eu não estava ali. Eu estava sorrindo para a mesa, porque não sei o que fazer com a cara quando uma mulher me olha assim. Aprendi a ficar educada, e a educação, às vezes, parece outra coisa.
-
-— Eu sei que você não fez nada — respondo, e a voz me escapa, sobe, quase grito, e eu a baixo depressa, olhando por cima do ombro. — Sei que ela só estava sendo gentil, e que a mão dela avançou no tampo da mesa porque estava sozinha, como eu estive, e como todas as mulheres desta estrada parecem estar. Mas eu odeio, Emily. Odeio quando uma mulher te olha, odeio quando você sorri, odeio que você tenha essa cara de quem não sabe o que faz. E odeio mais ainda não ter o direito, porque você poderia me responder, a qualquer momento, com duas palavras, *e a Nísia?*, e eu não teria resposta. Estou sentada aqui há uma hora tentando encontrar uma, e só encontro raiva e vergonha, na mesma proporção, como se tivessem sido misturadas por um padeiro mau.
-
-— Eu não ia dizer isso — responde ela, sem sorrir. — Mas posso lhe dizer uma coisa que talvez ajude, e talvez piore. A Nísia e a Dorcas não são a mesma coisa. A Nísia te amava, e você a deixou amar, e isso é tudo o que existe entre nós duas e o que fizemos às outras. A Dorcas só estava só. Eu olhei para ela e vi o que a Calipso deve ter visto quando me viu: uma mulher que não sabe como pedir. E eu, que passei dez anos tentando ser outra pessoa, não consegui. Continuo sendo uma só coisa. Quero uma pessoa, e essa pessoa está sentada ao meu lado, com bolhas nos pés e ciúme no rosto, e nunca, em vinte anos, deixou de me fazer falta.
-
-— Isso é muito bonito — digo. — Você ensaiou?
-
-— Um pouco — admite. — Mas é verdade mesmo assim.
-
-Solto o ar, devagar. A raiva vai saindo, pouco a pouco, como a água de uma bacia rachada, e fica o cansaço, fica a ternura ridícula, fica o desejo, que eu tinha empurrado para o fundo nos últimos dias e que agora sobe, rápido, sem aviso, pelas pernas, pelo ventre, pela nuca.
-
-— Eu quero te beijar — digo. — Aqui, nos degraus de uma casa de pastores. Você tem um lugar melhor?
-
-Ela ri, rouca, baixinho.
-
-— Não.
-
-Viro-me, e ela também. Ficamos frente a frente, no escuro, com as estrelas sobre nós, e eu vejo o brilho dos olhos dela, muito perto, a boca entreaberta.
-
-Sou eu quem beija.
-
----
-
-Não terminamos nos degraus.
-
-Dorcas, que não é tola, tinha arrumado o quarto dos fundos com uma só cama, junto à janela, para quando voltássemos. Uma cama larga, de madeira escura, coberta de lã vermelha. Quando entramos, de mãos dadas, descalças, sem fazer barulho, vemos as duas camas de palha empurradas para um canto, e uma terceira, de verdade, no meio. E sobre o travesseiro, uma flor seca de lavanda.
-
-— Ela sabia — sussurra Emily.
-
-— É claro que sabia.
-
-— Mas estava...
-
-— Estava tentando. E desistiu.
-
-— Com elegância.
-
-— Com muita elegância. — Fecho a porta. Passo o ferrolho. — Vou agradecer de manhã.
-
-Volto-me. Ela está de pé ao lado da cama, à luz de uma vela, com o remo encostado na parede e o cabelo em desalinho. Olha-me. Não diz nada. Espera.
-
-Dou-lhe a mão. Levo-a para o leito. Faço-a sentar-se na beirada, e fico de pé diante dela, entre os joelhos, olhando-a de cima. Ela levanta o rosto. Toco-lhe as faces com as duas palmas. Acaricio-lhe as têmporas, a testa, o queixo, a cicatriz nova. Ela fecha os olhos.
-
-— Hoje sou eu quem conduz — digo, com as mãos nas faces dela. — Sem pressa, e se eu parar, você para comigo, e se eu quiser chorar, você espera, e se eu rir, você ri junto. Eu preciso que seja assim hoje, agapi, porque nas outras vezes você me levou, e eu me deixei levar, e foi bom, mas eu quero saber o que o meu corpo sabe fazer quando não está com medo. Não me julgue se eu hesitar. Não me ajude se eu errar. Só fique, e olhe, e deixe.
-
-— Fico — diz ela, baixinho. — E olho. E deixo.
-
-Sorrio. Desato o laço da minha túnica, devagar, olhando nos olhos dela, e deixo o tecido escorregar pelos ombros, pela cintura, pelos quadris, até o chão. Sinto o ar frio na pele. Sinto o olhar dela, percorrendo-me, sem pressa, sem pudor, sem a hesitação de outras vezes. Um olhar que me vê como sou: com as cicatrizes, com os fios brancos, com o corpo de trinta e seis anos, que já deu à luz e já esperou e já chorou.
-
-— Você é linda — diz ela. — Já disse, e não cansa de ser verdade.
-
-— Cale a boca — respondo, sorrindo.
-
-Inclino-me. Beijo-a. Desta vez, o beijo é lento, profundo, cheio de promessas. Sinto a boca dela se abrir sob a minha, a língua quente, o gosto de vinho e de sal. As mãos dela sobem pelas minhas coxas, pelos quadris, pela cintura, sem pressa, como quem relê um livro querido. Desato os laços da túnica dela, um por um. Arranco-a por cima da cabeça. Deixo-a nua, diante de mim, à luz da vela.
-
-Olho-a.
-
-Vejo o corpo que conheço. Os ombros largos. A cicatriz da lança nas costelas. As marcas novas, do mar, da guerra, do arco. Os seios pequenos. O ventre firme. O quadril estreito. A coxa esquerda, com a cicatriz nova da infecção, vermelha, franzida. Passo os dedos sobre ela. Ela estremece.
-
-— Dói?
-
-— Só quando chove.
-
-— Hoje não chove.
-
-— Então não dói.
-
-Empurro-a de leve pelos ombros. Ela se deita de costas, na lã vermelha, com os braços abertos, me olhando. Subo à cama, de joelhos, sobre ela. Sinto o calor do corpo dela sob o meu. Sinto o coração dela batendo contra o meu peito, rápido, insistente. Olho-a, por um longo momento, sem tocar. Quero gravar esse instante: o rosto dela, sob a vela, com os olhos abertos, a boca entreaberta, a respiração curta.
-
-— Anne — diz ela.
-
-— Sim.
-
-— Eu te amo.
-
-— Eu sei.
-
-— Não vai dizer?
-
-— Ainda não.
-
-— Tudo bem.
-
-— Não é...
-
-— Eu sei. — Ela sorri. — Eu espero.
-
-Beijo-a de novo. Desço. Beijo o pescoço, os ombros, a cicatriz da lança, os seios, o ventre. Levo a boca pelo interior das coxas, pela pele fina, arrepiada. Ouço-a prender a respiração. Sinto a mão dela no meu cabelo, leve, sem puxar, só pousada. Olho para cima. Ela me observa, com os olhos enormes, escuros.
-
-— Posso? — pergunto.
-
-— Por favor.
-
-Tomo-a com a boca, devagar, com uma atenção que não sabia ter. Conheço o corpo dela, e ao mesmo tempo não conheço, porque dez anos o mudaram, como mudaram o meu. Descubro de novo os lugares sensíveis, as curvas, os ritmos. Ela geme baixo, rouca, e a mão aperta o meu cabelo, e eu sinto o corpo inteiro dela se arquear sob a minha boca. Faço-a esperar. Levo-a até a beira, e paro, e volto, com uma paciência cruel, com um prazer secreto de quem tem, pela primeira vez em dez anos, o poder de fazer alguém implorar.
-
-— Anne — diz ela, com a voz quebrada. — Por favor.
-
-— Por favor o quê?
-
-— Por favor...
-
-— Diga.
-
-— Por favor, eu... — Ela ri, trêmula. — Eu te amo tanto que não sei o que dizer.
-
-— Então diga isso.
-
-— Eu te amo.
-
-— De novo.
-
-— Eu te amo, Anne. Eu te amo.
-
-Cedo. Dou a ela o que pede, com a língua, com os dedos, com a voz, sussurrando o nome dela contra a pele, e sinto-a chegar, com um grito abafado, o corpo inteiro tenso como a corda de um arco, e depois mole, desabando, trêmulo, ofegante. Subo. Deito-me ao lado dela. Ela se vira, enterra o rosto no meu pescoço, e soluça, baixinho, sem parar.
-
-— Shh — digo.
-
-— Desculpe.
-
-— Não precisa.
-
-— Eu não sei por que...
-
-— Eu sei. — Passo a mão pelo cabelo curto dela. — É o que acontece quando a gente se lembra.
-
-— Do quê?
-
-— De que podia ser assim.
-
-Ela fica assim um longo tempo, com o rosto escondido, o corpo estremecendo. Eu abraço, sem dizer mais nada. Conto as batidas do coração dela. Quando chego a duzentas, ela levanta a cabeça, e me olha, com o rosto molhado, os olhos vermelhos, o cabelo colado à testa.
-
-— Sua vez — diz.
-
-— Eu sei.
-
-— Posso?
-
-— Pode. — Sorrio. — Mas devagar.
-
-— Muito.
-
-— Emily.
-
-— Sim?
-
-— Não me faça esperar dez anos.
-
-Ela ri, e o riso vibra na minha pele, e depois a boca dela me encontra, e eu esqueço o que ia dizer.
-
----
-
-Amanhece com um galo cantando, e eu acordo de bruços, com um braço atravessado na minha cintura e um hálito quente na nuca.
-
-Fico imóvel. Não abro os olhos. Sinto o corpo dela colado ao meu, o peito nas minhas costas, a coxa entre as minhas pernas, a respiração lenta, regular, de quem dorme fundo. A luz entra pela janela, cinza e rosada. Lá fora, alguém corta lenha. Uma criança chora, e é logo consolada.
-
-Faz dez anos que não acordo assim.
-
-Quase digo a palavra. Está ali, na língua, pronta. *Agapi.* A que ela não disse. A que eu não disse. A que temos guardada, cada uma no seu canto, como duas moedas que ninguém gastou. Sinto-a chegar aos dentes. Sinto o gosto dela.
-
-Engulo.
-
-Ainda não. Não porque não a sinta. Porque, se eu disser agora, vou estar dizendo porque a noite foi boa, o corpo está mole, a manhã é bonita. E a palavra merece mais. Merece ser dita num dia de raiva, num momento de dúvida, numa hora em que dizê-la custe alguma coisa.
-
-Vai custar. Eu sei.
-
-A mão dela aperta a minha cintura, de leve, e uma voz rouca, sonolenta, murmura na minha nuca:
-
-— Está pensando — murmura. — Eu ouço daqui, você pensa alto. E antes que me diga que não, deixe eu falar primeiro, porque dormi melhor do que em dez anos e quero contar. Não sonhei com o mar, nem com a ninfa, nem com Troia. Sonhei com um forno de pão torto e uma mulher de farinha no cabelo me chamando de mentirosa, e acordei com a certeza de que, se um dia eu tiver que escolher entre ser inteira e ser esperta, escolho ser inteira, mesmo que doa. Eu sei que você ainda está com raiva, agapi, e que vai estar durante anos, e eu aceito. Só queria que você soubesse que, hoje de manhã, eu não tenho pressa nenhuma.
-
-Rio. Viro-me, devagar, dentro do braço dela. Ficamos frente a frente, a um palmo, os olhos dela ainda pesados de sono, o cabelo em pé, uma marca de travesseiro na bochecha.
-
-— Você, sem pressa — digo. — Isso eu preciso ver. Sensatez é o vício dos covardes, você me disse na primeira estrada, e eu respondi que a pressa é o vício dos tolos, e nenhuma das duas estava errada. Hoje eu acho que você tem razão em parte: a vida é curta para se perder em prudências. E eu tenho razão em parte também: a vida é longa demais para se gastar em arrancadas. Deve haver um meio-termo, e acho que é isto: dois corpos numa cama de lã vermelha, numa casa de pastores, numa manhã em que ninguém precisa chegar a lugar nenhum. Eu quero guardar isto. Quero lembrar, daqui a dez anos, quando estivermos brigando por um bolo, que um dia você acordou sem pressa e eu acordei sem raiva.
-
-Ela me abraça de repente, com força, o rosto enterrado no meu pescoço.
-
-— Você é a pessoa mais corajosa que conheço — diz, contra a minha pele. — É por isso que eu tenho tanto medo de te perder. Cada vez que penso que você pode decidir não ficar, o ar me falta. Eu sei que você me disse que eu não vou, e eu acredito, mas o corpo não acredita tão depressa quanto a cabeça. Você vai ter que me aguentar assim durante muito tempo.
-
-— Você não vai — digo, baixinho, no cabelo dela. — Eu não deixo.
-
-Ela ri, contra a minha pele, um riso rouco, úmido. E eu fecho os olhos, e a abraço, e ficamos assim, enroladas na lã vermelha, enquanto o dia cresce lá fora, e uma criança ri, e um galo canta, e o remo, encostado na parede, espera.
+Ela me abraça de repente, com força, o rosto enterrado no meu pescoço. Diz, contra a minha pele, que sou a pessoa mais corajosa que ela conhece, e que é por isso que tem tanto medo de me perder: cada vez que pensa que posso decidir não ficar, o ar lhe falta; sabe que eu disse que ela não perderá, e acredita, mas o corpo não acredita tão depressa quanto a cabeça, e terei de aguentá-la assim durante muito tempo. "Você não vai", digo baixinho no cabelo dela. "Eu não deixo." Ela ri, contra a minha pele, um riso rouco, úmido, e eu fecho os olhos e a abraço, e ficamos assim, enroladas na lã vermelha, enquanto o dia cresce lá fora, e uma criança ri, e um galo canta, e o remo, encostado na parede, espera.

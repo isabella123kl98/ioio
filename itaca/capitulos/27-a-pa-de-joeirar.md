@@ -4,382 +4,50 @@
 
 Caminhamos vinte e três dias para o interior, e no vigésimo terceiro um homem me pergunta o que é aquilo que eu carrego no ombro.
 
-Não é uma imagem; é um dado. Fiz as contas na noite de Dorcas, nos degraus da casa, quando ainda não sabia que ia precisar delas: se o mar está para trás e a terra é larga, o lugar onde ninguém o conhece é um lugar onde a água vem só de chuva e de rio, onde as pessoas nasceram e morreram sem nunca ter visto uma onda, onde um remo, para elas, é uma coisa que não significa nada. Não precisava ser longe. Precisava ser outro.
-
-Mas o mundo não é feito de geografias, e sim de costumes, e as aldeias que atravessamos, uma depois da outra, a cada dia mais distantes da costa, ainda conservam, sob a poeira, a memória do mar. Um pescador de rio chamava *barco* a sua canoa de tronco. Uma mulher, lavando roupa, reconheceu o meu remo e disse que o pai dela era marinheiro, em Dodona, antes de morrer afogado num lago. Um menino de oito anos, que nunca saiu do vale, olhou a pá de madeira e gritou a uma criada: *olha, um remo!*, e a criada respondeu, sem levantar os olhos, que sim, que era, que todo mundo sabe.
-
-A Anne me olhou, de lado, com as sobrancelhas erguidas.
-
-— Mais longe — disse.
-
-— Eu sei.
-
-— Esse tal de Tirésias nunca viajou.
-
-— Viajou. Morreu.
-
-— Pelo visto, não para longe o bastante.
-
-Rimos. Caminhamos mais.
+Não é uma imagem, é um dado. Fiz as contas na noite de Dorcas, nos degraus da casa, quando ainda não sabia que ia precisar delas: se o mar está para trás e a terra é larga, o lugar onde ninguém o conhece é um lugar onde a água vem só de chuva e de rio, onde as pessoas nasceram e morreram sem nunca ter visto uma onda, onde um remo, para elas, não significa nada. Não precisava ser longe. Precisava ser outro. Mas o mundo não é feito de geografias, é feito de costumes, e as aldeias que atravessamos, uma depois da outra, cada dia mais distantes da costa, ainda guardam sob a poeira a memória do mar. Um pescador de rio chamava *barco* a sua canoa de tronco. Uma mulher que lavava roupa reconheceu o meu remo e contou que o pai fora marinheiro, em Dodona, antes de morrer afogado num lago. Um menino de oito anos que nunca saíra do vale olhou a pá de madeira e gritou a uma criada: *olha, um remo!*, e a criada respondeu, sem levantar os olhos, que era, todo mundo sabe. Anne me olhou de lado, com as sobrancelhas erguidas, e disse que Tirésias nunca viajara; respondi que viajara, que morrera; ela disse que pelo visto não para longe o bastante, e rimos, e caminhamos mais.
 
 ---
 
-Vinte e três dias é muito tempo, e não me lembro de todos.
+Vinte e três dias é muito tempo, e não me lembro de todos. Lembro de uma manhã em que ela acordou de mau humor e ficou seis horas sem me falar, e eu, sem saber por quê, calei também, até que ao meio-dia, sentada numa pedra para descansar, ela perguntou sem me olhar se eu achava que o Timóteo estava comendo direito. Disse que sim. Ela disse que não tinha certeza, e eu que tinha, e ela que eu não podia saber, e eu que Euricleia sabia, e ela que Euricleia dava bolo demais ao menino, e então percebi que a briga não era sobre bolo, nem sobre o mau humor da manhã, mas sobre a saudade, que Anne, como eu, só sabe dizer em forma de implicância. Disse que ela sentia falta dele. Claro que sentia, e eu também, e eu devia ter trazido, não devia, porque o que íamos fazer não era coisa para criança. Perguntei que coisa. "Não sei", confessou, "mas não é."
 
-Lembro de uma manhã em que ela acordou de mau humor e não me falou durante seis horas, e eu, sem saber por quê, fiquei calada também, até que, ao meio-dia, sentada numa pedra para descansar, ela perguntou, sem me olhar, se eu achava que o Timóteo estava comendo direito. Respondi que sim. Ela disse que não tinha certeza. Eu disse que tinha. Ela disse que eu não podia saber. Eu disse que a Euricleia sabia. Ela disse que a Euricleia dava bolo demais ao menino. Então percebi que a briga não era sobre bolo, nem sobre o mau humor da manhã, mas sobre a saudade, que a Anne, como eu, não sabe dizer senão em forma de implicância.
+Lembro de uma noite de tempestade, numa gruta de calcário, em que nos abraçamos sem dizer nada, e ela tremia, não de frio, de uma coisa mais funda, e eu pensei no trovão e no dia em que Calipso, na gruta dela, me abraçou assim durante uma tempestade, e o meu corpo inteiro se contraiu. Ela percebeu. Claro que percebeu. Apertou-me mais, e disse baixinho, contra o meu ombro, que era ela, que não era a outra, e mandou que eu dissesse. "Sou eu. É a Anne. Estou com a Anne." Ficamos assim, até a chuva passar, e foi uma das noites em que mais senti medo e em que menos tive vontade de fugir.
 
-— Sente falta dele — disse.
-
-— Claro que sinto.
-
-— Eu também.
-
-— Eu sei.
-
-— Devia ter trazido.
-
-— Não devia.
-
-— Por quê?
-
-— Porque o que vamos fazer não é coisa para criança.
-
-— Que coisa?
-
-— Não sei — confessou ela. — Mas não é.
-
-Lembro de uma noite de tempestade, numa gruta de calcário, em que nos abraçamos sem dizer nada, e ela tremia, não de frio, mas de uma coisa mais fundo, e eu pensei no trovão, e no dia em que a Calipso, na gruta dela, me abraçou assim, durante uma tempestade, e senti o corpo inteiro se contrair. Ela percebeu. Claro que percebeu. Apertou-me mais. Disse, baixinho, contra o meu ombro:
-
-— Sou eu.
-
-— Eu sei.
-
-— Não é ela.
-
-— Eu sei.
-
-— Diga.
-
-— Sou eu. É a Anne. Estou com a Anne.
-
-— Isso.
-
-E ficamos assim, até a chuva passar.
-
-Lembro de uma tarde em que encontramos um casal de velhos cultivando hortaliças numa encosta, e eles nos ofereceram pão e mel, e nos perguntaram, com uma simplicidade desarmante, se éramos irmãs. Anne disse que não. Perguntaram se éramos amigas. Anne disse que também não. Perguntaram, então, o que éramos. E ela, com o queixo erguido e os olhos brilhando, respondeu:
-
-— Casadas.
-
-A velha sorriu. O velho assentiu, sem curiosidade. Continuaram a arrancar cenouras, como se a resposta fosse a mais natural do mundo.
-
-Quando nos afastamos, eu disse:
-
-— Você nunca disse isso a ninguém.
-
-— Disse à Nísia.
-
-— Eu sei. Mas não assim. Sem hesitar.
-
-— Não tenho mais o que hesitar. — Ela deu de ombros. — Já dei o meu recado. Se não gostam, que soltem os cachorros.
-
-— Você acha que soltariam?
-
-— Você acha que eu me importo?
-
-Não. Não achei. E essa foi a primeira vez em vinte anos que tive vontade de dançar no meio de uma estrada.
+Lembro de uma tarde em que encontramos um casal de velhos cultivando hortaliças numa encosta, que nos ofereceu pão e mel e nos perguntou, com uma simplicidade desarmante, se éramos irmãs. Anne disse que não. Amigas? Também não. O que éramos, então? E ela, com o queixo erguido e os olhos brilhando: "Casadas." A velha sorriu. O velho assentiu sem curiosidade, e continuaram a arrancar cenouras, como se a resposta fosse a mais natural do mundo. Quando nos afastamos eu disse que ela nunca dissera aquilo a ninguém, e ela lembrou que dissera à Nísia, e eu respondi que não assim, sem hesitar, e ela deu de ombros: já dera o seu recado, e se não gostassem, que soltassem os cachorros. Perguntei se achava que soltariam. "Você acha que eu me importo?" Não. Não achei. E foi a primeira vez em vinte anos que tive vontade de dançar no meio de uma estrada.
 
 ---
 
-O vigésimo terceiro dia amanhece frio e claro, com a neblina subindo dos vales como uma respiração, e às nove estamos no alto de um planalto árido, cortado de pedras e de urzes, onde não há uma árvore, nem um rio, nem um rumor de água. Só o vento. E no meio do planalto, a uns duzentos passos, um homem.
+O vigésimo terceiro dia amanhece frio e claro, com a neblina subindo dos vales como uma respiração, e às nove estamos no alto de um planalto árido, cortado de pedras e de urzes, onde não há uma árvore, nem um rio, nem um rumor de água, só o vento. No meio do planalto, a uns duzentos passos, um homem. É um velho de barba branca e mãos enormes, vestido com um saco de juta, sentado num monte de pedras com uma pá de madeira entre os joelhos, larga, achatada, de cabo comprido, que ele usa, vejo de longe, para atirar ao ar punhados de trigo e deixar o vento levar a palha e guardar o grão. Uma pá de joeirar. Paro. Anne, ao meu lado, prende a respiração e sussurra que é ele, o homem de que Tirésias falou. Digo que não sabemos, que milhares de homens têm uma pá de joeirar. Ela pergunta, baixo: "Nesta colina?" Não respondo. Olho o velho, o remo no meu ombro, a planície vazia, o céu, a neblina, e sinto o coração bater, lento e pesado.
 
-É um velho, de barba branca e mãos enormes, vestido com um saco de juta, sentado num monte de pedras com uma pá de madeira entre os joelhos. Uma pá larga, achatada, de cabo comprido, que ele usa, vejo de longe, para atirar ao ar punhados de trigo, deixando o vento levar a palha e guardar o grão. Uma pá de joeirar.
+Aproximamo-nos devagar. O velho nos vê. Levanta a cabeça sem pressa, sem espanto, e tem olhos claros, leitosos, de quem já viu tudo e não guarda nada, e olha Anne, e olha o remo, franze a testa, levanta a mão e aponta com um dedo torto para o meu ombro, e pergunta com uma voz fina, rachada, de corda de lira velha, que pá é essa. Fico imóvel. Anne aperta o meu braço e sinto o pulso dela, rápido, contra a minha pele. Digo que é um remo. Ele pergunta o que é um remo, e digo que serve para impulsionar um barco, e ele pergunta o que é um barco, e digo que é uma coisa que flutua na água, e que água, a do mar, e o que é o mar. Fico calada. Olho Anne, que me olha com os olhos enormes cheios de lágrimas, e sinto uma coisa se abrir no peito, muito devagar, como uma janela que estava emperrada havia dez anos. "É uma coisa muito grande, e muito cruel, e muito bonita, e que eu amei e odiei a vida inteira." O velho pergunta se tem gosto. De sal. "Sal eu conheço", diz, e o sorriso dele é de uma doçura desarmante, "mas não sei o que é ter tanto dele que dê para navegar."
 
-Paro.
-
-A Anne, ao meu lado, prende a respiração.
-
-— É ele — sussurra.
-
-— Quem?
-
-— O homem de que o Tirésias falou.
-
-— Não sabemos.
-
-— Ele tem uma pá de joeirar.
-
-— Milhares de homens têm.
-
-— Nesta colina?
-
-Não respondo. Olho o velho. Olho o remo, no meu ombro. Olho a planície vazia, o céu, a neblina. Sinto o coração bater, lento, pesado.
-
-Aproximamo-nos devagar.
-
-O velho nos vê. Levanta a cabeça, sem pressa, sem espanto. Tem olhos claros, leitosos, de quem já viu tudo e não guarda nada. Olha a Anne. Olha o remo. Franze a testa. Levanta a mão, e aponta, com o dedo torto, para o meu ombro.
-
-— Que pá é essa? — pergunta.
-
-A voz dele é fina, rachada, como uma corda de lira velha.
-
-Fico imóvel. A Anne aperta o meu braço. Sinto o pulso dela, rápido, pulsando contra a minha pele.
-
-— É um remo — digo.
-
-— O que é um remo?
-
-— Serve para impulsionar um barco.
-
-— O que é um barco?
-
-— Uma coisa que flutua na água.
-
-— Que água?
-
-— A do mar.
-
-— O que é mar?
-
-Fico calada. Olho a Anne. Ela olha para mim, com os olhos enormes, cheios de lágrimas. E eu sinto, no peito, uma coisa se abrir, muito devagar, como uma janela que estava emperrada há dez anos.
-
-— É uma coisa muito grande — digo. — E muito cruel. E muito bonita. E que eu amei e odiei a vida inteira.
-
-— Tem gosto?
-
-— De sal.
-
-— Sal eu conheço. — O velho sorri, e o sorriso dele é de uma doçura desarmante. — Mas não sei o que é ter tanto dele que dê para navegar.
-
-Desamarro o remo do ombro. Seguro-o com as duas mãos. Pesa exatamente o que deve. Olho o chão, a terra seca, dura, cheia de pedras. Ergo o remo, e, com toda a força que tenho, finco-o na terra, com a pá para cima, como quem planta uma árvore.
-
-O remo fica de pé. Oscila um pouco. Endireita.
-
-Fico olhando-o, e sinto as lágrimas descerem.
-
-— Pronto — digo, em voz baixa.
-
-— Pronto — repete o velho.
-
-— Agora o sacrifício.
-
-— Sacrifício?
-
-— Um carneiro, um touro, um javali.
-
-— Não tenho.
-
-— Eu tenho.
-
-— Onde?
-
-— Na aldeia, a duas léguas. — A Anne dá um passo à frente. A voz dela é calma. — Compramos no caminho. O senhor nos guarda o lugar?
-
-O velho olha para ela, depois para mim, depois para o remo. Um longo silêncio.
-
-— Guardo — diz, por fim. — Faz tempo que ninguém me pede isso.
+Desamarro o remo do ombro e o seguro com as duas mãos. Pesa exatamente o que deve. Olho a terra seca, dura, cheia de pedras, ergo o remo e com toda a força que tenho finco-o no chão, com a pá para cima, como quem planta uma árvore. Ele fica de pé. Oscila um pouco. Endireita. Fico olhando-o, e as lágrimas descem. "Pronto", digo, e o velho repete, *pronto*, como um eco curioso. Digo que agora falta o sacrifício, um carneiro, um touro, um javali, e que não tenho nada disso, e Anne dá um passo à frente e diz, calma, que tem: na aldeia, a duas léguas, e que compraremos no caminho, se o senhor nos guardar o lugar. O velho olha para ela, depois para mim, depois para o remo, num longo silêncio. "Guardo. Faz tempo que ninguém me pede isso."
 
 ---
 
-Fazemos o sacrifício ao entardecer.
+Fazemos o sacrifício ao entardecer. Trazemos da aldeia três animais, um carneiro branco, um touro novo, um javali, conduzidos por dois pastores que não perguntam nada, e o velho os vê chegar e assente, com a serenidade de quem sempre soube que este dia viria. Erguemos um altar de pedras empilhadas junto ao remo e acendemos fogo. O vento sopra. O sol desce vermelho sobre a planície. Faço as libações, vinho, leite, mel, corto a primeira mecha de cada animal e a jogo nas chamas, e digo as palavras, as velhas, as que aprendi com meu pai e nunca imaginei que usaria, e invoco Poseidon, senhor do mar, abalador da terra, pai do ciclope, cobrador de dívidas. Degolo o carneiro, e o sangue jorra quente, escuro, sobre as pedras, e o cheiro de ferro sobe com a fumaça. Degolo o javali. Degolo o touro com um golpe preciso, que os pastores acompanham com um murmúrio de respeito. Corto as coxas, envolvo-as em gordura, queimo-as no fogo, e a fumaça sobe em coluna reta, cinza, contra o céu cor de cobre. Anne está ao meu lado, em silêncio, e segura a minha mão esquerda sem olhar, os dedos quentes e firmes apertando os meus.
 
-Trazemos da aldeia três animais: um carneiro branco, um touro novo, um javali. O velho os vê chegarem, conduzidos por dois pastores que não perguntam nada, e assente, com a serenidade de quem sempre soube que este dia chegaria. Erguemos um altar de pedras empilhadas, junto ao remo, e acendemos fogo. O vento sopra. O sol desce, vermelho, sobre a planície.
+"Poseidon", digo em voz alta, e a voz me sai firme, sem tremer. "Senhor do mar. Eu, Emily, filha de Laertes, rainha de Ítaca, cegadora do teu filho, te ofereço estes animais em sinal de reconhecimento. Reconheço a minha soberba. Reconheço o meu erro. Reconheço a dívida." O vento cessa. O fogo crepita, e a fumaça que subia em coluna para e fica suspensa, imóvel, no ar, como uma árvore cinzenta. O sol toca o horizonte. O silêncio é de repente tão grande que ouço a respiração de Anne. E uma voz, que não é de ninguém, que vem de longe e de dentro ao mesmo tempo, diz: *aceito.* Uma só palavra, baixa, rouca, cheia de água. A voz do mar num lugar sem mar.
 
-Faço as libações. Despejo vinho, leite, mel. Corto a primeira mecha de cada animal, e a jogo nas chamas. Digo as palavras, as velhas, as que aprendi com o meu pai, que nunca imaginei que usaria. Invoco Poseidon, senhor do mar, abalador da terra, pai do ciclope, cobrador de dívidas.
-
-Degolo o carneiro.
-
-O sangue jorra quente, escuro, sobre as pedras, e o cheiro de ferro sobe com a fumaça. Degolo o javali. Degolo o touro, com um golpe certeiro, preciso, que os pastores, atrás de nós, acompanham com um murmúrio de respeito. Corto as coxas, envolvo-as em gordura, queimo-as no fogo. A fumaça sobe em coluna reta, cinza, contra o céu cor de cobre.
-
-A Anne está ao meu lado, em silêncio. Segura-me a mão esquerda, sem olhar. Sinto os dedos dela, quentes, firmes, apertando os meus.
-
-— Poseidon — digo, em voz alta, e a voz me sai firme, sem tremer. — Senhor do mar. Eu, Emily, filha de Laertes, rainha de Ítaca, cegadora do teu filho, te ofereço estes animais em sinal de reconhecimento. Reconheço a minha soberba. Reconheço o meu erro. Reconheço a dívida.
-
-O vento cessa.
-
-O fogo crepita, e a fumaça, que subia em coluna, para. Fica suspensa, imóvel, no ar, como uma árvore cinzenta. O sol desce sobre o horizonte. E o silêncio, de repente, é tão grande que ouço a respiração da Anne.
-
-Uma voz, que não é de ninguém, que vem de longe e de dentro ao mesmo tempo, fala:
-
-— Aceito.
-
-Uma só palavra. Baixa, rouca, cheia de água. A voz do mar, num lugar sem mar.
-
-Sinto o corpo inteiro se soltar. Não é alívio; é outra coisa, mais larga. Como se uma mão enorme, que me segurava pelo pescoço havia dez anos, abrisse, sem pressa, os dedos. Caio de joelhos. A Anne cai comigo. Ficamos as duas ajoelhadas diante do fogo, abraçadas, chorando, sem som.
-
-— Acabou — sussurra ela.
-
-— Acabou.
-
-— Você está livre.
-
-— Estamos.
-
-— Do mar.
-
-— Do mar.
-
-Ela ri, molhada, trêmula, contra o meu ombro. Eu rio também. E o velho, sentado no monte de pedras, com a pá de joeirar entre os joelhos, nos olha, e diz, muito sério:
-
-— Então era isso que o remo fazia.
+O corpo inteiro se solta. Não é alívio, é outra coisa, mais larga: como se uma mão enorme que me segurava pelo pescoço havia dez anos abrisse, sem pressa, os dedos. Caio de joelhos, Anne cai comigo, e ficamos as duas diante do fogo, abraçadas, chorando sem som, e ela sussurra que acabou, que estou livre, e eu sussurro que estamos, do mar, do mar, e ela ri, molhada, trêmula, contra o meu ombro, e eu rio também, e o velho, sentado no monte de pedras com a pá de joeirar entre os joelhos, nos olha e diz, muito sério: "Então era isso que o remo fazia."
 
 ---
 
-Acampamos junto ao altar, sob as estrelas.
+Acampamos junto ao altar, sob as estrelas. Os pastores se foram. O velho também, mas antes me deu um saco de grãos, sem explicação, e a pá de joeirar, que recusei e que ele deixou encostada numa pedra. O fogo arde baixo. Comemos a carne assada em silêncio e bebemos o vinho que sobrou. O céu está limpo, imenso, cheio das constelações que reconheço, a Ursa, que nunca mergulha no mar, as Plêiades, o Boieiro que se põe tarde, exatamente onde Calipso disse. Estamos deitadas lado a lado sobre uma manta, enroladas numa capa só, olhando o céu, sem nos tocar, e eu sinto o calor do corpo dela através de uma polegada de ar como senti, uma vez, num palácio, através de dois palmos de lençol, e é a mesma tortura, a mesma doçura, só que agora ninguém mantém a mão do seu lado do colchão.
 
-Os pastores se foram. O velho também, mas antes me deu um saco de grãos, sem explicação, e a pá de joeirar, que eu recusei, e que ele deixou encostada numa pedra. O fogo arde baixo. Comemos a carne assada, em silêncio, e bebemos o vinho que sobrou. O céu está limpo, imenso, cheio de constelações que reconheço: a Ursa, que nunca mergulha no mar; as Plêiades; o Boieiro, que se põe tarde. Estão exatamente onde Calipso disse.
+"Eu quero te perguntar uma coisa", diz ela, por fim, sem me olhar. "Agora que acabou, que você está livre, que não tem mais nenhum deus atrás de você. Você ainda quer voltar? Para a casa, para a vida, para mim? Pergunto porque tenho medo. De que a gente chegue lá e tudo volte a ser como antes, eu esperando e você fugindo, duas pessoas que se amam e não sabem viver juntas. Foi fácil aqui. Aqui não tem palácio, nem filho, nem pretendente, nem deus, só a estrada e nós duas. Lá vai ser diferente, e eu preciso saber, antes de pisar naquele cais, se você ainda quer." Viro-me de lado, apoiada no cotovelo, e olho o perfil dela contra o fogo, o queixo empinado, a cicatriz pequena na sobrancelha, a boca que treme um pouco, e respondo devagar, sem hesitar: que quero, mesmo que ela nunca me perdoe, mesmo que me faça viver no quarto do menino para sempre, e nesse caso trago um colchão maior; que a gente sabe viver junta, que aprendemos nesses vinte e três dias, brigando por um odre, por um atalho, por uma colher, a discordar sem que o mundo acabasse, e isso é mais do que muita gente aprende numa vida; que quando voltarmos vai ser difícil, vai ter o telhado, a assembleia, as famílias, o nosso próprio passado, e a gente aprenderá de novo, quantas vezes for preciso. Prometo.
 
-Estamos deitadas lado a lado, no chão, sobre uma manta, enroladas numa capa, olhando o céu. Não nos tocamos. Só sentimos o calor uma da outra.
+Ela se vira de lado e encosta a testa na minha, e sinto o hálito dela, cheiro de fumaça e de sal. Diz, num sussurro, que ainda não disse a palavra, e que eu também não, e que acha que a gente precisa merecer. Digo que acho que a gente já merece. Ela manda que eu diga primeiro. "Nem pensar", digo, e rimos baixinho com as testas coladas, ela me chama de covarde, eu a chamo de idiota, e as duas somos. Ficamos assim muito tempo, o fogo estalando, as estrelas girando devagar, uma coruja piando ao longe. Então ela pergunta, de repente, se, quando voltarmos, e se Calipso aparecer, eu direi a verdade, que a escolhi. Seguro o rosto dela com as duas mãos e respondo que escolhi no dia em que pedi a Hermes que me levasse para casa, no dia em que cortei o pinheiro, no dia em que arranquei o manto dela e o deixei afundar, que escolhi todas as vezes e vou escolher de novo, mesmo que seja a coisa mais difícil que já fiz. Ela fecha os olhos e uma lágrima escorre pela têmpora até o cabelo. "Então eu também escolho você. Não porque sou obrigada, nem porque te perdoei, nem porque tenho medo de ficar sozinha. Porque quero."
 
-— Eu quero te perguntar uma coisa — diz ela, por fim, sem me olhar. — Agora que acabou, agora que você está livre, agora que não tem mais nenhum deus atrás de você. Você ainda quer voltar? Para a casa, para a vida, para mim? Pergunto porque eu tenho medo. De que a gente chegue lá e tudo volte a ser como antes. De que eu volte a ficar esperando e você a ficar fugindo. De que a gente seja duas pessoas que se amam e não sabem viver juntas. Foi fácil aqui. Aqui não tem palácio, nem filhos, nem pretendentes, nem deuses, só a estrada e nós duas. Lá vai ser diferente, e eu preciso saber, antes de pisar naquele cais, se você ainda quer.
-
-— Quero, sem hesitar — respondo, virando-me de lado, olhando o perfil dela. — Mesmo que você nunca me perdoe, mesmo que me faça viver no quarto do menino para sempre, e nesse caso eu trago um colchão maior. A gente sabe viver juntas, Anne. Aprendemos nesses vinte e três dias, brigando por um odre, por um atalho, por uma colher. Aprendemos a discordar sem que o mundo acabasse, e isso é mais do que muita gente aprende em uma vida. Quando a gente voltar, vai ser difícil, vai ter o telhado, a assembleia, as famílias, o nosso próprio passado. E a gente vai aprender de novo, quantas vezes for preciso. Eu prometo.
-
-Ela vira-se de lado, encosta a testa na minha. Sinto o hálito dela, o cheiro de fumaça e sal.
-
-— Eu ainda não disse a palavra — sussurra. — E você também não. Eu acho que a gente precisa merecer.
-
-— Eu acho que a gente já merece.
-
-— Então diga você primeiro.
-
-— Nem pensar — respondo, e rimos, baixinho, com as testas coladas. — Covarde. — Idiota. — Duas.
-
-Ficamos assim, em silêncio, por muito tempo. O fogo estala, as estrelas giram devagar, uma coruja pia ao longe.
-
-— Quando voltarmos, e se a Calipso aparecer — diz ela, de repente. — Você ia dizer a verdade?
-
-— Qual?
-
-— Que me escolheu?
-
-— Escolhi — digo, segurando o rosto dela com as duas mãos. — Escolhi no dia em que pedi ao Hermes que me levasse para casa. Escolhi no dia em que cortei o pinheiro. Escolhi no dia em que arranquei o manto dela e o deixei afundar. Escolhi todas as vezes, e vou escolher de novo, mesmo que seja o mais difícil que eu já fiz.
-
-Ela fecha os olhos, e uma lágrima escorre.
-
-— Então eu também escolho você — diz, num sopro. — Não porque sou obrigada, nem porque te perdoei, nem porque tenho medo de ficar sozinha. Porque quero.
-
-Beija-me. Um beijo lento, seco de lágrimas, com gosto de fumaça e de esperança. Não vai além. Ficamos assim, abraçadas, sob o céu imenso, com o remo plantado ao lado, o altar esfriando, e o vento, que tinha parado, recomeçando a soprar, leve, da direção de onde viemos.
+Beija-me. É um beijo lento, seco de lágrimas, com gosto de fumaça e de esperança, e a mão dela fica um longo instante no meu pescoço, no ponto exato onde bate o pulso, e sinto o corpo inteiro responder, e sei que ela sente, e nenhuma das duas vai além, por uma espécie de pudor teimoso, de ritual, de quem sabe que existe uma coisa maior a merecer antes. Ficamos abraçadas sob o céu imenso, com o remo plantado ao lado, o altar esfriando, e o vento, que tinha parado, recomeçando a soprar, leve, da direção de onde viemos.
 
 ---
 
-Acordamos com o som de asas.
+Acordamos com um som de asas. Não é pássaro; é couro, ou seda, ou alguma coisa maior, batendo depressa contra o ar. Sento-me de súbito, com a mão na espada, e Anne também, e o céu a leste começa a clarear, cinzento, e contra ele, descendo em círculos, vejo uma figura que reconheço. Hermes pousa a dez passos, com o chapéu de viajante jogado para trás, o bastão de ouro na mão e as sandálias aladas batendo devagar. Parece cansado, tem olheiras, faz uma mesura rápida, sem o ar irônico de antes. Olha o altar, o remo, os restos do sacrifício, e diz que vê que o serviço foi feito: Poseidon está satisfeito, manda dizer que a dívida está paga e que posso dormir tranquila, e sorri, meio torto, acrescentando um *por ora.* Agradeço, e ele diz que não agradeça, que tem outra mensagem, e o sorriso some. Olha para Anne, depois para mim, e há no rosto dele uma coisa que não vi no primeiro encontro na praia de Ogígia, uma hesitação, o desconforto de quem traz más notícias. "É sobre a ninfa."
 
-Não é um pássaro. É couro, ou seda, ou alguma coisa maior, batendo depressa contra o ar. Sento-me, de súbito, com a mão na espada. A Anne também. O céu, a leste, começa a clarear, cinzento, e contra ele, descendo em círculos, vejo uma figura que reconheço.
+O mundo fica muito quieto. "Ela deixou Ogígia. Zeus a libertou, uma forma de compensação, digamos, por ter obrigado você a partir. É livre agora, pode ir aonde quiser." Pergunto aonde foi. Ele olha o chão, depois para mim. "A Ítaca." O ar me falta. Anne não se move, não respira, e sinto o corpo dela enrijecer dos pés à cabeça como uma corda de arco sendo tensionada, e o silêncio se estende, enorme. "Quando?", pergunta, e a voz é gelada. Há quatro dias, diz Hermes: chegou ao porto num barco emprestado, pediu para ver a rainha Anne, só ela, disse que era um assunto pessoal. Anne pergunta pelo Timóteo. Está bem, com a ama, a ninfa não falou com ele. Pergunta o que ela quer. "Acho", diz Hermes, devagar, escolhendo as palavras, "que quer o mesmo que você. Uma resposta."
 
-Hermes pousa a dez passos, com o chapéu de viajante jogado para trás, o bastão de ouro na mão e as sandálias aladas batendo devagar. Parece cansado. Tem olheiras. Faz uma mesura rápida, sem o ar irônico de antes.
+Anne fecha os olhos. Uma respiração funda. Quando os abre, vejo neles uma coisa que reconheço e que me gela: a calma terrível de quem acaba de tomar uma decisão. "Então vamos dar a ela. Vamos voltar. Hoje. Agora." Levanta-se, sacode a poeira do vestido. "Não vou deixar uma mulher que te amou sete anos esperando na minha casa." Tento dizer que não é isso, e ela me corta pelo nome e manda que eu junte as coisas. Olho aquela figura pequena de vestido empoeirado, com os cabelos soltos pelo vento e o rosto liso, sem expressão: a mulher que fez de uma lamparina uma declaração de guerra, que me perdoou em pedaços e me cobrou em tudo, que em vinte e três dias de estrada me ensinou a discordar sem que o mundo acabasse. Digo que vou com ela, até o fim. "Eu sei." E sorri, um sorriso pequeno, seco, terrível. "Mas desta vez eu falo primeiro."
 
-— Rainhas — diz.
+Hermes, atrás de nós, tosse baixinho e diz que poderia nos levar mais depressa. Voando. Anne pergunta se é possível, e ele diz que para ele sim, e para nós, e sorri pela primeira vez, digamos que tem contatos. Olho Anne, ela olha para mim, e no meio do planalto, com o altar esfriando e o remo plantado na terra, sinto uma coisa que não sentia havia muito tempo: vontade de rir. Um dia e uma noite, diz ele, erguendo o bastão.
 
-— Mensageiro — respondo.
-
-— Hermes.
-
-— Hermes.
-
-— Bom dia. — Olha o altar, o remo, os restos do sacrifício. — Vejo que o serviço foi feito.
-
-— Foi.
-
-— Poseidon está satisfeito. Mandou dizer que a dívida está paga. Que você pode dormir tranquila. — Sorri, meio torto. — Por ora.
-
-— Obrigada.
-
-— Não me agradeça. Tenho outra mensagem.
-
-O sorriso some. Ele olha para a Anne. Depois para mim. Há no rosto dele uma coisa que eu não vi no primeiro encontro, na praia de Ogígia: uma hesitação, um desconforto de quem traz más notícias.
-
-— Fale — digo.
-
-— É sobre a ninfa.
-
-O mundo fica muito quieto.
-
-— Calipso?
-
-— Ela deixou Ogígia.
-
-— Como?
-
-— Zeus a libertou. — Hermes dá de ombros. — Uma forma de compensação, digamos. Por ter obrigado você a partir. Ela é livre agora. Pode ir aonde quiser.
-
-— E foi aonde?
-
-Ele olha para o chão, e depois para mim.
-
-— A Ítaca.
-
-O ar me falta.
-
-A Anne, ao meu lado, não se move. Não respira. Sinto o corpo dela se enrijecer, dos pés à cabeça, como uma corda de arco sendo tensionada. O silêncio se estende, enorme.
-
-— Quando? — pergunta ela, e a voz é gelada.
-
-— Há quatro dias.
-
-— Quatro.
-
-— Chegou ao porto num barco emprestado. Pediu para ver você, rainha Anne. Só você.
-
-— Por quê?
-
-— Não sei. — Hermes hesita. — Disse que era um assunto pessoal.
-
-— E o Timóteo?
-
-— Está bem. Com a ama. A ninfa não falou com ele.
-
-— O que ela quer?
-
-— Acho — diz Hermes, devagar, escolhendo as palavras — que quer o mesmo que você.
-
-— O que é?
-
-— Uma resposta.
-
-A Anne fecha os olhos. Uma respiração funda. Quando os abre, vejo neles uma coisa que reconheço, e que me gela: a calma terrível de quem acaba de tomar uma decisão.
-
-— Então vamos dar a ela — diz.
-
-— Anne...
-
-— Vamos voltar. Hoje. Agora. — Levanta-se, sacode a poeira do vestido. — Não vou deixar uma mulher que amou você sete anos esperando na minha casa.
-
-— Não é...
-
-— Emily.
-
-— Sim.
-
-— Junte suas coisas.
-
-Olho-a. Uma figura pequena, de vestido empoeirado, com os cabelos soltos pelo vento e o rosto liso, sem expressão. A mulher que fez de uma lamparina uma declaração de guerra. A que me perdoou em pedaços e me cobrou em tudo. A que, em vinte e três dias de estrada, me ensinou a discordar sem que o mundo acabasse.
-
-— Eu vou com você — digo.
-
-— Eu sei.
-
-— Até o fim.
-
-— Eu sei. — Ela sorri, um sorriso pequeno, seco, terrível. — Mas desta vez, eu falo primeiro.
-
-Hermes, atrás de nós, tosse baixinho.
-
-— Eu poderia levá-las mais depressa — diz.
-
-— Como? — pergunta a Anne.
-
-— Voando.
-
-— Isso é possível?
-
-— Para mim, sim. Para vocês... — Ele sorri, pela primeira vez. — Digamos que tenho contatos.
-
-Olho a Anne. Ela olha para mim. E no meio do planalto, com o altar esfriando e o remo plantado na terra, eu sinto uma coisa que não sentia havia muito tempo: a vontade de rir.
-
-— Quanto tempo? — pergunta a Anne.
-
-— Um dia.
-
-— Um dia?
-
-— Um dia e uma noite. — Ele ergue o bastão. — Segurem-se.
+"Segurem-se."

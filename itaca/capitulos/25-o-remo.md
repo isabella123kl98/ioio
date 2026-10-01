@@ -22,43 +22,7 @@ Doze. Uma para cada navio.
 
 Ninguém me manda parar. Euricleia me olha de longe, com os braços cruzados, balançando a cabeça. O Eumeu, sem dizer nada, aparece com uma pá, e trabalha ao meu lado, em silêncio, até o anoitecer. Os criados, que no começo me evitavam, vão aos poucos se acostumando com a mulher de cabelo curto que cava canteiros de dia e dorme no quarto de um menino de noite. Uma delas, Melanto, a de dezoito anos, para uma tarde diante de mim, com uma jarra de água nas mãos, e me olha, a princípio sem dizer nada.
 
-— A senhora precisa beber — diz, por fim.
-
-— Obrigada.
-
-— Eu sinto muito.
-
-— Pelo quê?
-
-— Pelo que fiz. — Os olhos dela se enchem de lágrimas. — A rainha me perdoou. Mas eu queria pedir à senhora.
-
-Olho para ela. Uma menina magra, de trança preta, de olhos assustados, que passou dez anos numa casa cheia de homens armados e aprendeu a sobreviver do único jeito que sabia. Penso na promessa que fiz à Anne, na beira do alpendre, e que ainda não cumpri.
-
-— Você tem quantos anos? — pergunto.
-
-— Dezoito.
-
-— Quando chegou aqui?
-
-— Aos doze.
-
-— E a primeira vez que um deles te tocou?
-
-Ela abaixa os olhos.
-
-— Aos catorze.
-
-Fecho os olhos.
-
-— Então eu é que tenho de pedir desculpa — digo.
-
-Ela levanta a cabeça, atônita.
-
-— A senhora?
-
-— Eu devia ter estado aqui. Devia ter te protegido. — Pego a jarra, bebo um gole, devolvo. — Não estive. Então a dívida é minha.
-
-Melanto me olha, sem entender. Depois, devagar, a expressão se desmancha, e ela começa a chorar, em silêncio, curvada, com a jarra apertada contra o peito. Não a abraço. Sinto que não devo. Fico ali, ao lado, até ela parar, e depois volto a cavar o canteiro.
+Disse que eu precisava beber, e eu agradeci, e ela, com os olhos se enchendo de lágrimas, disse que sentia muito, pelo que fizera: a rainha a perdoara, mas queria pedir também a mim. Olhei aquela menina magra, de trança preta e olhos assustados, que passou dez anos numa casa cheia de homens armados e aprendeu a sobreviver do único jeito que sabia, e pensei na promessa que fiz a Anne na beira do alpendre e que ainda não cumprira. Perguntei quantos anos tinha, e quando chegou, e quando um deles a tocou pela primeira vez; ela respondeu dezoito, aos doze, aos catorze, abaixando os olhos a cada resposta, e eu fechei os meus. "Então sou eu que tenho de pedir desculpa. Eu devia ter estado aqui. Devia ter te protegido. Não estive, e a dívida é minha." Peguei a jarra, bebi um gole e devolvi. Melanto me olhou sem entender, e devagar a expressão se desfez, e ela começou a chorar em silêncio, curvada, com a jarra apertada contra o peito. Não a abracei; senti que não devia. Fiquei ao lado até ela parar, e voltei a cavar o canteiro.
 
 É a primeira vez em onze dias que sinto, por um instante, que alguma coisa se ajeitou.
 
@@ -76,87 +40,9 @@ Não é uma tempestade. O céu está limpo, sem nuvens, cheio de estrelas. O ven
 
 Sei quem é.
 
-— Poseidon — digo, em voz alta.
+"Poseidon", digo em voz alta, e o mar se eleva. Não como onda, como uma coisa só, uma montanha d'água que se ergue na escuridão da baía e toma contornos de rosto: imenso, de barbas de espuma, olhos de ressaca, boca aberta num rugido surdo, e sinto o peso do olhar em cada osso. A voz é o som de mil ondas quebrando ao mesmo tempo. Chama-me filha de Laertes, saqueadora de cidades, matadora de pretendentes, e diz que devo uma dívida, porque cegei o filho dele, porque gritei o meu nome, e que paguei dez anos, mas não o bastante. Fico em silêncio, o coração lento e pesado, as ondas frias batendo nos tornozelos. Ele pergunta se lembro a instrução de Tirésias, e eu a repito sem tremer: devo pegar um remo e caminhar com ele ao ombro até uma terra onde ninguém conheça o mar, onde um homem me pergunte por que carrego uma pá de joeirar, e ali fincá-lo na terra e oferecer sacrifícios a ele; e depois, paz. "Sim", diz o deus, e a voz suaviza, como onda que se retira. "Mas não penso que seja a você que eu deva perdoar. Penso que é a ela, à mulher que te espera."
 
-O mar se eleva.
-
-Não como onda, mas como uma coisa só, uma forma, uma montanha d'água que se ergue na escuridão da baía e toma contornos de rosto. Um rosto imenso, de barbas de espuma, de olhos de ressaca, de boca aberta num rugido surdo. Olha-me. Sinto o peso do olhar em cada osso.
-
-— Emily — diz a voz, e a voz é o som de mil ondas quebrando ao mesmo tempo. — Filha de Laertes. Saqueadora de cidades. Matadora de pretendentes.
-
-— Senhor.
-
-— Você me deve uma dívida.
-
-— Eu sei.
-
-— Você cegou o meu filho.
-
-— Sei.
-
-— Você gritou o seu nome.
-
-— Sei.
-
-— Você pagou durante dez anos. Mas não o bastante.
-
-Fico em silêncio. Sinto o coração bater, lento, pesado. Sinto as ondas baterem nos meus tornozelos, frias. A voz do deus rola sobre mim como uma maré.
-
-— Tirésias lhe deu uma instrução — continua ele. — Você a lembra?
-
-— Lembro.
-
-— Diga.
-
-— Devo pegar um remo — digo, e a voz me sai firme, sem tremer — e caminhar com ele sobre o ombro até uma terra onde ninguém conheça o mar. Onde um homem me pergunte por que carrego uma pá de joeirar. E ali, fincar o remo na terra, e oferecer sacrifícios a você.
-
-— E depois?
-
-— Depois, paz.
-
-— Sim.
-
-— Quando?
-
-— Quando você quiser. — A voz do deus suaviza, um pouco, como uma onda que se retira. — Mas não penso que seja a você que eu deva perdoar. Penso que é a ela.
-
-— A quem?
-
-— À mulher que te espera.
-
-O ar me falta.
-
-— A Anne?
-
-— A que acende a lamparina. — A boca imensa se abre num sorriso de espuma. — Eu vi, você sabe. Sempre vejo. A luz pequena, na torre, toda noite. Dez anos. Até um deus se comove. — Faz uma pausa. — Eu poderia ter afundado você mil vezes. Não afundei. Sabe por quê?
-
-— Não.
-
-— Por causa dela. — O rosto se inclina, e eu vejo nos olhos de ressaca uma coisa que não esperava: uma espécie de ternura irônica. — Ela rezou uma vez. Só uma. No primeiro ano. Subiu à torre e rezou a mim, não a Zeus, nem a Atena, nem a nenhum outro. Disse: *Senhor do mar, eu não sei o que a minha esposa fez para te ofender. Mas se você a afundar, eu morro. E se você a deixar viver, eu prometo nunca pedir nada de novo.*
-
-Sinto as lágrimas descerem pelo meu rosto.
-
-— Ela nunca pediu.
-
-— Nunca.
-
-— Por quê?
-
-— Porque cumpriu a promessa. — O deus sorri. — E eu também.
-
-O mar se acalma, pouco a pouco. As ondas diminuem. A espuma se dispersa. O rosto imenso se dissolve, como fumaça na luz da lua.
-
-— Vá, Emily — diz a voz, mais fraca, mais longe. — Pegue o remo. Caminhe. E leve-a.
-
-— Quem?
-
-— Quem você quiser.
-
-E é só o mar de novo, liso, prateado, com as estrelas se refletindo na superfície. Fico parada na areia, com os pés na água, o coração aos saltos, olhando a escuridão onde, um minuto antes, havia um rosto.
-
-*Ela rezou.*
-
-Uma vez. Só uma. E nunca pediu de novo.
+O ar me falta. "A que acende a lamparina", diz a boca imensa, num sorriso de espuma. "Eu vi, você sabe. Sempre vejo. A luz pequena na torre, toda noite, dez anos. Até um deus se comove. Eu poderia ter afundado você mil vezes, e não afundei, e sabe por quê? Por causa dela." O rosto se inclina, e vejo nos olhos de ressaca uma coisa que não esperava, uma ternura irônica. "Ela rezou uma vez. Só uma, no primeiro ano. Subiu à torre e rezou a mim, não a Zeus, nem a Atena, nem a nenhum outro. Disse: *senhor do mar, eu não sei o que a minha esposa fez para te ofender. Mas se você a afundar, eu morro. E se você a deixar viver, eu prometo nunca pedir nada de novo.*" As lágrimas descem pelo meu rosto. Digo que ela nunca pediu. "Nunca. Porque cumpriu a promessa. E eu também." O mar se acalma, pouco a pouco, as ondas diminuem, a espuma se dispersa, o rosto imenso se dissolve como fumaça na luz da lua. "Vá, Emily. Pegue o remo. Caminhe. E leve-a." Pergunto quem. "Quem você quiser." E é só o mar de novo, liso, prateado, com as estrelas refletidas, e eu parada na areia com os pés na água e o coração aos saltos, olhando a escuridão onde um minuto antes havia um rosto. *Ela rezou.* Uma vez. Só uma. E nunca pediu de novo.
 
 Sento-me na areia, e choro, e rio, e choro de novo, até o céu começar a clarear.
 
@@ -198,21 +84,7 @@ Fico imóvel, olhando-a: a mulher de vestido verde, com os braços caídos, o qu
 
 Ponho o remo no chão, devagar, apoiando-o na parede. Levanto a mão e toco o rosto dela. Ela não recua. Sinto a pele fria, úmida, o tremor leve que percorre o corpo dela.
 
-— Tem certeza? — sussurro. — Vai ser difícil. Vamos brigar. Você vai me odiar de novo, várias vezes.
-
-— Desde o primeiro dia — diz ela, com um sorriso fraco. — E vou te perdoar, ou não, e vou estar lá quando descobrir. Se você me deixar de novo, mentirosa — e a palavra, na boca dela, é a primeira vez em dez anos que soa como carinho —, eu te mato.
-
-— Justo.
-
-— Eu falo sério.
-
-— Eu sei. — Fecho os olhos, encosto a testa na dela. Ficamos assim, no alpendre, com o sol baixando, o vento sacudindo as oliveiras novas, o remo encostado na parede, sem nos beijar, sem nos abraçar, só com as testas coladas, respirando o mesmo ar. Sinto, muito de leve, os lábios dela roçarem os meus e se afastarem. Um toque de mariposa. Uma promessa, não um beijo.
-
-— Amanhã, ao amanhecer — diz. — Leve comida. Eu levo a água.
-
-— Levo o remo.
-
-— É o que você faz de melhor.
+"Tem certeza?", sussurro. "Vai ser difícil. Vamos brigar. Você vai me odiar de novo, várias vezes." Ela sorri, fraco, e diz que desde o primeiro dia, que vai me perdoar ou não e estará lá quando descobrir, e que se eu a deixar de novo, mentirosa, e a palavra na boca dela é a primeira vez em dez anos que soa como carinho, me mata. Digo que é justo. Ela diz que fala sério. "Eu sei." Fecho os olhos e encosto a testa na dela, e ficamos assim no alpendre, com o sol baixando, o vento sacudindo as oliveiras novas, o remo encostado na parede, sem nos beijar, sem nos abraçar, só com as testas coladas, respirando o mesmo ar, e sinto, muito de leve, os lábios dela roçarem os meus e se afastarem, um toque de mariposa, uma promessa, não um beijo. "Amanhã, ao amanhecer. Leve comida. Eu levo a água." "Levo o remo." "É o que você faz de melhor."
 
 Afasta-se, dá dois passos, vira-se, e vejo nos olhos dela uma coisa que não via havia dez anos, que é medo e esperança e cansaço e teimosia, tudo junto, sem forma. Sai, desce os degraus do alpendre, atravessa o pátio, com o vestido verde balançando. No portão, para, sem se virar, e levanta a mão num gesto curto que podia ser um adeus ou um *até logo.* E desaparece.
 

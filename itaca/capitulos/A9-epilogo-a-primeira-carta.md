@@ -74,49 +74,11 @@ Ela se levantou.
 
 Foi até a janela. Ficou lá, de costas, olhando o mar, com os braços cruzados. Eu, na cama, sem respirar. Um minuto. Dois. Cinco.
 
-— Você o matou para não sermos descobertos — disse, por fim, sem se virar.
+— Você o matou para não sermos descobertos — disse, por fim, sem se virar. — Para salvar os outros. E depois mentiu à mãe dele, e não porque lhe faltasse coragem, Emily, você não é covarde, é muitas coisas, mas nisso não. Mentiu porque era a coisa mais gentil que podia fazer com uma velha que perdera o filho, e porque sabia que a verdade não lhe devolveria nada.
 
-— Sim.
+Eu disse que era uma desculpa. Ela atravessou o quarto, sentou-se na beira da cama e pegou a minha mão, e disse que era uma explicação, e que não ia me dizer que foi certo nem que foi errado: foi uma coisa que aconteceu numa noite de guerra, dentro de uma caixa de madeira, com trinta homens prestes a morrer, e eu decidi em um segundo e carreguei por dez anos, e isso era pena suficiente. Perguntei a quem cabia dizer. "A ele", respondeu, com um sorriso triste. "E a ele você já pediu desculpa, aposto." Todas as noites. "Então ele já sabe."
 
-— Para salvar os outros.
-
-— Sim.
-
-— E a mãe dele.
-
-— Menti a ela.
-
-— Por quê?
-
-— Porque não tive coragem.
-
-— Você não é covarde.
-
-— Sou.
-
-— Não é. — Ela se virou. — Você é muitas coisas. Mas nisso não. Você mentiu porque era a coisa mais gentil que podia fazer com uma velha que perdera o filho. E porque sabia que a verdade não lhe devolveria nada.
-
-— Isso é uma desculpa.
-
-— É uma explicação.
-
-— Para mim é igual.
-
-— Não é. — Ela atravessou o quarto, sentou-se na beira da cama, pegou a minha mão. — Emily. Eu não vou te dizer que foi certo. Nem que foi errado. Foi uma coisa que aconteceu numa noite de guerra, dentro de uma caixa de madeira, com trinta homens prestes a morrer. Você decidiu em um segundo. E carregou por dez anos. Isso é pena suficiente.
-
-— Não é.
-
-— Não cabe a mim dizer.
-
-— A quem cabe?
-
-— A ele. — Ela sorriu, triste. — E a ele você já pediu desculpa, aposto.
-
-— Todas as noites.
-
-— Então ele já sabe.
-
-Fiquei calada. Senti as lágrimas descerem. Ela se deitou ao meu lado, abraçou-me, e ficamos assim, em silêncio, até amanhecer.
+Fiquei calada. Senti as lágrimas descerem. Ela se deitou ao meu lado e me abraçou, e ficamos assim, em silêncio, até amanhecer.
 
 Foi a última coisa que eu tinha para contar.
 
@@ -140,19 +102,7 @@ Não ouvi tudo. Só pedaços. Mas ouvi uma frase, no fim, que a rainha disse à 
 
 A Anne assentiu. Não disse nada. Mas na volta, no navio, deitada ao meu lado na cabine, olhando o teto, ela falou, de repente:
 
-— Eu escolho você.
-
-— Hoje?
-
-— Hoje.
-
-— Amanhã?
-
-— Se eu me lembrar.
-
-— Isso é justo.
-
-— Eu sei.
+— Eu escolho você — disse. Perguntei se hoje, e ela disse que hoje; perguntei se amanhã, e ela disse que se se lembrasse. Isso é justo, eu disse. Ela disse que sabia.
 
 ---
 
