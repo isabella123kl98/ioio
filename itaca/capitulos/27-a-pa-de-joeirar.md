@@ -230,145 +230,33 @@ Os pastores se foram. O velho também, mas antes me deu um saco de grãos, sem e
 
 Estamos deitadas lado a lado, no chão, sobre uma manta, enroladas numa capa, olhando o céu. Não nos tocamos. Só sentimos o calor uma da outra.
 
-— Emily.
+— Eu quero te perguntar uma coisa — diz ela, por fim, sem me olhar. — Agora que acabou, agora que você está livre, agora que não tem mais nenhum deus atrás de você. Você ainda quer voltar? Para a casa, para a vida, para mim? Pergunto porque eu tenho medo. De que a gente chegue lá e tudo volte a ser como antes. De que eu volte a ficar esperando e você a ficar fugindo. De que a gente seja duas pessoas que se amam e não sabem viver juntas. Foi fácil aqui. Aqui não tem palácio, nem filhos, nem pretendentes, nem deuses, só a estrada e nós duas. Lá vai ser diferente, e eu preciso saber, antes de pisar naquele cais, se você ainda quer.
 
-— Sim.
+— Quero, sem hesitar — respondo, virando-me de lado, olhando o perfil dela. — Mesmo que você nunca me perdoe, mesmo que me faça viver no quarto do menino para sempre, e nesse caso eu trago um colchão maior. A gente sabe viver juntas, Anne. Aprendemos nesses vinte e três dias, brigando por um odre, por um atalho, por uma colher. Aprendemos a discordar sem que o mundo acabasse, e isso é mais do que muita gente aprende em uma vida. Quando a gente voltar, vai ser difícil, vai ter o telhado, a assembleia, as famílias, o nosso próprio passado. E a gente vai aprender de novo, quantas vezes for preciso. Eu prometo.
 
-— Eu quero te dizer uma coisa.
+Ela vira-se de lado, encosta a testa na minha. Sinto o hálito dela, o cheiro de fumaça e sal.
 
-O coração me dá um tranco.
-
-— Diga.
-
-— Agora que acabou — ela respira fundo. — Agora que você está livre. Agora que não tem mais nenhum deus atrás de você. — Faz uma pausa. — Você ainda quer voltar?
-
-Viro-me de lado. Olho-a. Ela olha as estrelas, com o rosto sério, tenso.
-
-— Para Ítaca?
-
-— Para a casa. Para a vida. Para mim.
-
-— Sim.
-
-— Sem hesitar?
-
-— Sem hesitar.
-
-— Mesmo que eu nunca te perdoe?
-
-— Mesmo.
-
-— Mesmo que eu te faça viver no quarto do menino para sempre?
-
-— Posso trazer um colchão maior.
-
-Ela ri, sem querer, um riso curto. Depois o riso se apaga.
-
-— Eu tenho medo — diz, baixinho.
-
-— De quê?
-
-— De voltar. De que a gente chegue lá, e tudo volte a ser como antes. De que a gente esqueça. — Engole. — De que eu volte a ficar esperando, e você a ficar fugindo. De que a gente seja duas pessoas que se amam e não sabem viver juntas.
-
-— A gente sabe.
-
-— Não sabe.
-
-— Sabe. Aprendeu nesses vinte e três dias.
-
-— Foi fácil aqui. — Ela vira o rosto. Seus olhos brilham à luz do fogo. — Aqui não tem ninguém. Não tem palácio, nem filhos, nem pretendentes, nem deuses. Só a estrada, e nós duas. Lá vai ser diferente.
-
-— Vai.
-
-— Então?
-
-— Então a gente aprende de novo. — Seguro a mão dela. — Quantas vezes for preciso.
-
-Ela me olha, demoradamente. Depois, devagar, vira-se de lado, e encosta a testa na minha. Sinto o hálito dela. Sinto o cheiro de fumaça e de sal e de pele limpa.
-
-— Eu ainda não disse — sussurra.
-
-— O quê?
-
-— A palavra.
-
-— Eu também não.
-
-— Por quê?
-
-— Porque a gente precisa merecer.
-
-— Você acha?
-
-— Acho.
+— Eu ainda não disse a palavra — sussurra. — E você também não. Eu acho que a gente precisa merecer.
 
 — Eu acho que a gente já merece.
 
-— Então diga.
+— Então diga você primeiro.
 
-— Diga você.
+— Nem pensar — respondo, e rimos, baixinho, com as testas coladas. — Covarde. — Idiota. — Duas.
 
-— Você primeiro.
+Ficamos assim, em silêncio, por muito tempo. O fogo estala, as estrelas giram devagar, uma coruja pia ao longe.
 
-— Nem pensar.
-
-Rimos, baixinho, com as testas coladas.
-
-— Covarde — digo.
-
-— Idiota.
-
-— Duas.
-
-— Duas.
-
-Ficamos assim, em silêncio, por muito tempo. O fogo estala. As estrelas giram devagar. Em algum lugar, muito longe, uma coruja pia.
-
-— Emily.
-
-— Sim.
-
-— Quando voltarmos, e a Calipso...
-
-O ar me falta.
-
-— O quê?
-
-— Você acha que ela ainda pensa em você?
-
-— Não sei.
-
-— Se ela aparecesse.
-
-— Não vai.
-
-— Mas se aparecesse.
-
-— Eu... — Hesito. — Eu ia dizer a verdade.
+— Quando voltarmos, e se a Calipso aparecer — diz ela, de repente. — Você ia dizer a verdade?
 
 — Qual?
 
-— Que eu te escolhi.
+— Que me escolheu?
 
-— Você me escolheu?
+— Escolhi — digo, segurando o rosto dela com as duas mãos. — Escolhi no dia em que pedi ao Hermes que me levasse para casa. Escolhi no dia em que cortei o pinheiro. Escolhi no dia em que arranquei o manto dela e o deixei afundar. Escolhi todas as vezes, e vou escolher de novo, mesmo que seja o mais difícil que eu já fiz.
 
-— Escolhi. — Seguro o rosto dela com as duas mãos. — Escolhi no dia em que pedi ao Hermes que me levasse para casa. Escolhi no dia em que cortei o pinheiro. Escolhi no dia em que arranquei o manto dela e o deixei afundar. Escolhi todas as vezes. E vou escolher de novo.
+Ela fecha os olhos, e uma lágrima escorre.
 
-Ela fecha os olhos. Uma lágrima escorre.
-
-— Promete?
-
-— Prometo.
-
-— Mesmo que seja difícil?
-
-— Mesmo que seja o mais difícil que eu já fiz.
-
-— Então eu também.
-
-— Você também o quê?
-
-— Escolho. — A voz dela é um sopro. — Escolho você. Não porque sou obrigada, nem porque te perdoei, nem porque tenho medo de ficar sozinha. Porque quero.
+— Então eu também escolho você — diz, num sopro. — Não porque sou obrigada, nem porque te perdoei, nem porque tenho medo de ficar sozinha. Porque quero.
 
 Beija-me. Um beijo lento, seco de lágrimas, com gosto de fumaça e de esperança. Não vai além. Ficamos assim, abraçadas, sob o céu imenso, com o remo plantado ao lado, o altar esfriando, e o vento, que tinha parado, recomeçando a soprar, leve, da direção de onde viemos.
 

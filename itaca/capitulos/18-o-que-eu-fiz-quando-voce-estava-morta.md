@@ -30,301 +30,104 @@ Ela obedece. O trinco estala.
 
 Não há onde. O único banco é o meu. A cama é a cama. Ela hesita, olha em volta, depois, devagar, senta-se no chão, de costas para a oliveira, com as pernas cruzadas, como uma criança, e levanta os olhos para mim. Fico um tempo em silêncio, olhando para ela do alto.
 
-— Você quer saber uma coisa — digo.
 
-— Quero saber tudo.
+— Você quer saber uma coisa — digo. — Uma só. Você perguntou ao Timóteo, perguntou a Euricleia, perguntou a si mesma de noite, no estábulo, deitada ao lado de um cachorro, e a pergunta é sempre a mesma, embora você a vista de outras. Você quer saber se eu também.
 
-— Não. Você quer saber uma coisa. Uma só. Você perguntou ao Timóteo, você perguntou a Euricleia, você perguntou a si mesma de noite, no estábulo, com o cachorro. Você quer saber se eu também.
+O corpo dela se enrijece, como o de quem ouve o próprio nome gritado numa rua vazia.
 
-O corpo dela se enrijece.
+— Anne — diz, com a voz quase sem som. — Eu não tenho o direito de perguntar.
 
-— Anne...
+— Não perguntou. Eu estou respondendo. Foi a Nísia. Uma noite só, na sexta primavera, depois que um mercador de Corinto jurou que doze cascos de proa vermelha tinham afundado ao largo de Malea, e eu soube, com a certeza de quem vê o próprio sangue, que eram os seus. Eu tinha trinta e dois anos, um filho de seis, cinquenta homens à minha mesa e nenhuma pessoa no mundo a quem pudesse dizer que você estava morta. Fui a pé, descalça, no escuro, até a casa de pedra do fim da ilha, onde havia uma janela acesa, e bati, e a porta se abriu. Sei o que você quer me perguntar agora, e sei que vai se calar para me poupar, e é por isso que eu mesma lhe respondo: eu não fui forçada, nem enganada, nem seduzida. Fui porque quis, porque estava cansada, porque ela me olhou como uma pessoa e eu havia esquecido o que era isso.
 
-— Responda.
+Ela fecha os olhos. Quando os abre, vejo o que esperava, o medo, a vergonha, e a vontade enorme de ouvir e de não ouvir.
 
-— Eu não tenho o direito de perguntar.
+— Como foi? — pergunta, num fio.
 
-— Não perguntou. Eu estou respondendo.
+A pergunta me atinge como uma bofetada. Olho para ela, sentada no chão do meu quarto, encolhida, à espera, e entendo, com uma frieza que não esperava ter, que ela veio para isso. Quer ouvir o pior. Quer pagar. E se eu der, ela terá pago, e poderá me olhar sem culpa e dizer *estamos quites.*
 
-Ela fecha os olhos por um segundo. Quando os abre, vejo neles o que esperava: o medo, a vergonha, a vontade, enorme, de ouvir e de não ouvir.
+— Não vou contar — digo. — Você não tem o direito de saber como foi. Só de saber que foi. Eu lhe disse isso para ver a sua cara, Emily. Para ver o que você faria: se gritaria, se choraria, se me bateria, se me perdoaria logo por cansaço, se me odiaria. Para saber quem você é agora, depois de dez anos, e se ainda é a mulher que me olhou no molhe e perguntou em silêncio o que eu queria. E você está sentada aí, com cara de quem levou uma surra, aceitando tudo, sem uma palavra de defesa. Nem um *eu também.* Nem um *eu entendo.* Nada.
 
-— Nísia — diz, rouca.
+— Foi culpa minha — diz ela.
 
-— Sim.
+— Não me venha com isso. Você não vai aceitar a culpa, não vai se ajoelhar, não vai se flagelar, não vai me dar a chance de dizer *está tudo bem.* Porque não está. Eu quero estar com raiva, e você está me tirando o direito, com essa humildade que é só outra forma de poder.
 
-O silêncio que se segue é tão completo que ouço as ondas.
+Ela se levanta. Ficamos frente a frente, a um passo, com a luz vermelha do poente entre nós.
 
-— Uma vez? — pergunta ela, finalmente, e a voz é só fio.
+— Então grite comigo — diz. — Bata, me ofenda, faça o que quiser. Eu aguento.
 
-— Uma.
+— Eu sei que aguenta! — grito, e empurro-a no peito com as duas mãos, e ela recua meio passo sem resistir. — É isso que me enlouquece. Você sempre aguentou tudo: Troia, o mar, o ciclope, os deuses. Aguenta qualquer coisa, menos ficar. Menos escolher ficar. Você diz que a guerra a levou, mas a guerra a levou porque você deixou, porque Ítaca era pequena demais para você e eu era pequena demais para Ítaca, e porque no fundo, no lugar onde não mentimos, você queria ir.
 
-— Quando?
+— Isso não é verdade — diz, e segura os meus pulsos, não com força, só para me deter. — Eu não queria. Fingi loucura, Anne. Semeei sal na praia diante de vinte homens, só para ficar. E você sabe quem me mandou embora, no fim, com uma mão no meu rosto e o filho no colo.
 
-— Na sexta primavera.
+— Cale-se.
 
-— Por quê?
+— Você pediu que eu fosse. E eu fui, e passei dez anos carregando o que você me pediu como se fosse só meu, porque era mais fácil do que lhe dizer que também doeu em você.
 
-— Porque um mercador de Corinto disse que você estava morta.
+— Cale-se! — A raiva me sobe como uma onda. — Você não vai pôr em mim o que é seu. Eu pedi que fosse porque você ia morrer se ficasse e porque eu não sabia que ia ser dez anos. Dez anos, Emily. Dormi dez anos de um lado só da cama. Podia ter apagado a lamparina no primeiro ano, ter aceitado o Antínoo, ter dito que a rainha estava morta e ficado com a coroa, o filho e o palácio. Por que não fiz?
 
-Ela abaixa a cabeça. Vejo os ombros dela se curvarem, como se tivessem levado um peso.
+— Por quê? — pergunta ela, com a voz tremendo.
 
-— Eu sei que não tenho o direito — diz, baixinho.
+Olho para aquele rosto molhado, para os olhos claros, para a boca entreaberta. Sinto o pulso dela batendo nos meus dedos, rápido, igual ao meu.
 
-— Não tem.
+— Porque sou uma idiota — digo. — Porque te amei desde aquela manhã, no molhe, quando você disse que eu era alta. Porque te amei nas noites em que você não estava e nas em que estava. Porque te amo agora, com a cara inchada e o sangue de cento e oito homens nas mãos, e isso me deixa com tanta raiva que não sei o que fazer com o corpo.
 
-— Mas preciso saber.
-
-— O quê?
-
-— Como foi.
-
-A pergunta me atinge como uma bofetada. Olho para ela. Para aquela mulher sentada no chão, com a cabeça baixa, e uma necessidade absurda, cruel, de se machucar mais, de ouvir o pior, de pagar. E compreendo, com uma clareza fria, que ela quer que eu conte. Que ela veio para isso. Que está pronta para receber o castigo, e que isso, o desejo de ser punida, é uma forma de conforto.
-
-Não lhe darei esse conforto.
-
-— Não — digo.
+O silêncio cai sobre nós, e eu vejo a esperança atravessar o rosto dela como uma ave assustada.
 
 — Anne...
 
-— Não vou contar. Você não tem o direito de saber. Você só tem o direito de saber que aconteceu.
+— Cale a boca — digo, e não sei quem se move primeiro.
 
-— Então por que me disse?
+A boca dela encontra a minha com uma violência que não é beijo, é choque, dente contra dente, hálito contra hálito, soluço contra soluço. Sinto o gosto de sal, de sangue, de lágrima, de dez anos. Agarro o cabelo curto dela e puxo, e ela geme contra a minha boca, e as mãos dela me puxam pela cintura, e eu sinto o corpo dela contra o meu, real, sólido, quente, nem sonho, nem fantasma, nem disfarce. Empurro-a contra a oliveira. O tronco range. Enfio os dedos na gola da túnica dela e rasgo, não para despi-la, para sentir, e beijo o pescoço, a clavícula, o ombro enfaixado, com os dentes, sem delicadeza, como quem quer deixar marcas. Ela segura a minha cabeça e diz o meu nome, baixinho, várias vezes, *Anne, Anne, Anne*, como uma reza.
 
-— Porque eu queria ver sua cara.
+— Você me deixou — digo contra a pele dela. — Dez anos.
 
-Ela levanta os olhos.
+— Eu sei. Eu sinto muito. Eu sinto tanto, coruja.
 
-— Queria ver o que você ia fazer — continuo. — Se ia gritar, se ia chorar, se ia me bater. Se ia fazer uma cena, como sempre faz. Se ia me perdoar logo, por cansaço. Se ia me odiar. Queria saber quem você era agora, depois de dez anos. Se ainda era a mulher que me olhou no molhe e perguntou em silêncio o que eu queria.
+As mãos dela desatam os laços do meu vestido com dedos que tremem, e o tecido escorrega pelos meus ombros, e ela me olha inteira à luz vermelha do fim do dia, como quem vê uma coisa que perdeu e achou. O polegar dela passa pela cicatriz da minha sobrancelha.
 
-— E quem sou?
-
-— Não sei. — A voz me falha. — Você está sentada no chão do meu quarto, com a cara de quem levou uma surra, e não disse uma palavra. Nem um *eu também.* Nem um *eu entendo.* Nem um *foi culpa minha.* Nada.
-
-— Foi culpa minha.
-
-— Não me venha com isso agora.
-
-— Foi...
-
-— Não. — Levanto-me. — Não, Emily. Você não vai fazer isso. Não vai aceitar a culpa, não vai se ajoelhar, não vai se flagelar, não vai me dar a chance de dizer *está tudo bem.* Porque não está. Porque eu não quero dizer isso. Porque eu quero estar com raiva, e você está me tirando o direito.
-
-Ela se levanta também. Ficamos frente a frente, a um passo, no meio do quarto, com a luz vermelha do poente entre nós.
-
-— Então grite comigo — diz ela. — Bata. Me ofenda. Faça o que quiser. Eu aguento.
-
-— Eu sei que aguenta! É isso que me enlouquece!
-
-— Por quê?
-
-— Porque você sempre aguenta! — Dou um passo, e empurro-a no peito com as duas mãos. Ela recua, meio passo, sem resistir. — Porque você sempre aguentou tudo! Troia, o mar, o ciclope, os deuses! Você aguenta qualquer coisa, menos ficar. Menos escolher ficar!
-
-— Eu não escolhi ir.
-
-— Escolheu sim!
-
-— A guerra...
-
-— Você escolheu a guerra! — Empurro de novo. — Você podia ter ficado. Podia ter dito ao meu pai, ao seu pai, ao rei de Micenas, que tinha um filho de dois meses e uma esposa. Podia ter mandado outro. Mas não. Foi, porque queria ir. Porque Ítaca era pequena demais para você. Porque eu era pequena demais.
-
-— Isso não é verdade.
-
-— É a única verdade que importa!
-
-Ela segura os meus pulsos. Não com força. Só para me deter. Sinto as mãos dela em volta dos meus ossos, as palmas calejadas, quentes, familiares, e a raiva me sobe como uma onda que quebra.
-
-— Me solta.
-
-— Não.
-
-— Me solta, Emily.
-
-— Não até você me ouvir.
-
-— Eu não quero ouvir!
-
-— Então grite. — A voz dela treme. — Mas não me mande embora.
-
-— Eu devia!
-
-— Devia.
-
-— Eu devia mandar você para o mar de novo! Devia deixar que os deuses fizessem o que quisessem! Devia ter apagado a lamparina no primeiro ano! Devia ter aceitado o Antínoo! Ter dormido com todos eles, um por um, e dito que a rainha Emily estava morta! Ter ficado com a coroa e o filho e o palácio e nunca mais esperar ninguém!
-
-— Por que não fez?
-
-A pergunta me para.
-
-Olho para ela. Para aquele rosto molhado, para os olhos claros, para a boca entreaberta. Sinto o pulso dela batendo nos meus dedos, rápido, igual ao meu.
-
-— Porque eu sou uma idiota — digo, e a voz me quebra. — Porque te amo, Emily. Porque te amei desde aquela manhã, no molhe, quando você me disse que eu era alta. Porque te amei nas noites que você não estava, e nas que estava. Porque te amo agora, com a cara inchada e o sangue de cento e oito homens nas mãos. E isso me deixa com tanta raiva que eu não sei o que fazer.
-
-O silêncio cai sobre nós.
-
-Ela me olha. Sinto o aperto dos dedos dela se afrouxar. Vejo os olhos dela se encherem de lágrimas, e uma coisa atravessar-lhe o rosto, que é esperança e medo ao mesmo tempo.
-
-— Anne...
-
-— Cale a boca.
-
-— Eu...
-
-— *Cale a boca.*
-
-Não sei quem se move primeiro.
-
-A boca dela encontra a minha com uma violência que não é beijo, é choque, dente contra dente, hálito contra hálito, soluço contra soluço. Sinto o gosto de sal, de sangue, de lágrima, de dez anos. Agarro o cabelo curto dela com as duas mãos e puxo, com força, e ela geme contra a minha boca, e as mãos dela me agarram pela cintura, me puxam, e eu sinto o corpo dela contra o meu, o corpo real, sólido, quente, que não é sonho, nem fantasma, nem disfarce. Sinto as costelas, a cicatriz da lança, o coração batendo como um animal encurralado.
-
-Empurro-a contra a oliveira. O tronco range. Ela solta um som abafado quando as costas batem na casca, e eu enfio os dedos na gola da túnica dela e rasgo, não para despi-la, para sentir, e a pele dela aparece, pálida, marcada de cicatrizes novas, e eu beijo o pescoço, a clavícula, o ombro enfaixado, com os dentes, sem delicadeza, como quem quer deixar marcas. Ela segura a minha cabeça. Diz o meu nome, baixinho, várias vezes, *Anne, Anne, Anne*, como uma reza.
-
-— Você me deixou — digo, contra a pele dela.
-
-— Eu sei.
-
-— Você me deixou sozinha.
-
-— Eu sei.
-
-— Dez anos.
-
-— Eu sei. Eu sei. Eu sinto muito.
-
-As mãos dela sobem pelas minhas costas, desatam os laços do vestido com dedos que tremem, e eu sinto o tecido escorregar pelos meus ombros, e o ar frio me arrepiar. Ela me olha. Olha-me inteira, à luz vermelha do fim do dia, como quem vê uma coisa que perdeu e achou. Levanta a mão. Toca o meu rosto. O polegar dela passa pela cicatriz da sobrancelha.
-
-— Você envelheceu — diz, num sopro.
-
-— Você também.
-
-— Está mais bonita.
+— Você envelheceu — diz, num sopro. — Está mais bonita.
 
 — Você está mentindo.
 
 — Nunca menti sobre isso.
 
-E é esse o momento em que a porta do meu controle cede. Não a raiva. A outra coisa, a que estava embaixo dela, a que eu tinha enterrado tão fundo que já nem sabia que existia: o desejo. Um desejo antigo, cru, de dez anos de fome, que me sobe pelas pernas, pelo ventre, pela garganta, e me faz querer arrancar aquelas roupas, e cair com ela naquela cama, e esquecer tudo.
-
-Ela percebe. Sinto-o no modo como a respiração dela muda, como os dedos apertam os meus quadris. Inclina-se. A boca dela desce pelo meu pescoço, pelo meu peito, a língua quente e lenta no meu seio, e eu agarro os ombros dela, e fecho os olhos, e um gemido me escapa, rouco, desamparado.
-
-E então, atrás das pálpebras, como uma faca, vejo outra coisa.
-
-Uma cama estreita, coberta de peles. Uma mulher de cabelos castanhos, com os olhos cor de mel, dizendo: *você é linda.* Uma casa de pedra. Uma noite. Uma mão diferente.
-
-E vejo também outra imagem, que nunca vi, e que eu mesma construí durante dez anos de insônia: Emily numa gruta, com outra mulher, rindo.
+E é aí que a porta do meu controle cede. Não a raiva. A outra coisa, a que estava embaixo dela, que eu enterrara tão fundo que já nem sabia que existia: o desejo, antigo, cru, dez anos de fome, subindo pelas pernas, pelo ventre, pela garganta. A boca dela desce pelo meu peito, quente e lenta, e eu fecho os olhos, e um gemido me escapa. E então, atrás das pálpebras, como uma faca, vejo uma cama estreita coberta de peles, uma mulher de olhos cor de mel dizendo *você é linda*, e vejo também a outra imagem, a que eu mesma construí em dez anos de insônia: Emily numa gruta, com outra mulher, rindo.
 
 Abro os olhos.
 
 — Pare — digo.
 
-Ela para imediatamente. Sinto o corpo dela congelar, a respiração presa. Fica imóvel, com a boca ainda no meu peito, a mão no meu quadril.
+Ela para no mesmo instante, com a boca ainda no meu peito. Eu a empurro. Ela recua, tropeça, bate de costas na oliveira, ofegante, com a túnica rasgada e os lábios inchados, sem entender.
 
-— Pare.
+— Não assim — digo, tremendo, cobrindo-me com os braços. — Não com isso entre nós. Eu não vou me deitar com você para esquecer, nem vou usá-la como esqueci aquela outra noite, como esqueci tudo. Não vou transformar a cama no lugar onde a gente não conversa. Você ainda não me contou a ninfa, e eu só lhe contei uma parte da Nísia, de modo que nós duas estamos com uma mentira entre os corpos, e se nos deitarmos agora vamos fingir que ela não está ali. Eu quero ouvir você, e quero que você me ouça, e quando nós duas tivermos dito tudo, e doer, e ainda quisermos, então.
 
-Empurro-a. Ela recua, tropeça, bate de costas na oliveira. Fica ali, ofegante, com a túnica rasgada, os lábios inchados, os olhos enormes, sem entender.
-
-— Eu não...
-
-— Não assim — digo.
-
-— O que...?
-
-— Não assim. Não com isso entre nós. — Tremo inteira, com as mãos apertando os braços, tentando me cobrir. — Eu não vou me deitar com você para esquecer. Não vou usar você como esqueci ela, como esqueci tudo. Não vou transformar a cama no lugar onde a gente não conversa.
-
-— Anne, eu...
-
-— Você ainda não me contou.
-
-O rosto dela se contrai.
-
-— Eu ia...
-
-— Você ia. Sempre ia. — Puxo o vestido sobre os ombros, com dedos desajeitados, atando os laços de qualquer jeito. — Mas não contou. E eu também não, não tudo, só uma parte. Então nós duas estamos com uma mentira entre os corpos, e se nos deitarmos agora, vamos fingir que não está ali.
-
-— Então conte.
-
-— O quê?
-
-— Conte como foi. Eu aguento.
+— Então conte a Nísia — diz ela, com a voz firme, apesar das lágrimas. — Eu aguento. Conte a noite, conte tudo, e eu escuto de pé, e depois você me escuta.
 
 — Você não aguenta.
 
-— Eu aguento. Conte a Nísia, conte a noite, conte tudo. Eu escuto.
+— Aguento, Anne. Mas não agora, você não está pronta, e eu também não estou. — Ela respira fundo. — Prometo que conto. Quando eu tiver coragem. Não por covardia, mas porque quero dizer inteiro, não aos pedaços, e ainda não sei como.
 
-— E você me conta a ninfa.
+— Então eu também — digo. — Quando você contar.
 
-Silêncio.
+Ficamos as duas ali, em lados opostos do quarto, olhando-nos como duas feras cansadas. O sol já desceu. Ouço, em algum lugar da casa, uma criança rindo baixinho.
 
-Ela abaixa os olhos. Vejo a garganta dela mexer, engolindo.
+— O que fazemos agora? — pergunta ela, e a pergunta é tão pequena que quase não a ouço.
 
-— Conto — diz, por fim. — Mas não agora.
+Não sei. Pela primeira vez em vinte anos não tenho plano, nem contas, nem cálculo. Só esta mulher, esta cama, esta raiva e este amor, tudo junto, sem forma.
 
-— Quando?
+— Você vai sair do palácio — digo, por fim. — Vá ver o seu pai. Laertes vive no sítio dos fundos da ilha e nem sabe que você voltou, e eu não vou deixar que ele morra sem saber. Eu fico, porque tenho uma casa para reorganizar, famílias para visitar e um reino para segurar, e faço isso há dez anos. Preciso pensar, e não consigo pensar no mesmo ar que você respira. Volte quando eu mandar chamar.
 
-— Quando eu tiver coragem.
+— E se você não mandar? — pergunta.
 
-— Então eu também.
-
-Ficamos as duas ali, em lados opostos do quarto, olhando-nos como duas feras cansadas. O sol já desceu. A luz que resta é cinza, suave, triste. Ouço o mar. Ouço, em algum lugar da casa, uma criança rindo baixinho, o Timóteo, talvez, com o cachorro.
-
-— O que fazemos agora? — pergunta ela, muito baixo.
-
-Não sei. Esse é o ponto. Pela primeira vez em vinte anos, não sei. Não tenho plano, nem contas, nem cálculo. Só esta mulher, esta cama, esta raiva, este amor, tudo junto, sem forma.
-
-— Você vai sair do palácio — digo, afinal.
-
-O rosto dela se fecha.
-
-— Por quê?
-
-— Porque eu preciso pensar. E porque não consigo pensar com você aqui, no mesmo ar. — Levanto os olhos. — Vá ver o seu pai.
-
-— Laertes?
-
-— Ele vive no sítio, nos fundos da ilha. Ninguém o avisou. Ele nem sabe que você voltou. Você não pode deixá-lo morrer sem saber.
-
-— E você?
-
-— Eu fico. Tenho uma casa para reorganizar. Famílias para visitar. Um reino para segurar. — Dou de ombros, com uma leveza que não sinto. — Faço isso há dez anos.
-
-— Vou voltar.
-
-— Eu sei.
-
-— Quando?
-
-— Quando eu mandar chamar.
-
-Ela olha para mim. Um longo olhar, cheio de coisas.
-
-— E se você não mandar?
-
-— Então você volta mesmo assim.
+— Então volte mesmo assim.
 
 Ela sorri, pela primeira vez, um sorriso pequeno, trêmulo, torto.
 
-— Isso eu sei fazer — diz.
+— Isso eu sei fazer. — Caminha até a porta e para, com a mão na maçaneta, sem se virar. — A lamparina. Você apagou. Posso acender?
 
-Caminha até a porta. Para. Com a mão na maçaneta, sem se virar, pergunta:
+— Não — digo. — Ainda não.
 
-— A lamparina. Você apagou.
-
-Não respondo de imediato. Olho o gancho, vazio de luz, o bronze escuro contra o céu.
-
-— Apaguei.
-
-— Por quê?
-
-— Porque você voltou.
-
-— Posso acender?
-
-A pergunta é tão baixa que quase não escuto.
-
-— Não — digo. — Não ainda.
-
-Ela assente, devagar.
-
-— Está bem.
-
-Abre a porta. Sai. Ouço os passos dela descendo as escadas, um por um, contando, eu sei, os quarenta e um degraus, como sempre fez.
+Ela assente, devagar. Abre a porta, sai, e eu ouço os passos dela descendo as escadas um a um, contando, eu sei, os quarenta e um degraus.
 
 Fico sozinha no quarto escuro, com o vestido mal atado, os lábios inchados, o coração aos pulos. Vou até a janela. Olho o pátio. Vejo-a atravessar, devagar, sob as primeiras estrelas, com as mãos nos bolsos, sem olhar para trás. Um cachorro cinzento a acompanha, rente às pernas. Uma criança, pequena, de camisola, corre do fundo do pátio e a alcança, e eles param. Conversam. Não ouço o que dizem. Vejo só o menino estender a mão, hesitante, e ela pegá-la, e os dois seguirem juntos para a porta do portão.
 

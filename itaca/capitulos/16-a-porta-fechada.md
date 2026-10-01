@@ -22,79 +22,21 @@ Euricleia bate à porta ao anoitecer.
 
 Três batidas curtas, o sinal de sempre. Não respondo. Ela espera. Bate de novo. Fico parada, olhando as minhas mãos, que não tremem mais. Do outro lado da madeira, ouço o suspiro dela, arrastado, e o ruído dos joelhos velhos ao se dobrarem, e sei que ela se sentou no chão do corredor, com as costas na porta, como fazia quando eu tinha dezesseis anos e me trancava no quarto por raiva.
 
-— Menina — diz, baixo, sem levantar a voz. — Eu sei que você está aí.
+— Menina — diz, baixo, sem levantar a voz. — Eu sei que você está aí, e não vou pedir que abra, e não vou pedir que fale. Só vou ficar sentada aqui. Trouxe pão, queijo, um pouco de caldo de galinha, que você não vai comer, e deixo tudo na porta, como fazia quando você tinha dezesseis anos e batia o pé no chão porque a Emily tinha chegado atrasada ao jantar e você ainda não sabia que ia amá-la. Eu estive em todas as suas fúrias, menina. Estive na do véu torto, na da taça, na do navio que você mandou preparar e não embarcou. Conheço essa. É a pior, porque não tem barulho. Uma raiva que não grita é uma raiva que está pensando, e uma mulher que pensa com raiva é capaz de qualquer coisa. Eu só queria que você soubesse que, seja o que for que você decida lá dentro, eu estarei do lado de cá, e que a decisão, quando vier, não precisa vir hoje.
 
-— Vá embora, ama.
+— Vá embora, ama — digo, e a minha voz sai tão pequena que me assusto.
 
-— Não vou.
-
-— Então fique calada.
-
-— Também não.
-
-Quase sorrio. Quase.
-
-— Trouxe comida — continua ela. — Pão, queijo, um pouco de caldo de galinha. Você não comeu nada o dia todo. Deixo aqui na porta, e você pega quando quiser.
-
-— Não quero.
-
-— Então deixo assim mesmo. — O ruído de uma bandeja no chão. — Vou ficar sentada aqui. Se você quiser falar, eu escuto. Se quiser gritar, eu escuto. Se quiser só ficar quieta, eu também fico.
-
-Fecho os olhos. Sinto o nó subir à garganta.
-
-— Onde ela está?
-
-Silêncio. O mesmo silêncio com que Euricleia sempre escolhe as palavras.
-
-— Lavando-se — diz, por fim. — Eumeu e o menino trouxeram água do poço para ela. Ela tem um corte feio na cabeça, e o ombro inchado. Pedi que deixasse eu cuidar, e ela recusou. Disse que tinha coisa mais importante.
-
-— O quê?
-
-— Mandou separar os corpos. Os dos nobres de Same e de Zacinto para um lado, os de Ítaca para outro. Disse que cada família deve receber os seus mortos com honra, sem vingança, sem ofensa. Que ela mesma falará com os pais, amanhã, ou depois. — Euricleia hesita. — Mandou também enterrar o Antínoo numa cova à parte, com os pés voltados para o leste.
-
-— Por quê?
-
-— Eu perguntei. Ela respondeu que o menino que carregou o escudo dela também merecia um lugar.
-
-Não respondo. Aperto os braços em volta dos joelhos.
-
-— Tem mais uma coisa — diz a velha, e a voz dela muda de tom, endurece. — As criadas.
-
-O ar da sala fica imóvel.
-
-— Que criadas?
-
-— As doze que dormiram com eles. As que levaram vinho e recado. As que riram de você. — Ouço-a engolir. — Eu contei a ela. Ela perguntou quais eram, e eu disse. Desculpe, menina. Eu devia ter esperado você decidir. Mas ela me olhou de um jeito...
-
-— Que jeito?
-
-— O de Troia.
-
-O estômago me vira. Levanto-me de repente e vou até a porta, e encosto a testa na madeira.
-
-— O que ela disse?
-
-— Mandou reuni-las no pátio. Doze mulheres. Mandou que carregassem os corpos para fora, e que lavassem o sangue do chão, e que depois... — A voz de Euricleia falha. — Que depois fossem enforcadas.
+— Não vou. Mas tenho que lhe contar uma coisa antes, porque se eu não contar, você vai saber por outra boca e vai me odiar. Ela está lavando-se, lá no pátio, com a água que o Eumeu e o menino trouxeram do poço. Tem um corte feio na cabeça, o ombro inchado, as mãos em carne viva. Pedi que me deixasse cuidar e ela recusou, disse que tinha coisa mais importante, e mandou separar os corpos: os de Same e de Zacinto para um lado, os de Ítaca para outro, para que cada família receba os seus sem ofensa e sem vingança. Mandou enterrar o Antínoo numa cova à parte, com os pés voltados para o leste, e quando perguntei por quê, respondeu que o menino que carregou o escudo dela merecia um lugar. Eu, que a conheço desde que ela era do tamanho de um pão, nunca a vi tão perto de quebrar, nem tão decidida a não quebrar. E é por isso que lhe digo o resto, que é o pior. Ela mandou reunir as doze criadas no pátio. As que dormiram com eles, as que levaram vinho e recado, as que riram de você. Eu mesma lhe disse os nomes, perdoe-me, porque ela me olhou do jeito de Troia e eu não soube mentir. Ela vai enforcá-las ao amanhecer, e está esperando só uma coisa para dar a ordem, que é você.
 
 Abro a porta.
 
-Não sei como. O ferrolho cede na minha mão, e eu a escancaro de uma vez, e a velha, sentada no chão, cai para trás, com um grito abafado. Olho para baixo. Euricleia me olha, o rosto molhado de lágrimas, os olhos cor de chumbo enormes.
+Não sei como. O ferrolho cede na minha mão, e eu a escancaro de uma vez, e a velha, que estava encostada nela, cai para trás com um grito abafado. Olho para baixo. Euricleia me olha, o rosto molhado, os olhos cor de chumbo enormes, e eu sinto uma fúria tão limpa que por um instante o mundo se estreita num único ponto branco, insuportável.
 
-— Quando? — pergunto.
+— Onde ela está? — pergunto.
 
-— Ao amanhecer.
+— No pátio dos fundos, menina. Mas pense antes de...
 
-— Ela já...?
-
-— Ainda não. Está esperando.
-
-— Esperando o quê?
-
-— Você.
-
-Fico parada, com a mão na porta, olhando o corredor escuro. O vento entra pela janela do fim do corredor e sacode a chama da tocha. Sinto uma fúria tão grande, tão limpa, que por um momento o mundo se estreita num único ponto, branco, brilhante, insuportável.
-
-Desço as escadas correndo.
+Já estou descendo.
 
 ---
 
@@ -110,103 +52,31 @@ Ela levanta a cabeça. Vê-me. O corpo inteiro se contrai, como se tivesse levad
 
 — Anne — diz.
 
-— Você vai enforcar doze mulheres.
+— Você vai enforcar doze mulheres — digo, e a minha voz atravessa o alpendre como uma lâmina bem afiada. — Vai enforcá-las ao amanhecer, sem me consultar, como decidiu tudo o que decidiu desde que cruzou aquele portão, e vai achar que me fez um favor. Mas elas não são suas, Emily. Ficaram aqui dez anos, enquanto você não estava, e eu as alimentei, as vesti, as protegi, ouvi cada uma chorar de noite atrás de uma porta. Sei o que fizeram e sei por quê. Uma delas tem dezoito anos e foi tocada pela primeira vez aos catorze. Outra se deitou com Antínoo em troca de pão para a mãe doente. Uma riu quando o mercador contou da ninfa, e riu porque era rir ou gritar, e se tivesse gritado alguém a teria batido. Eu teria rido também, se estivesse no lugar delas. Você acha que escolheram? Você acha que, se tivessem a menor escolha, teriam feito o que fizeram? Você olhou do morro, você me disse, viu uma delas no colo de um homem e não soube se era riso de quem quer ou de quem tem medo. Então por que não perguntou? Porque você nunca pergunta. Você olha, decide, executa, e espera que eu agradeça. Dez anos você me ensinou isso, a esperar que a sua decisão chegasse e a engolir, e eu estou cansada de engolir.
 
-Ela não responde de imediato. Olha-me, muito quieta, sem piscar.
+Ela se levanta. É mais alta do que eu lembrava, ou sou eu que encolhi. Ficamos a um passo uma da outra, com a luz da tocha tremendo nos nossos rostos, e sinto o cheiro dela, sangue seco, fumaça, sabão de oliva, e por baixo, discreto, o cheiro da pele, que eu reconheceria em qualquer escuridão.
 
-— Eu ia esperar você.
+— Você tem razão — diz, e a voz dela desce, fica rouca, quase mansa. — Não devia ter decidido. Devia ter esperado você, e eu sei que devia, e sei que tentei e não consegui. Mas deixe-me dizer por que, coruja, e depois você faz o que quiser comigo. Quando cheguei aqui, eu só queria uma coisa: que alguém me dissesse o que fazer. Estive dez anos decidindo sozinha, no mar, no escuro, entre deuses e monstros, e a única pessoa que podia ter decidido por mim era você, e você estava a uma ilha de distância acendendo uma lamparina. Quando vi aquela casa cheia de homens, quando vi o forno do pátio virado fogueira, quando vi o Argos no estrume, eu perdi o que tenho de mais cuidadoso, que é a paciência. E decidi. Decidi depressa, como decido tudo, porque se eu parar, a vergonha me alcança. Eu sei que não é desculpa. Sei que é só uma explicação. Mas você quer que eu peça perdão por ter tentado, e eu não sei pedir perdão por ter tentado, porque tentar foi a única coisa que me restou fazer.
 
-— Esperar eu decidir?
-
-— Esperar você chegar.
-
-— Como sempre. — A palavra me sai como uma cusparada. — Sempre esperando, e eu sempre chegando. E a decisão, essa, sempre foi sua.
-
-— Anne...
-
-— Elas não são suas.
-
-— São minhas criadas.
-
-— São minhas. — A voz me sobe, sem controle. — Ficaram aqui, durante dez anos, enquanto você não estava. Eu as alimentei, eu as vesti, eu as protegi, eu as ouvi chorar de noite. Eu sei o que fizeram e sei por quê. Uma delas tem dezoito anos. Uma delas foi violada aos quatorze. Uma delas deitou-se com Antínoo em troca de um pedaço de pão para a mãe doente. Você acha que elas escolheram? Você acha que, se tivessem escolha, teriam feito o que fizeram?
-
-— Elas riram de você.
-
-— Claro que riram! — grito. — Riram porque era isso ou chorar! Riram porque eram mulheres sozinhas numa casa cheia de homens armados! Riram porque, se não rissem, alguém as batia! Eu teria rido também!
-
-— Eu vi — diz ela, e a voz dela treme. — Eu vi do morro. Uma delas estava no colo de um homem e ria. Não sabia se era riso de quem quer ou de quem tem medo.
-
-— Então por que não perguntou?
-
-— Porque...
-
-— Porque você sempre sabe. Você sempre sabe tudo, não é? Sabe quem é culpado, quem é inocente, quem merece viver e quem merece morrer. Sabe sem perguntar, sem esperar, sem me consultar.
-
-Ela se levanta. É mais alta do que eu lembrava, ou sou eu que encolhi. Ficamos a um passo uma da outra, a luz da tocha tremendo sobre os nossos rostos. Sinto o cheiro dela: sangue seco, fumaça, sabão de oliva, e por baixo, discreto, o cheiro da pele, que eu reconheceria em qualquer escuridão.
-
-— Você tem razão — diz ela.
-
-— O quê?
-
-— Você tem razão. Eu não devia ter decidido. Eu devia ter esperado. — Respira fundo. — Mas estou cansada, Anne. Estou tão cansada... Quando cheguei aqui, eu queria só uma coisa. Queria que alguém me dissesse o que fazer. Que alguém decidisse por mim. E ninguém decidiu, e eu decidi, e... agora você quer que eu peça desculpas por ter tentado.
-
-— Não quero que peça desculpas. Quero que escute.
-
-— Estou escutando.
-
-— Não está. Está esperando a sua vez de falar.
-
-— Eu só...
-
-— Você só queria o perdão. Queria que eu abrisse a porta, e chorasse, e dissesse que estava tudo bem. Que a matança foi necessária. Que as doze mulheres mereciam morrer. Que tudo isso foi um gesto de amor. — Dou um passo adiante. — Mas não foi. Foi um gesto de vaidade. Você voltou e quis ser herói. Como sempre.
-
-O rosto dela empalidece. Um músculo salta no maxilar.
-
-— Isso não é justo.
-
-— Não?
-
-— Eu matei por você.
-
-— Você matou por você. Por ter ficado fora tanto tempo. Por ter deixado eles entrarem. Pela culpa. — As lágrimas me descem pelo rosto, quentes, furiosas. — Você me deixou sozinha com eles. Eu os aguentei durante dez anos, cada dia, cada noite, e você volta e os mata em duas horas, e acha que está me devolvendo alguma coisa. Mas não está. Você está se devolvendo a si mesma.
-
-— Anne...
-
-— Cale-se.
-
-— Anne, por favor, escute...
+— Não quero que peça perdão por ter tentado — respondo, e sinto que a voz me escapa, que sobe, que vira quase grito. — Quero que me escute. Você voltou e quis ser herói, como sempre. Matou cento e oito homens em duas horas, e eu estava lá, Emily, eu vi, e sei exatamente o que senti, que não foi gratidão. Foi o sentimento de quem passou dez anos construindo uma coisa com as duas mãos, tijolo por tijolo, mentira por mentira, noite por noite, e vê alguém chegar e derrubá-la de uma só vez, achando que a está salvando. Eu os aguentei dez anos. Cada dia, cada noite, cada gesto. Aprendi a calar para que não me tocassem, a sorrir para que não me batessem, a tecer e desfazer um pano inteiro para ganhar uma estação, e você volta e os mata como quem apaga uma vela e acha que está me devolvendo alguma coisa. Mas não está. Você está se devolvendo a si mesma. Você matou por culpa, e matou bem, e agora quer matar as doze que restam para terminar o serviço, e eu não vou deixar. Eu não vou deixar que a culpa que é sua seja paga com o corpo delas.
 
 A mão sai sozinha.
 
-Não decido. Não penso. O braço sobe, e desce, e o som é tão alto, tão seco, tão inteiro, que faz eco no pátio vazio. A palma da minha mão arde. A cabeça dela vira para o lado com o golpe, e fica assim, virada, por um longo segundo, com a marca vermelha dos meus dedos aparecendo aos poucos na bochecha.
+Não decido. O braço sobe e desce, e o som é tão alto, tão seco, tão inteiro, que faz eco no pátio vazio. A palma me arde. A cabeça dela vira para o lado, e fica assim, virada, por um longo segundo, enquanto a marca vermelha dos meus dedos aparece devagar na bochecha. Ela não levanta a mão. Não recua. Fica de olhos fechados, com a face exposta, e uma lágrima desliza por cima da marca.
 
-Ela não levanta a mão. Não recua. Não diz uma palavra. Fica ali, de cabeça virada, de olhos fechados, e eu vejo uma lágrima escorrer, devagar, pelo rosto dela, passando por cima da marca.
-
-— Isso — diz, muito baixo, sem abrir os olhos. — Isso eu mereci.
+— Isso eu mereci — diz, muito baixo.
 
 — Eu sei.
 
 — Pode fazer de novo.
 
-— Não quero.
+— Quero — digo, e a voz me falha. — Quero bater em você até não sobrar braço, quebrar cada osso, arrancar os seus olhos, e quero também abraçar você e chorar no seu ombro até o dia amanhecer, e dizer que senti tanta falta que achei que ia morrer. As duas coisas ao mesmo tempo, Emily, na mesma respiração, e não sei qual das duas vai vencer, e isso me enlouquece. Você me deixou com uma raiva que não cabe em mim e um amor que também não cabe, e os dois brigam o tempo todo, e eu não sei mais quem sou no meio deles.
 
-— Quer.
+Ela abre os olhos. Olha-me, com o rosto molhado, e eu vejo nela a mulher do molhe, de vinte anos, com os pés descalços no cais, perguntando em silêncio o que eu queria.
 
-— Quero. — A voz me falha. — Quero bater em você até não sobrar braço. Quero quebrar cada osso do seu corpo. Quero arrancar os seus olhos. E quero abraçar você, e chorar no seu ombro, e dizer que senti tanta falta que achei que ia morrer. E não sei qual das duas vai vencer. E isso me enlouquece.
+— Eu ia contar tudo hoje — diz. — Troia, o menino, o silêncio, o que eu não disse em dez anos. Estava sentada aqui esperando que você descesse, com tudo na ponta da língua, e se você me deixar, eu conto agora, sem pular nada, sem proteger nada.
 
-Ela abre os olhos. Olha-me, com o rosto molhado, e eu vejo nela uma coisa que não vejo há dez anos: a mulher do molhe, de vinte anos, com os pés descalços no cais, perguntando em silêncio *o que você quer?*
-
-— Anne — diz, baixinho. — Eu nunca contei tudo. Sobre Troia, sobre...
-
-— Eu sei.
-
-— Eu queria contar. Hoje. Agora.
-
-— Não.
-
-— Por favor.
-
-— Não. — Dou um passo para trás. — Não vou ouvir em pedaços. Não vou ouvir do jeito que você escolher, na hora que você escolher, com as palavras que você escolher. Dez anos você escolheu. Agora é a minha vez.
+— Não — digo. — Não vou ouvir em pedaços, nem do jeito que você escolher, na hora que você escolher, com as palavras que você escolher. Dez anos você escolheu. Agora é a minha vez de decidir quando ouvir, e eu decido que não é hoje.
 
 — Então quando?
 
@@ -214,43 +84,15 @@ Ela abre os olhos. Olha-me, com o rosto molhado, e eu vejo nela uma coisa que n�
 
 — E se nunca quiser?
 
-— Então nunca.
+— Então nunca — respondo, e viro as costas, porque se ficar mais um minuto eu cedo. — As criadas não serão enforcadas. Nem hoje, nem amanhã, nem nunca. Serão castigadas como eu decidir, e você não vai se meter.
 
-Ela fecha os olhos de novo. O queixo treme.
+— Está bem — diz ela, atrás de mim. — É a sua casa.
 
-— Eu espero — diz.
-
-— Você já disse isso.
-
-— Desta vez é verdade.
-
-— Você sempre diz que é verdade.
-
-Viro-me. Sinto que, se ficar mais um minuto, vou ceder. Caminho até a beira do alpendre, e paro, de costas, olhando o pátio escuro onde as carroças passam levando mortos.
-
-— As criadas não serão enforcadas — digo, sem me virar.
-
-— Anne...
-
-— Elas não serão enforcadas. Nem hoje, nem amanhã, nem nunca. Serão castigadas como eu decidir. E você não vai se meter.
-
-Silêncio. O vento sacode a palha do teto.
-
-— Está bem — diz ela.
-
-— Está bem?
-
-— Está bem. Você tem razão. É a sua casa.
-
-— Nossa.
-
-A palavra me sai sozinha. Fico imóvel, com o coração batendo, esperando que ela a agarre.
+— Nossa — digo, sem pensar, e fico imóvel, com o coração batendo, esperando que ela agarre a palavra.
 
 — Nossa — repete ela, e a voz quebra no meio.
 
-Não me viro. Não digo mais nada. Atravesso o pátio, entro na casa, subo as escadas, e quando chego à porta do quarto, encontro a bandeja de Euricleia ainda intacta no chão, com o pão seco, o queijo, o caldo frio. Pego-a. Entro. Tranco a porta.
-
-Sento-me na beira da cama, com a bandeja no colo, e como tudo, sem sentir o gosto, engolindo cada bocado com uma raiva surda, metódica, até não sobrar nada.
+Não me viro. Atravesso o pátio, entro na casa, subo as escadas, e quando chego à porta do quarto encontro a bandeja de Euricleia no chão, com o pão seco e o caldo frio. Pego-a. Entro. Tranco a porta. Sento-me na beira da cama, com a bandeja no colo, e como tudo, sem sentir o gosto, engolindo cada bocado com uma raiva surda e metódica, até não sobrar nada.
 
 ---
 

@@ -170,221 +170,51 @@ Escolho um tronco de freixo, reto, sem nós, na encosta atrás do palácio. Derr
 
 Quando termino, é a tarde do terceiro dia. Fico olhando o remo, apoiado na parede do alpendre, brilhando ao sol. Pego-o. Coloco-o ao ombro. Pesa exatamente o que deve.
 
-— É bonito — diz uma voz atrás de mim.
+— É bonito — diz uma voz atrás de mim, e eu a reconheço com os ossos.
 
-Não me viro. Conheço essa voz. Conheço-a com os ossos.
+Não me viro de imediato. Quando me viro, ela está de pé na entrada do alpendre, com o vestido verde escuro, o cabelo preso, os braços cruzados, e uma expressão que não consigo ler. Olha o remo. Olha-me. Sinto o coração parar e recomeçar, em pancadas surdas. Dezessete dias, desde que me disse *eu aviso*, e não trocamos uma palavra que não fosse de ordem prática. Agora está aqui, a cinco passos.
 
-— Obrigada — digo.
+— Vai partir — diz. — Para um lugar onde ninguém conheça o mar, como disse o Tirésias, e você nunca me contou que ia cumprir. Pensei que talvez se esquecesse, ou que o tempo bastasse, ou que, depois da bofetada e da febre e da ninfa, você já tivesse pago tudo o que um homem ou um deus podia cobrar. Mas você ficou aqui, três dias, esculpindo uma pá de freixo com as mãos em carne viva, e eu fiquei olhando da janela, e entendi que ia partir de qualquer jeito, só esperando que alguém lhe pedisse para ficar. E eu não ia pedir. Eu tinha prometido a mim mesma que não pediria mais nada a ninguém.
 
-— Vai partir?
+— O mar me chamou — respondo. — Poseidon apareceu na praia, há três noites, e disse que você rezou. No primeiro ano. Que subiu à torre e rezou a ele, não a Zeus, nem a Atena, a ele, e disse: *Senhor do mar, eu não sei o que a minha esposa fez para te ofender, mas se você a afundar, eu morro, e se você a deixar viver, eu prometo nunca mais pedir nada.* E que cumpriu a promessa. Nunca pediu um navio, um vento, uma notícia. Nada. Para não quebrar o trato.
 
-— Vou.
+O rosto dela se desfaz, devagar, primeiro os olhos, depois a boca, que se abre e se fecha, e as mãos, que se soltam e caem em punhos.
 
-— Quando?
+— Ele não tinha o direito de contar — diz. — Era meu. A única prece que fiz. Nunca contei a ninguém, nem à Euricleia, nem à Nísia, nem a mim mesma. Rezei a ele porque era o único que podia te matar, e achei que, se eu fosse direta, sem rodeios, sem pedir favores, ele entenderia. Entendeu. Por isso nunca pedi mais nada, nem para você voltar, nem para você escrever. Dez anos de silêncio que eu me impus por contrato, e você me diz agora que um deus ficou sabendo.
 
-— Amanhã.
+— Eu sinto muito — digo.
 
-— Para onde?
-
-— Não sei. — Viro-me devagar. — Para um lugar onde ninguém conheça o mar.
-
-Ela está de pé na entrada do alpendre, com o vestido verde escuro, o cabelo preso, o rosto liso. Tem os braços cruzados, e uma expressão que não consigo ler. Olha o remo. Olha-me. Sinto o coração parar, e depois recomeçar, em pancadas surdas.
-
-Onze dias. Doze. Treze. Dezessete. Desde que me disse *eu aviso*, não trocamos uma palavra que não fosse de ordem prática. *Bom dia. O Eumeu precisa de você no estábulo. O menino comeu. Boa noite.* Vi-a cruzar o pátio, de longe, ao amanhecer, com o passo reto de sempre, e desviar os olhos. Vi-a à mesa, calada. Vi-a na janela, à noite, de costas, acendendo a lamparina.
-
-Agora está aqui, a cinco passos, e me olha.
-
-— Tirésias — diz.
-
-— Tirésias.
-
-— Você me contou.
-
-— Contei.
-
-— Não me disse que ia cumprir.
-
-— Não sabia se ia.
-
-— E agora sabe?
-
-— Sei.
-
-— Por quê?
-
-— Porque o mar me chamou.
-
-Ela levanta uma sobrancelha.
-
-— O mar?
-
-— Poseidon. Apareceu na praia, há três noites. Falou comigo.
-
-— O que disse?
-
-Hesito. Olho o remo. Olho para ela.
-
-— Disse que você rezou — digo, baixinho. — No primeiro ano. Que pediu que ele me deixasse viver. E que prometeu nunca pedir nada de novo.
-
-O rosto dela se desfaz.
-
-Não de uma vez. Primeiro, os olhos. Uma umidade, um tremor. Depois a boca, que se abre, como quem vai falar, e se fecha. As mãos, que estavam cruzadas, se soltam, e caem ao longo do corpo, e se fecham em punhos. Vejo-a engolir, devagar.
-
-— Ele não tinha o direito — diz.
-
-— De quê?
-
-— De contar.
-
-— Por quê?
-
-— Porque era meu. — A voz dela falha. — Era a única coisa que eu tinha de meu. A única prece que fiz. Nunca contei a ninguém. Nem a Euricleia. Nem à Nísia. Nem a mim mesma.
-
-— Por que rezou a ele?
-
-— Porque ele era o único que podia te matar.
-
-— Sim.
-
-— E eu achei... — Ela respira fundo. — Achei que, se eu fosse direta, sem rodeios, sem pedir favores, ele entenderia.
-
-— Entendeu.
-
-— Eu sei. — Ela sorri, sem humor. — Por isso nunca pedi mais nada. Nem um navio, nem um vento, nem uma notícia. Nada. Para não quebrar o trato.
-
-Fico calada. Sinto o peso do remo no ombro, e o peso de dez anos no peito.
-
-— Anne.
-
-— Não diga nada.
-
-— Eu preciso...
-
-— Não. — Ela levanta a mão. — Você vai partir amanhã. Sozinha, com um remo, para o fim do mundo, para fazer as pazes com um deus. Muito nobre. Muito heroico. Muito você.
-
-— Não é...
-
-— Deixe eu terminar.
-
-Calo-me.
-
-Ela olha o chão. Um longo silêncio. O vento sacode as folhas das oliveiras novas, no canteiro, e as doze mudas, tortas, pequenas, tremem como crianças.
-
-— Você me deixou uma vez — diz ela, devagar, sem levantar os olhos. — Dez anos atrás. Numa manhã de inverno. Sem me olhar. E eu, que sabia, que sabia que não devia pedir, fiquei. Fiquei e esperei. — Levanta os olhos, e eu vejo neles um brilho duro, cortante. — Não vou fazer isso de novo.
+— Não diga nada. Você vai partir amanhã, sozinha, com um remo, para o fim do mundo, para fazer as pazes com um deus. Muito nobre, muito heroico, muito você. Mas deixe eu terminar. Você me deixou uma vez, numa manhã de inverno, sem me olhar, e eu, que sabia que não devia pedir, fiquei. Fiquei e esperei. Não vou fazer isso de novo.
 
 — O quê?
 
-— Ficar.
+— Ficar. — Dá um passo, e a voz dela é um fio, e é aço. — Eu vou com você. Para onde for, com o remo, com o mar, com o deus, com o que for. Não vou ficar olhando a estrada, esperando que você volte. O Timóteo fica com a Euricleia e com o Eumeu e com o seu pai, se for preciso, é um menino de dez anos que matou um homem e não chorou, vai sobreviver. A ilha tem um conselho, tem o Filécio, tem a assembleia, aguenta dois meses sem mim. Emily, eu não estou pedindo permissão.
 
-O ar me falta.
+Fico imóvel, olhando-a: a mulher de vestido verde, com os braços caídos, o queixo erguido, os olhos cheios de uma determinação que eu conheço de um molhe, de um barco, de um véu torto.
 
-— Anne...
+— Você ainda não me perdoou — digo. — Eu ainda durmo no chão. Por que isso?
 
-— Eu vou com você.
+— Porque não é sobre perdão. — Está a um palmo de mim. — É sobre não ser deixada, é sobre escolher. Eu escolho ir. Se você for sozinha e voltar, eu vou ter esperado de novo. E se for sozinha e não voltar... — A voz dela quebra. — Então eu vou ter esperado para nada.
 
-— O quê?
+Ponho o remo no chão, devagar, apoiando-o na parede. Levanto a mão e toco o rosto dela. Ela não recua. Sinto a pele fria, úmida, o tremor leve que percorre o corpo dela.
 
-— Eu vou com você. Para onde for. Com o remo, com o mar, com o deus, com o que for. Não vou ficar aqui, olhando a estrada, esperando que volte. Não de novo.
+— Tem certeza? — sussurro. — Vai ser difícil. Vamos brigar. Você vai me odiar de novo, várias vezes.
 
-— Mas o Timóteo...
-
-— Fica com a Euricleia. Com o Eumeu. Com o Laertes, se precisar. É um menino de dez anos que matou um homem e não chorou. Vai sobreviver.
-
-— A ilha...
-
-— Tem um conselho. Tem o Filécio. Tem a assembleia. Vai aguentar dois meses sem mim. — Ela dá um passo. — Emily. Eu não estou pedindo permissão.
-
-Fico imóvel, olhando-a. A mulher de vestido verde, com os braços caídos, o queixo erguido, o rosto pálido, os olhos cheios de uma determinação que conheço de outro tempo, de um molhe, de um barco, de um véu torto.
-
-— Você ainda não me perdoou — digo.
-
-— Não.
-
-— Eu ainda durmo no chão.
-
-— Sim.
-
-— Então por que...
-
-— Porque não é sobre perdão. — Ela dá mais um passo. Está a um palmo de mim, agora. — É sobre não ser deixada. É sobre escolher. Eu escolho ir. Não porque te perdoei. Porque, se você for sozinha e voltar, eu vou ter esperado de novo. E se você for sozinha e não voltar...
-
-A voz dela quebra.
-
-— Então eu vou ter esperado para nada.
-
-Ponho o remo no chão, devagar, apoiando-o na parede. Levanto a mão, hesitante, e toco o rosto dela. Ela não recua. Sinto a pele fria, úmida, sob os meus dedos. Sinto um tremor, leve, que percorre o corpo dela.
-
-— Tem certeza? — sussurro.
-
-— Não.
-
-— Vai ser difícil.
-
-— Claro que vai.
-
-— Vamos brigar.
-
-— Desde o primeiro dia.
-
-— Você vai me odiar de novo.
-
-— Várias vezes.
-
-— E vai me perdoar?
-
-— Não sei. — Ela sorri, fraco. — Mas vou estar lá quando descobrir.
-
-Fecho os olhos. Encosto a testa na dela. Sinto o hálito quente, o cheiro de lavanda, a respiração trêmula. Ficamos assim, no alpendre, com o sol baixando, o vento sacudindo as oliveiras, o remo encostado na parede, sem nos beijar, sem nos abraçar, só com as testas coladas, respirando o mesmo ar.
-
-— Você me chamou de tola — digo.
-
-— Quando?
-
-— Na pedra. No salão. Na primeira noite. Disse que eu era uma tola que não sabia ficar.
-
-— Disse?
-
-— Disse.
-
-— Eu não me lembro.
-
-— Mentirosa.
-
-— Um pouco.
-
-Rio, baixinho. Ela ri também, rouca, e o riso, tão perto, vibra entre os nossos rostos. Sinto, muito de leve, os lábios dela roçarem os meus, e logo se afastarem. Um toque de mariposa. Uma promessa, não um beijo.
-
-— Amanhã — diz ela.
-
-— Amanhã.
-
-— Ao amanhecer.
-
-— Ao amanhecer.
-
-— Leve comida. Eu levo a água.
-
-— Levo o remo.
-
-— É o que você faz de melhor.
-
-Afasta-se. Dá dois passos. Vira-se, e me olha, e eu vejo nos olhos dela uma coisa que não via há dez anos, que não sei nomear, que é medo e esperança e cansaço e teimosia, tudo junto, sem forma.
-
-— Emily.
-
-— Sim.
-
-— Se você me deixar de novo, eu te mato.
+— Desde o primeiro dia — diz ela, com um sorriso fraco. — E vou te perdoar, ou não, e vou estar lá quando descobrir. Se você me deixar de novo, mentirosa — e a palavra, na boca dela, é a primeira vez em dez anos que soa como carinho —, eu te mato.
 
 — Justo.
 
 — Eu falo sério.
 
-— Eu sei.
+— Eu sei. — Fecho os olhos, encosto a testa na dela. Ficamos assim, no alpendre, com o sol baixando, o vento sacudindo as oliveiras novas, o remo encostado na parede, sem nos beijar, sem nos abraçar, só com as testas coladas, respirando o mesmo ar. Sinto, muito de leve, os lábios dela roçarem os meus e se afastarem. Um toque de mariposa. Uma promessa, não um beijo.
 
-— Ótimo.
+— Amanhã, ao amanhecer — diz. — Leve comida. Eu levo a água.
 
-Sai. Desce os degraus do alpendre, atravessa o pátio, com o vestido verde balançando. No portão, para, sem se virar. Levanta a mão, e faz um gesto curto, seco, que podia ser um adeus ou um *até logo.* E desaparece.
+— Levo o remo.
+
+— É o que você faz de melhor.
+
+Afasta-se, dá dois passos, vira-se, e vejo nos olhos dela uma coisa que não via havia dez anos, que é medo e esperança e cansaço e teimosia, tudo junto, sem forma. Sai, desce os degraus do alpendre, atravessa o pátio, com o vestido verde balançando. No portão, para, sem se virar, e levanta a mão num gesto curto que podia ser um adeus ou um *até logo.* E desaparece.
 
 Fico sozinha, no alpendre, com o remo a meu lado e o sol batendo nas minhas costas.
 

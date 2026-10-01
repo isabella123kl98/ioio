@@ -112,51 +112,11 @@ Ela me conta tudo.
 
 Sentada no chão, de costas para a parede, olhando o teto, com aquela voz lenta e firme que usa para dar notícias ruins. A assembleia. O tributo. A proposta de Eupites. A recusa dos homens armados. Leócrito, o primo de Antínoo, e os navios que se reúnem em Same e em Zacinto. Três dias, dos quais dois já passaram. Um dia e meio para que a flotilha chegue ao cais de Ítaca.
 
-— Quantos? — pergunto.
-
-— Trinta, talvez. Quarenta.
-
-— Homens?
-
-— Seiscentos.
-
-— E nós?
-
-— Cinquenta e dois, o Eumeu, o Filécio, a Euricleia, o Timóteo.
-
-— E eu.
-
-— E você. — Ela olha para mim. — Se conseguir se levantar.
-
-Fico calada. Faço as contas, como sempre. Seiscentos contra cinquenta e cinco. Uma ilha sem muralha. Um palácio com portas de madeira. Duas mulheres e uma criança.
-
-— Não é possível — digo.
-
-— Eu sei.
-
-— Então por que veio?
-
-— Porque a última vez que eu te mandei embora — diz ela, devagar, sem me olhar —, você quase morreu.
-
-O silêncio que se segue é tão completo que ouço meu coração.
-
-— Foi por isso?
-
-— Foi por tudo. — Ela abraça os joelhos. — Mas principalmente por isso.
+— Trinta navios, talvez quarenta — diz ela, depois de me contar o resto, com os olhos no teto. — Seiscentos homens, contra os nossos cinquenta e dois guardas, o Eumeu, o Filécio, a Euricleia e um menino de dez anos. Contra uma rainha que ainda não consegue se levantar. Eu já fiz a conta quinze vezes, e a conta não fecha, e sei que você acabou de fazê-la também, com essa cara de quem soma sacos de cevada. Não é possível. Eu sei que não é. E mesmo assim vim, porque a última vez que eu te mandei embora, você quase morreu, e eu fiquei aprendendo, quatro dias seguidos, olhando você arder, o que é a palavra *tarde.* Vim por tudo, mas principalmente por isso.
 
 Sinto os olhos arderem. Tento levantar a mão, tocá-la, e o braço não obedece, só cai sobre a manta como um peso.
 
-— Anne.
-
-— O quê?
-
-— Eu preciso te contar uma coisa.
-
-Ela vira o rosto.
-
-— Agora?
-
-— Agora. Antes que eu morra de verdade, ou que você decida que não quer ouvir. — Engulo. — Eu disse que ia contar quando tivesse coragem. Não tenho. Mas se eu esperar mais um dia, não conto nunca.
+— Anne, eu preciso te contar uma coisa — digo. — Agora, antes que eu morra de verdade, ou que você decida que não quer ouvir. Você me disse que ia ouvir quando quisesse, e eu aceitei, e esperei, e a espera me ensinou que se eu esperar mais um dia, não conto nunca. Eu não tenho coragem. Mas não preciso de coragem, preciso só de que você fique aí, onde está, e escute, sem me ajudar.
 
 Ela me olha por um longo momento. Depois, muito devagar, como quem toma uma decisão difícil, fecha os olhos e assente.
 
@@ -196,37 +156,9 @@ Ela está ali, sentada na beira do colchão, muito perto, com o rosto molhado. C
 
 — Eu esperei que você me contasse. Durante dez anos. Quando a notícia de Troia chegou, eu soube que alguma coisa terrível acontecera. Quando os outros reis voltaram e você não, eu soube que a coisa era maior do que o mar. Eu só não sabia o que era. — A voz dela falha. — E agora sei.
 
-— Eu sinto muito.
+— Eu sinto muito — digo.
 
-— Eu sei. — Ela passa o polegar na minha bochecha, enxugando uma lágrima. — Mas não me peça para dizer que não foi culpa sua. Não foi toda. Mas foi em parte. Você podia ter gritado. Podia ter segurado o menino. Podia ter feito qualquer coisa.
-
-— Eu sei.
-
-— Mas também podia ter sido morta. E eu teria ficado aqui, sem saber, contando dias. — Ela respira fundo. — Nenhum de nós faz sempre a coisa certa. Eu também não fiz.
-
-— Você?
-
-— Tenho as minhas coisas.
-
-— A Nísia.
-
-— Isso também. Mas não só.
-
-Fico olhando para ela. Para aquele rosto molhado, cansado, marcado, que eu não consigo parar de querer.
-
-— Você me odeia?
-
-— Não.
-
-— Quer me odiar?
-
-— Quero.
-
-— Consegue?
-
-Ela ri, um riso curto, molhado, quebrado.
-
-— Não, Emily. — Balança a cabeça. — Não consigo. E isso é a pior coisa que já me aconteceu.
+— Eu sei — diz ela, e passa o polegar na minha bochecha, enxugando uma lágrima. — Mas não me peça para dizer que não foi culpa sua. Não foi toda. Foi em parte. Você podia ter gritado, podia ter segurado o menino, podia ter feito qualquer coisa. Mas também podia ter sido morta, e eu teria ficado aqui, sem saber, contando dias. Nenhum de nós faz sempre a coisa certa. Eu também não fiz, e tenho as minhas coisas, a Nísia, e outras que ainda vou lhe contar, quando tiver coragem. Quero que você saiba que eu não te odeio. Quis, e tentei, e não consegui. Quando você me disse que ficou sete anos na cama de outra, eu quis te odiar com toda a minha força, e descobri que, no fundo, eu te odiava porque não conseguia deixar de te amar. E isso é a pior coisa que já me aconteceu.
 
 ---
 
@@ -402,51 +334,23 @@ Quando ela chega, é com um soluço, um tremor longo, um arco do corpo inteiro q
 
 Subo. Deito-me ao lado dela. Ela se vira, enterra o rosto no meu pescoço, e fica assim, muito tempo, tremendo, sem dizer palavra. Sinto as lágrimas dela escorrerem pela minha clavícula. Sinto o coração dela se acalmando, devagar, contra o meu peito.
 
-— Você chorou — digo, muito baixo.
+— Você chorou — digo, muito baixo, e ela responde, sem levantar o rosto, com a voz abafada contra a minha pele, que chorou porque tinha esquecido. Que podia ser assim. Que podia se sentir inteira. Que passou dez anos acreditando que o corpo era só uma ferramenta de sobreviver, e que acabou de descobrir, de novo, que também sabe receber.
 
-— Chorei.
+Abraço-a, com os dois braços, com a perna, com tudo, como quem segura uma coisa que pode desaparecer. Ficamos assim muito tempo, no escuro, com o cheiro de lavanda e suor, com o vento batendo na janela e o ronco baixo do meu pai no cômodo ao lado.
 
-— Por quê?
+— Não quer dizer que eu te perdoei — diz ela, por fim, e a voz já não é abafada, é firme, de quem escolheu cada palavra. — Nem que eu vou ficar para sempre. Só que hoje eu estou aqui, e amanhã posso acordar querendo te matar, e depois de amanhã voltar a querer o contrário, e eu preciso que você aguente isso sem se assustar, sem se ir, sem tirar conclusões. Isso basta?
 
-— Porque eu tinha esquecido.
-
-— O quê?
-
-— Que podia ser assim. — A voz dela, abafada, mal se ouve. — Que eu podia me sentir inteira.
-
-Abraço-a. Com os dois braços, com a perna, com tudo. Seguro o corpo dela contra o meu, como quem segura uma coisa que pode desaparecer. Fico assim, no escuro, com o cheiro de lavanda e suor, com o vento batendo na janela, com o ronco baixo do meu pai no cômodo ao lado.
-
-— Não quer dizer que eu te perdoei — diz ela, depois de um longo silêncio.
-
-— Eu sei.
-
-— Nem que eu vou ficar.
-
-— Eu sei.
-
-— Só que hoje eu estou aqui.
-
-— Eu sei.
-
-— Isso basta?
-
-Penso. Olho o teto de palha, as traves escuras, a luz fraca que entra pela janelinha. Sinto o peso do corpo dela sobre o meu, o calor, o hálito.
-
-— Por enquanto — digo. — Mas eu quero mais.
+— Por enquanto — respondo. — Mas eu quero mais. Quero tudo. Quero que você me perdoe de verdade, e quero que você me diga a palavra, e quero que a gente discuta por causa de uma telha e depois dê risada. Sei que é um defeito, querer tanto.
 
 Ela sorri, contra a minha pele.
-
-— Claro que quer.
-
-— É um defeito.
 
 — É o seu único.
 
 — Duvido.
 
-— Verdade. — Ela levanta a cabeça, me olha nos olhos. — Tem outros. Mas esse é o pior.
+— Verdade. Tem outros. Mas esse é o pior.
 
-Rimos, baixinho, juntas, como duas adolescentes. É a primeira vez que rimos assim em dez anos, e o som é tão estranho, tão familiar, tão frágil, que eu tenho medo de que, se eu respirar fundo, ele se quebre.
+Rimos, baixinho, juntas, como duas adolescentes. É a primeira vez que rimos assim em dez anos, e o som é tão estranho, tão familiar, tão frágil, que tenho medo de que, se eu respirar fundo, ele se quebre.
 
 Então paro de respirar. Só por um momento. Só para ficar ali.
 
@@ -456,100 +360,20 @@ Acordamos antes do amanhecer, com um cachorro arranhando a porta.
 
 Anne levanta-se primeiro, pega a túnica do chão, enfia-a pela cabeça, e vai abrir. O cão cinzento entra como um furacão, cheira o colchão, cheira os meus pés, cheira a cama, e se deita entre as nossas roupas, com um suspiro de satisfação.
 
-— Ele é seu? — pergunta ela.
+— Ele é seu? — pergunta ela, sobre o cachorro. — Tem que ter nome. Que tal Fidelidade? Fido. Tem ar de Fido.
 
-— Apareceu.
+O cachorro bate o rabo no chão, duas vezes, e a Anne sorri, e o sorriso se apaga devagar, substituído por uma expressão grave.
 
-— Como se chama?
+— Preciso falar uma coisa antes de a gente voltar — diz. — Eu acho que o Eupites não quer a sua morte. Eu o vi quando contei como o filho morreu. Ele quer uma coisa que não sabe nomear: que alguém o olhe nos olhos e assuma. O Leócrito, esse sim, quer o poder, e a gente pode separar os dois. Você vai à casa do Eupites, sozinha, sem armas, conta como o filho dele morreu, e depois responde à pergunta que ele fez. Sei o que estou pedindo, e sei que é suicídio, mas é o único jeito. E há uma coisa que quero que você saiba: a pergunta dele é também a minha. Por que não voltou antes. Eu a faço há dez anos, sem palavras, e quero ouvir a resposta.
 
-— Não sei.
+O silêncio que se segue é mais pesado do que o anterior. Olho para ela. Para a mulher que dormiu ao meu lado, que me tocou, que me perdoou em pedaços e me cobrou em tudo.
 
-— Tem que ter nome.
+— Eu vou — digo. — E depois, a gente vê.
 
-— Você escolhe.
+— Você vem comigo? — pergunto.
 
-Ela olha para o animal, pensativa. O cão levanta a cabeça, com aquele olhar triste, cansado, de quem já viu muito.
+— Até a porta — responde ela, levantando-se, com a mão leve no meu ombro. — Não entro, porque a resposta é sua, não minha. Mas vou estar lá fora, esperando, como sempre fiz. E dessa vez, pelo menos, sei que espero uma pessoa que vai voltar.
 
-— Fidelidade — diz ela, por fim.
-
-— É comprido.
-
-— Então Fido.
-
-— Fido.
-
-— Tem ar de Fido.
-
-O cachorro bate o rabo no chão, duas vezes.
-
-Anne sorri. Vira-se para mim, e o sorriso se apaga devagar, substituído por uma expressão grave.
-
-— Preciso falar uma coisa — diz. — Antes de a gente voltar.
-
-— Fale.
-
-— Eupites. Eu acho que ele não quer a sua morte.
-
-— Você disse que queria.
-
-— Disse. Mas eu o vi. Vi o rosto dele quando contei como o filho morreu. — Ela se senta na beira do colchão. — Ele quer uma coisa, mas não sabe o quê. Quer que alguém assuma. Que alguém o olhe nos olhos e diga: *foi culpa minha.*
-
-— E o Leócrito?
-
-— Esse quer o poder.
-
-— Então temos dois inimigos.
-
-— Temos um pai e um usurpador. — Ela franze a testa. — A gente pode separar os dois.
-
-— Como?
-
-— Você vai à casa do Eupites.
-
-— Sozinha?
-
-— Sozinha. Sem armas.
-
-— Anne...
-
-— Eu sei o que estou pedindo.
-
-— É suicídio.
-
-— É o único jeito. — Olha-me nos olhos. — Você vai, conta como o filho dele morreu, e depois responde à pergunta que ele fez.
-
-— Qual?
-
-— Por que não voltou antes.
-
-Fico calada.
-
-— Eu também quero saber — acrescenta ela, baixinho.
-
-O silêncio que se segue é mais pesado do que o anterior. Olho para ela. Para a mulher que dormiu ao meu lado, que me tocou, que me perdoou em pedaços e me cobrou em tudo. E percebo que essa pergunta, a de Eupites, é também a dela. Que me faz a mesma há dez anos, sem palavras.
-
-— Eu vou — digo.
-
-— Eu sei.
-
-— E depois?
-
-— Depois, a gente vê.
-
-— Você vem comigo?
-
-— Até a porta. — Ela se levanta. — Não entro.
-
-— Por quê?
-
-— Porque a resposta é sua. Não minha. — Coloca a mão no meu ombro, leve. — Mas vou estar lá fora.
-
-Pego a mão dela. Aperto.
-
-— Isso basta — digo.
-
-Ela sorri.
-
-— Por enquanto.
+Pego a mão dela e aperto. Digo que isso basta, e ela sorri e diz: por enquanto.
 
 Lá fora, o céu começa a clarear. O vento traz o cheiro do mar. Em algum lugar, muito longe, um galo canta. E no quarto ao lado, um velho e um menino acordam, e começam a discutir, em voz baixa, sobre quem vai preparar o café.

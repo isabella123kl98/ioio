@@ -178,39 +178,7 @@ Mas sei que dizem *estou aqui.*
 
 E eu respondo, sem palavras: *eu também.*
 
-Ontem, depois de acendê-la, ela se voltou, e me perguntou, de repente, com aquela franqueza desarmante que não perdeu:
-
-— Você ainda tem medo?
-
-— De quê?
-
-— De que eu te mande embora.
-
-— Às vezes.
-
-— Eu também.
-
-— De quê?
-
-— De que você vá.
-
-— Eu não vou.
-
-— Eu sei.
-
-— Então por que tem medo?
-
-— Porque é o que a gente faz. — Ela sorriu. — Acho que sempre vamos ter. Um pouquinho. É o preço.
-
-— É caro?
-
-— É barato.
-
-— Então pago.
-
-— Eu também.
-
-Ela me beijou. Um beijo curto, leve, sem pressa. E depois, sem mais nenhuma palavra, saímos do quarto, de mãos dadas, e descemos as escadas, quarenta e um degraus, contados, e fomos jantar, os dois filhos, os dois netos por vir, a velha ama, o velho porqueiro, e uma mesa cheia de gente que ri.
+Ontem, depois de acendê-la, ela se voltou e me falou, com aquela franqueza desarmante que não perdeu: *você ainda tem medo de que eu te mande embora, agapi? Eu também tenho, de que você vá. Acho que sempre vamos ter, um pouquinho. É o preço. É barato.* Eu respondi que pagava, e que o preço, para mim, era o único que valia a pena. Ela me beijou, um beijo curto, leve, sem pressa. E depois, sem mais nenhuma palavra, saímos do quarto de mãos dadas e descemos as escadas, quarenta e um degraus contados, e fomos jantar, o filho, a nora, a velha ama, o velho porqueiro, e uma mesa cheia de gente que ri.
 
 ---
 

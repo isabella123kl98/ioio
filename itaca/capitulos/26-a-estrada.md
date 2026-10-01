@@ -144,121 +144,27 @@ O ar lá fora é frio e cheira a pinho e a fumaça. Fico sentada nos degraus de 
 
 *Não é sobre direito.*
 
-A porta atrás de mim range. Ouço passos, que hesitam. Uma sombra cai sobre os degraus, e eu sei quem é sem olhar.
+A porta atrás de mim range. Ouço passos, que hesitam. Uma sombra cai sobre os degraus, e eu sei quem é sem olhar. Ela se senta a um palmo, sem me tocar, e fica em silêncio um longo tempo. O vento sopra. Uma coruja pia numa árvore distante.
 
-— Anne.
+— Eu não fiz nada — diz, por fim, baixinho. — Ela só estava sendo gentil. Eu também. Mas eu vi a sua cara quando você se levantou, e não preciso que me explique, porque eu faria o mesmo, e já fiz, em outras casas, com outras mulheres que olhavam você mais tempo do que uma hóspede olha uma anfitriã. Só quero que você saiba que eu não estava ali. Eu estava sorrindo para a mesa, porque não sei o que fazer com a cara quando uma mulher me olha assim. Aprendi a ficar educada, e a educação, às vezes, parece outra coisa.
 
-— Volte para dentro.
+— Eu sei que você não fez nada — respondo, e a voz me escapa, sobe, quase grito, e eu a baixo depressa, olhando por cima do ombro. — Sei que ela só estava sendo gentil, e que a mão dela avançou no tampo da mesa porque estava sozinha, como eu estive, e como todas as mulheres desta estrada parecem estar. Mas eu odeio, Emily. Odeio quando uma mulher te olha, odeio quando você sorri, odeio que você tenha essa cara de quem não sabe o que faz. E odeio mais ainda não ter o direito, porque você poderia me responder, a qualquer momento, com duas palavras, *e a Nísia?*, e eu não teria resposta. Estou sentada aqui há uma hora tentando encontrar uma, e só encontro raiva e vergonha, na mesma proporção, como se tivessem sido misturadas por um padeiro mau.
 
-— Você está com frio.
+— Eu não ia dizer isso — responde ela, sem sorrir. — Mas posso lhe dizer uma coisa que talvez ajude, e talvez piore. A Nísia e a Dorcas não são a mesma coisa. A Nísia te amava, e você a deixou amar, e isso é tudo o que existe entre nós duas e o que fizemos às outras. A Dorcas só estava só. Eu olhei para ela e vi o que a Calipso deve ter visto quando me viu: uma mulher que não sabe como pedir. E eu, que passei dez anos tentando ser outra pessoa, não consegui. Continuo sendo uma só coisa. Quero uma pessoa, e essa pessoa está sentada ao meu lado, com bolhas nos pés e ciúme no rosto, e nunca, em vinte anos, deixou de me fazer falta.
 
-— Não estou.
+— Isso é muito bonito — digo. — Você ensaiou?
 
-— Está tremendo.
+— Um pouco — admite. — Mas é verdade mesmo assim.
 
-— É raiva.
+Solto o ar, devagar. A raiva vai saindo, pouco a pouco, como a água de uma bacia rachada, e fica o cansaço, fica a ternura ridícula, fica o desejo, que eu tinha empurrado para o fundo nos últimos dias e que agora sobe, rápido, sem aviso, pelas pernas, pelo ventre, pela nuca.
 
-Ela se senta ao meu lado, a um palmo, sem me tocar. Fica em silêncio. O vento sopra. Uma coruja pia numa árvore distante.
-
-— Eu não fiz nada — diz, por fim, baixinho.
-
-— Eu sei.
-
-— Ela só estava sendo gentil.
-
-— Eu sei.
-
-— Eu também.
-
-— Eu sei!
-
-— Então por que...
-
-— Porque eu odeio! — A voz me sai mais alta do que queria, e eu a baixo, depressa, olhando por cima do ombro. — Eu odeio, Emily. Odeio quando uma mulher te olha. Odeio quando você sorri. Odeio que você tenha essa cara de quem não sabe o que faz. Odeio ter que olhar, e conter, e calar, e fingir que não me importa.
-
-— Anne...
-
-— E odeio mais ainda que eu não tenha o direito. — A voz me quebra. — Porque você poderia me dizer: *e a Nísia?* E eu não teria resposta.
-
-O silêncio que se segue é curto e cheio.
-
-— Eu não ia dizer isso — diz ela.
-
-— Mas poderia.
-
-— Poderia.
-
-— E você não diz.
-
-— Não.
-
-— Por quê?
-
-— Porque a Nísia e a Dorcas não são a mesma coisa.
-
-— Por quê?
-
-— Porque a Nísia te amava. E a Dorcas só estava sozinha. — Ela respira fundo. — Eu olhei para ela, e vi o que a Calipso deve ter visto quando me viu. Uma mulher que não sabe como pedir.
-
-O ar se prende na minha garganta.
-
-— Isso não ajuda — digo.
-
-— Eu sei. Desculpe.
-
-— Você acha que ela queria...
-
-— Não sei. Acho que sim.
-
-— E você?
-
-— Eu o quê?
-
-— Você queria?
-
-Ela me olha, nos olhos, sem recuar.
-
-— Não.
-
-— Sem hesitar?
-
-— Sem hesitar.
-
-— Nem um pouco?
-
-— Nem um pouco. — A voz dela é firme. — Anne. Eu passei dez anos tentando ser outra. Não consegui. Sou a pessoa que quer uma coisa só. E essa coisa está sentada ao meu lado, com as bolhas nos pés e ciúme no rosto, e nunca, em vinte anos, me deixou de fazer falta.
-
-Sinto os olhos arderem.
-
-— Isso é muito bonito.
-
-— É verdade.
-
-— Você ensaiou.
-
-— Um pouco. — Ela sorri, torto. — Mas é verdade mesmo assim.
-
-Solto o ar, devagar. A raiva vai saindo, pouco a pouco, como a água de uma bacia rachada. Fica o cansaço. Fica a ternura, ridícula, desarmante. Fica o desejo, que eu tinha empurrado para o fundo nos últimos dias, e que agora sobe, rápido, sem aviso, pelas pernas, pelo ventre, pela nuca.
-
-— Emily.
-
-— Sim.
-
-— Eu quero te beijar.
-
-— Aqui?
-
-— Aqui.
-
-— Nos degraus de uma casa de pastores?
-
-— Você tem um lugar melhor?
+— Eu quero te beijar — digo. — Aqui, nos degraus de uma casa de pastores. Você tem um lugar melhor?
 
 Ela ri, rouca, baixinho.
 
 — Não.
 
-Viro-me. Ela também. Ficamos frente a frente, no escuro, com as estrelas sobre nós. Vejo o brilho dos olhos dela, muito perto. Vejo a boca entreaberta.
+Viro-me, e ela também. Ficamos frente a frente, no escuro, com as estrelas sobre nós, e eu vejo o brilho dos olhos dela, muito perto, a boca entreaberta.
 
 Sou eu quem beija.
 
@@ -284,41 +190,15 @@ Volto-me. Ela está de pé ao lado da cama, à luz de uma vela, com o remo encos
 
 Dou-lhe a mão. Levo-a para o leito. Faço-a sentar-se na beirada, e fico de pé diante dela, entre os joelhos, olhando-a de cima. Ela levanta o rosto. Toco-lhe as faces com as duas palmas. Acaricio-lhe as têmporas, a testa, o queixo, a cicatriz nova. Ela fecha os olhos.
 
-— Hoje sou eu — digo.
+— Hoje sou eu quem conduz — digo, com as mãos nas faces dela. — Sem pressa, e se eu parar, você para comigo, e se eu quiser chorar, você espera, e se eu rir, você ri junto. Eu preciso que seja assim hoje, agapi, porque nas outras vezes você me levou, e eu me deixei levar, e foi bom, mas eu quero saber o que o meu corpo sabe fazer quando não está com medo. Não me julgue se eu hesitar. Não me ajude se eu errar. Só fique, e olhe, e deixe.
 
-— Você o quê?
-
-— Eu conduzo.
-
-— Está bem.
-
-— Sem pressa.
-
-— Nenhuma.
-
-— E se eu parar?
-
-— Eu paro.
-
-— E se eu quiser chorar?
-
-— Eu espero.
-
-— E se eu rir?
-
-— Eu rio junto.
+— Fico — diz ela, baixinho. — E olho. E deixo.
 
 Sorrio. Desato o laço da minha túnica, devagar, olhando nos olhos dela, e deixo o tecido escorregar pelos ombros, pela cintura, pelos quadris, até o chão. Sinto o ar frio na pele. Sinto o olhar dela, percorrendo-me, sem pressa, sem pudor, sem a hesitação de outras vezes. Um olhar que me vê como sou: com as cicatrizes, com os fios brancos, com o corpo de trinta e seis anos, que já deu à luz e já esperou e já chorou.
 
-— Você é linda — diz ela, baixinho.
+— Você é linda — diz ela. — Já disse, e não cansa de ser verdade.
 
-— Você já disse isso.
-
-— Não cansa de ser verdade.
-
-— Cale a boca.
-
-— Sim, senhora.
+— Cale a boca — respondo, sorrindo.
 
 Inclino-me. Beijo-a. Desta vez, o beijo é lento, profundo, cheio de promessas. Sinto a boca dela se abrir sob a minha, a língua quente, o gosto de vinho e de sal. As mãos dela sobem pelas minhas coxas, pelos quadris, pela cintura, sem pressa, como quem relê um livro querido. Desato os laços da túnica dela, um por um. Arranco-a por cima da cabeça. Deixo-a nua, diante de mim, à luz da vela.
 
@@ -434,72 +314,16 @@ Vai custar. Eu sei.
 
 A mão dela aperta a minha cintura, de leve, e uma voz rouca, sonolenta, murmura na minha nuca:
 
-— Está pensando.
-
-— Não estou.
-
-— Está. Eu ouço.
-
-— Dorme.
-
-— Não consigo. Você pensa alto.
+— Está pensando — murmura. — Eu ouço daqui, você pensa alto. E antes que me diga que não, deixe eu falar primeiro, porque dormi melhor do que em dez anos e quero contar. Não sonhei com o mar, nem com a ninfa, nem com Troia. Sonhei com um forno de pão torto e uma mulher de farinha no cabelo me chamando de mentirosa, e acordei com a certeza de que, se um dia eu tiver que escolher entre ser inteira e ser esperta, escolho ser inteira, mesmo que doa. Eu sei que você ainda está com raiva, agapi, e que vai estar durante anos, e eu aceito. Só queria que você soubesse que, hoje de manhã, eu não tenho pressa nenhuma.
 
 Rio. Viro-me, devagar, dentro do braço dela. Ficamos frente a frente, a um palmo, os olhos dela ainda pesados de sono, o cabelo em pé, uma marca de travesseiro na bochecha.
 
-— Bom dia — digo.
+— Você, sem pressa — digo. — Isso eu preciso ver. Sensatez é o vício dos covardes, você me disse na primeira estrada, e eu respondi que a pressa é o vício dos tolos, e nenhuma das duas estava errada. Hoje eu acho que você tem razão em parte: a vida é curta para se perder em prudências. E eu tenho razão em parte também: a vida é longa demais para se gastar em arrancadas. Deve haver um meio-termo, e acho que é isto: dois corpos numa cama de lã vermelha, numa casa de pastores, numa manhã em que ninguém precisa chegar a lugar nenhum. Eu quero guardar isto. Quero lembrar, daqui a dez anos, quando estivermos brigando por um bolo, que um dia você acordou sem pressa e eu acordei sem raiva.
 
-— Bom dia.
+Ela me abraça de repente, com força, o rosto enterrado no meu pescoço.
 
-— Dormiu bem?
+— Você é a pessoa mais corajosa que conheço — diz, contra a minha pele. — É por isso que eu tenho tanto medo de te perder. Cada vez que penso que você pode decidir não ficar, o ar me falta. Eu sei que você me disse que eu não vou, e eu acredito, mas o corpo não acredita tão depressa quanto a cabeça. Você vai ter que me aguentar assim durante muito tempo.
 
-— Melhor em dez anos.
-
-— Não exagere.
-
-— Não exagero. — Ela sorri. — Dormi sem sonhar com o mar.
-
-— Nem com a ninfa?
-
-O sorriso dela vacila. Só um pouco.
-
-— Nem com ela.
-
-— Um dia vai sonhar.
-
-— Provavelmente.
-
-— E vai me contar.
-
-— Se você quiser.
-
-— Eu quero.
-
-Ela assente. Beija-me a testa, devagar. Depois o nariz. Depois os lábios. Um beijo curto, leve, sem pressa.
-
-— Vamos — diz. — O mundo não acaba de esperar.
-
-— Você está com pressa.
-
-— Eu? — Ela ri. — Jamais.
-
-— Sensatez é o vício dos covardes — digo, imitando a voz dela.
-
-— A pressa é o vício dos tolos — responde ela, imitando a minha.
-
-— Sou uma tola?
-
-— Você é a mulher mais sensata que conheço.
-
-— E covarde?
-
-— Não. — Ela me abraça, de repente, com força, o rosto enterrado no meu pescoço. — Você é a pessoa mais corajosa do mundo. É por isso que eu tenho tanto medo de te perder.
-
-Fico imóvel. Sinto o coração dela batendo contra o meu.
-
-— Você não vai — digo, baixinho.
-
-— Como sabe?
-
-— Porque eu não deixo.
+— Você não vai — digo, baixinho, no cabelo dela. — Eu não deixo.
 
 Ela ri, contra a minha pele, um riso rouco, úmido. E eu fecho os olhos, e a abraço, e ficamos assim, enroladas na lã vermelha, enquanto o dia cresce lá fora, e uma criança ri, e um galo canta, e o remo, encostado na parede, espera.
