@@ -60,3 +60,4 @@ Epílogo — A primeira carta
 - Emily usou "Éton" como nome falso diante de Anne (cap. 8).
 - Cap. 7: Emily ensina Timóteo a mirar um palmo à direita; cap. 8: Timóteo conta a Anne.
 - Anticleia morre no TERCEIRO inverno (antes da descida de Emily aos mortos, ano ~4). Anne lia cartas inventadas para ela nos anos 1-3.
+- Matança: 107 mortos; o menino de Dulíquio (17 anos) foi poupado e fugiu. Timóteo matou um homem para salvar Emily. Emily revelou-se a Eumeu e Timóteo antes do concurso (de madrugada, esvaziando o arsenal).
