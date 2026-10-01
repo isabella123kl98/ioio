@@ -2,15 +2,29 @@
 
 *Emily*
 
-O som da corda é o som mais limpo que eu conheço, e por um instante, antes de tudo começar, eu deixo ele soar.
+O som da corda é o som mais limpo que eu conheço, e por um instante, antes do resto começar, eu deixo ele soar.
 
 Sobe do arco e se espalha pelo pátio como a nota de uma lira tocada uma vez só. Cento e oito pares de olhos seguem o som, sem entender, sem medo ainda, porque o medo leva um segundo para nascer. E esse segundo é o último presente que eu dou a eles.
 
 Tenho o arco na mão.
 
-O arco que é meu. Que me conhece. Que dobra sem resistência, como um amigo que esperou dez anos na porta. O peso da madeira é o mesmo. O couro da empunhadura guarda o formato dos meus dedos. E por baixo do cheiro de sebo e de mofo, quando encostei a testa nele, havia outro cheiro. Amêndoa. Lavanda.
+O arco que é meu. Que me conhece. Que dobra sem resistência, como um amigo que esperou dez anos na porta. O peso da madeira não mudou. O couro da empunhadura guarda o formato dos meus dedos. E por baixo do cheiro de sebo e de mofo, quando encostei a testa nele, havia outro cheiro. Amêndoa. Lavanda.
 
 Ela esteve aqui. Ela abraçou o meu arco no escuro.
+
+E disse sim.
+
+Do outro lado do pátio, sentada na cadeira alta, com o meu filho pela mão e a mulher de Same do lado, ela abriu a boca e disse *sim* olhando para mim. Uma palavra. Baixa. Que ninguém mais entendeu, porque ninguém mais sabia a pergunta. Eu vi a boca dela formar a palavra, a curva do lábio de baixo, que ela morde quando está decidindo, se abrir devagar, e eu senti aquele *sim* no meio do peito como se ela tivesse encostado a palma ali.
+
+Dez anos sem ouvir a voz dela dizer uma coisa para mim. A última foi uma ordem. *Vá logo.* E esta é uma permissão.
+
+O corpo inteiro respondeu antes da cabeça. Um calor subiu dos pés até a nuca, e os braços, que estavam firmes no arco, quase tremeram. Eu me lembrei da noite do casamento, dela dizendo *cala a boca* contra a minha boca. Lembrei do quarto das armas velhas, da parede fria nas costas dela. Lembrei do gosto da pele dela debaixo da orelha. Veio junto, numa onda, no meio de um pátio com cento e oito homens rindo de uma velha.
+
+E depois o riso deles parou, porque a corda tinha subido.
+
+E eu soltei a primeira flecha olhando para ela, e não para os machados, porque eu não precisava ver os machados. Eu precisava ver se ela ia piscar.
+
+Não piscou.
 
 A flecha que atravessou as doze argolas está cravada no muro, ainda vibrando. Eu digo a mim mesma, com uma calma que me assusta, que essa foi a parte fácil.
 
@@ -20,21 +34,35 @@ Eu tinha tirado as armas do depósito antes do sol.
 
 Depois do alpendre. Depois da coruja escorregando no dedo.
 
-Saí do alpendre contando os passos, e no décimo quarto ouvi os passos dele atrás de mim. Não corria. Andava. Do mesmo jeito que eu ando quando estou com medo de chegar.
+Saí do alpendre contando os passos, e no décimo quarto ouvi os passos dele atrás de mim. Não corria. Andava, devagar, do jeito que eu ando quando estou com medo de chegar.
 
 Parei. Não me virei.
 
-— Eu vou com a senhora — disse ele.
+— Eu vou com a senhora — disse ele, e a voz tremia e não recuava. — Não sei para onde a senhora vai a essa hora com essa cara, mas eu vou. Se a senhora disser que não, eu vou de longe, e a senhora vai ter que me ouvir tropeçar no escuro atrás.
 
-— Para onde?
+Fiquei de costas para ele, no meio do pátio escuro, com o cajado tremendo na mão, e com vontade de rir e de chorar ao mesmo tempo, porque era palavra por palavra o que eu teria dito ao meu pai aos dez anos.
 
-— Para onde a senhora for.
+— Então me ajuda a carregar uma coisa pesada sem fazer barulho — eu disse. — E sem perguntar por quê. Se você aguentar as duas coisas, eu te conto o porquê no meio-dia.
 
-Fiquei de costas para ele, no meio do pátio escuro, com o cajado tremendo na mão.
+E ele aguentou. Carregou lança por lança, do depósito até o buraco debaixo do piso do estábulo, onde eu escondia doce de figo quando era menina e que ninguém nesta casa conhece além de mim. Com os braços magros tremendo do peso. Com a boca fechada na linha que é a minha.
 
-— Então me ajuda a carregar uma coisa — eu disse.
+Na sexta viagem ele parou no meio do estábulo, com um feixe de lanças nos braços, e me olhou à luz da lamparina de mão.
 
-E ele ajudou. Sem perguntar nada. Sem dizer o meu nome. Carregou lança por lança, do depósito até o buraco debaixo do piso do estábulo, onde eu escondia as coisas quando era menina. Com os braços magros tremendo do peso. Com a boca fechada na linha que é a minha.
+— Como a senhora sabia do buraco? — perguntou. — O Eumeu não sabe. A mãe não sabe. Eu só sei porque caí nele aos seis anos atrás do gato.
+
+Eu enfiei as espadas no buraco sem responder.
+
+— A senhora sabe onde fica tudo nesta casa — disse ele, mais baixo. — Onde range a escada. Onde a pedra do pátio balança. Onde a minha mãe guarda o mel. A senhora não é de Creta.
+
+— Velha que anda muito aprende casa alheia depressa, menino.
+
+— Nenhuma velha do mundo sabe do buraco do doce de figo, senhora. Nem a Euricleia sabe. Eu perguntei uma vez e ela disse que doce de figo some porque o gato come.
+
+Eu levantei a cabeça. Ele estava parado com as lanças, e não estava mais com medo. Estava com aquela cara da mãe dele quando acha o erro na conta do escriba e espera, paciente, que o escriba confesse sozinho.
+
+— Carrega a lança, Timóteo — eu disse. — No meio-dia.
+
+Ele carregou.
 
 O Eumeu nos achou no meio do caminho, com uma braçada de espadas.
 
@@ -44,9 +72,9 @@ Tirei o pano do dedo. Mostrei.
 
 O velho caiu de joelhos na terra do pátio, com as mãos na cara, e eu me ajoelhei na frente dele e pus a mão na boca dele antes que ele gritasse.
 
-— Ainda não — eu disse. — Hoje ao meio-dia. Tranca as portas quando eu levantar.
+— Ainda não, Eumeu — eu disse, perto do ouvido dele, sentindo a barba velha na minha palma molhar de lágrima. — Hoje ao meio-dia. Quando eu levantar do muro, você e o Filécio trancam as portas do pátio por dentro e ficam de costas para elas com uma lança cada um. E não chora mais, que o choro de porqueiro acorda os cachorros e cachorro acorda pretendente.
 
-Ele assentiu com a minha mão na boca, chorando por cima dos meus dedos.
+Ele assentiu com a minha mão na boca, chorando por cima dos meus dedos, e quando eu tirei a mão ele pegou a minha, a do anel, e beijou a coruja, com a boca suja de terra, como quem beija um altar.
 
 E deixamos o arco.
 
@@ -130,7 +158,7 @@ E o vejo passar. Pequeno, rápido, desviando dos homens como desvia das cabras n
 
 Ele vai buscar as armas.
 
-Penso que ele não devia estar aqui. Que é meu filho. Que se ele morrer eu morro também. Penso tudo isso no tempo que uma flecha leva para sair do arco.
+Penso que ele não devia estar aqui. Que é meu filho. Que se ele morrer eu morro também. Penso isso no tempo que uma flecha leva para sair do arco.
 
 E depois eu não penso mais.
 
@@ -154,9 +182,9 @@ Um deles está de joelhos a três passos de mim.
 
 Dezessete anos. De Dulíquio. O primeiro que tentou armar o arco, vermelho de vergonha. Está chorando, com as mãos postas.
 
-— Eu não fiz nada — diz. — Eu só vim comer.
+— Eu não fiz nada, senhora — diz, com a voz quebrando no meio. — Eu juro pela minha mãe. Eu vim porque o meu pai mandou, para conseguir um casamento bom, e eu só comi. Eu não toquei em criada, eu não bebi o vinho forte, eu nem sei armar um arco.
 
-— Você comeu — digo. — Sabia de quem era.
+— Você comeu a comida de uma mulher que passou dez anos contando porco para o filho dela não passar fome — digo, e a voz sai fria como ferro. — E sabia de quem era o porco.
 
 Ele me olha com as lágrimas descendo. E eu vejo nele o que me doeu ver em outro rosto, em outra noite, num depósito de Troia. O mesmo queixo tremendo. A mesma súplica sem esperança.
 
@@ -180,9 +208,9 @@ Ele me olha sem acreditar. Levanta, tropeçando. Corre.
 
 O Eumeu, de longe, me lança um olhar de pura incredulidade.
 
-Não sei explicar. Sei só que uma criança, em Troia, caiu de uma muralha. E que eu, dez anos depois, tenho, pela primeira vez, o direito de escolher outra coisa.
+Não sei explicar. Uma criança, em Troia, caiu de uma muralha. E eu, dez anos depois, tenho, pela primeira vez, o direito de escolher outra coisa.
 
-Mas não é bondade. Sei disso também. É o gesto egoísta de quem quer ser perdoada.
+Mas não é bondade. É o gesto egoísta de quem quer ser perdoada, e eu sei a diferença porque fiz as duas coisas na vida e uma só me deixou dormir.
 
 ---
 
@@ -194,7 +222,7 @@ A aljava esvazia. Pego a espada que o Filécio me joga. Depois a lança que o Ti
 
 Avanço pelo pátio como uma lâmina entrando num tecido.
 
-Não penso. Não conto mais. O corpo de velha, de trapo e de osso, sumiu. Sobrou só o meu. O de trinta anos atrás. O de Troia. O que sabe onde cortar, e onde furar, e onde empurrar.
+Paro de pensar. Paro de contar. O corpo de velha, de trapo e de osso, sumiu. Sobrou só o meu. O de trinta anos atrás. O de Troia. O que sabe onde cortar, e onde furar, e onde empurrar.
 
 Sinto o peso da espada. A resistência da carne. O som molhado do bronze entrando e saindo. Respingos quentes no rosto. A boca com gosto de ferro, de sal, de alguma coisa doce que me dá enjoo.
 
@@ -264,7 +292,7 @@ Ele me abraça.
 
 E só então se quebra. De uma vez. Num soluço enorme, doído, com o corpo inteiro tremendo contra o meu, os braços magros apertando o meu pescoço com uma força de afogado.
 
-Seguro o meu filho pela primeira vez em dez anos no meio de um pátio cheio de cadáveres. E não me importa nada do que está em volta. Nem a matança, nem o sangue, nem o fim do mundo.
+Seguro o meu filho pela primeira vez em dez anos no meio de um pátio cheio de cadáveres. E o que está em volta deixa de existir, a matança, o sangue, o fim do mundo.
 
 Por um instante, um só, eu sou só isso.
 
@@ -276,7 +304,7 @@ Os últimos caem depressa.
 
 Quando eu me levanto, com o menino colado na minha perna, o pátio está quase em silêncio. Os gemidos diminuem. As respirações ficam mais espaçadas.
 
-Conto os corpos sem querer, como faço sempre, com uma contabilidade fria que se recusa a parar. Cem. Cento e quatro. Cento e sete.
+Conto os corpos sem querer, como aprendi com ela a contar, com uma contabilidade fria que se recusa a parar. Cem. Cento e quatro. Cento e sete.
 
 E mais um. O último, que tentava escalar o muro e que o Eumeu derruba com uma pedrada, sem nenhuma alegria.
 
@@ -290,7 +318,7 @@ Fico parada no meio do pátio. A espada pendendo da mão. Os braços vermelhos a
 
 Não sinto nada.
 
-Nem alegria. Nem alívio. Nem tristeza. Só um vazio enorme, limpo, como se tivessem esvaziado dentro de mim um lago inteiro e sobrado só o leito seco, rachado.
+Nenhuma alegria, nenhum alívio, nenhuma tristeza. Um vazio enorme, limpo, como se tivessem esvaziado dentro de mim um lago inteiro e sobrado só o leito seco, rachado.
 
 O Eumeu se aproxima devagar, com as mãos tremendo. E cai de joelhos de novo, curvado, e começa a chorar alto, como criança.
 
@@ -308,11 +336,11 @@ Ela está de pé no estrado. Onde ficou durante toda a matança. Imóvel. Com a 
 
 A Anne não se mexeu.
 
-Não gritou. Não fugiu. Não se escondeu. Ficou sentada na cadeira alta, e depois de pé, olhando tudo sem piscar. Com o véu branco caído nos ombros. E os olhos verdes fixos em mim.
+Não gritou, não fugiu, não se escondeu. Ficou sentada na cadeira alta, e depois de pé, olhando tudo sem piscar. Com o véu branco caído nos ombros. E os olhos verdes fixos em mim.
 
 Vejo o rosto dela. Vejo o que tem nele, e não sei o que é.
 
-Não é horror. Nem alívio. Nem alegria. É uma coisa mais densa. Mais fria. Que atravessa o pátio como uma lâmina e me acerta no peito.
+Não é horror, nem alívio, nem alegria. É uma coisa mais densa. Mais fria. Que atravessa o pátio como uma lâmina e me acerta no peito.
 
 Uma coisa que eu já vi uma vez. No rosto da minha mãe. No dia em que eu fiz onze anos e quebrei o vaso mais caro da casa, e ela, em vez de gritar, me olhou em silêncio e disse só: *agora você vai ter que consertar.*
 
@@ -330,7 +358,7 @@ E escuto o dela. Juro que escuto. Rápido. Muito rápido. Muito mais rápido do 
 
 Tenho vontade de cair de joelhos.
 
-Tenho vontade de dizer tudo, agora, de uma vez, sem respirar. Troia. O menino na muralha. O silêncio. Circe. Calipso. A culpa. O medo. Tenho a palavra na boca. Inteira. A que me queimou dezessete dias de mar. A que eu não consegui dizer ao vento, nem à janela, nem ao travesseiro.
+Tenho vontade de dizer a história inteira, agora, de uma vez, sem respirar. Troia. O menino na muralha. O silêncio. Circe. Calipso. A culpa. O medo. Tenho a palavra na boca. Inteira. A que me queimou dezessete dias de mar. A que eu não consegui dizer ao vento, nem à janela, nem ao travesseiro.
 
 Sinto ela chegar aos dentes.
 
@@ -350,6 +378,10 @@ Eu sinto o calor dela.
 
 Eu inclino o rosto. Um dedo. Na direção da palma. Sem querer. Como um bicho que inclina a cabeça para a mão de quem o criou.
 
+A palma dela fica ali. Um dedo da minha bochecha. Eu sinto o calor dela na pele, o calor de uma mão que passou duas horas apertada no braço de uma cadeira, e sinto o cheiro: lavanda, o couro do arco que ela carregou, e por baixo o sangue do pátio, que já está em todo mundo. Ela não encosta. Eu não encosto. Ficamos as duas no meio de cento e sete mortos com um dedo de ar entre a mão dela e a minha cara, e esse dedo de ar é a coisa mais quente que eu senti em dez anos, mais quente que a cama da Calipso, mais quente que o fogo de Troia.
+
+Os dedos dela tremem. Eu vejo o polegar se mexer, como se fosse passar na minha maçã do rosto, onde o sangue de alguém está secando. Ele chega a se mexer. Meio caminho.
+
 Ela recolhe a mão.
 
 — Não — diz. — Não me diz nada. Nem o meu nome. Nem a palavra que você está tentando dizer desde que passou aquele portão. Eu conheço a tua cara quando você vai mentir.
@@ -362,17 +394,17 @@ E eu vejo que ela finalmente chora.
 
 Em silêncio. Sem se mexer. As lágrimas descendo pelas bochechas como água descendo por uma pedra.
 
-— Você me deixou com isso — diz. — Com tudo isso. E agora volta, e mata cento e sete homens em duas horas, como se fosse um favor. Como se eu tivesse pedido. Você não perguntou. Nunca pergunta. Você decide, e faz, e espera que eu agradeça.
+— Você me deixou com isso — diz. — Com esta casa, com estes homens, com aquele menino. E agora volta, e mata cento e sete homens em duas horas, como se fosse um favor. Como se eu tivesse pedido. Você não perguntou. Nunca pergunta. Você decide, e faz, e espera que eu agradeça.
 
-— Você trouxe o arco.
+— Você trouxe o arco — digo, e a minha voz sai rouca, de quem gritou durante duas horas sem saber que gritava. — Você desceu ao porão e trouxe com as tuas mãos. Ninguém te pediu. Eu deixei lá para ver se você trazia.
 
-— Eu trouxe o arco. — A voz dela racha. — Eu mesma. Com as minhas mãos. Eu sabia que era você. Desde o fogo. Desde o primeiro dia. Desde o palmo à direita. E deixei. Porque eu queria ver se você ia ter coragem de me olhar na cara.
+— Eu sei por que você deixou. — A voz dela racha. — Eu mesma. Com as minhas mãos. Eu sabia que era você. Desde o fogo. Desde o primeiro dia. Desde o palmo à direita. E deixei. Porque eu queria ver se você ia ter coragem de me olhar na cara.
 
 Ela dá um passo para trás.
 
-— E teve. Você tem coragem de sobra para tudo. Menos para a única coisa que importava.
+— E teve. Você tem coragem de sobra para cegar gigante, para enfrentar feiticeira, para matar cento e sete homens antes do jantar. — Ela respira. — E não teve coragem nenhuma para a única coisa que eu pedi, que nem pedi em voz alta, porque achei que não precisava pedir.
 
-— Qual?
+Eu não pergunto qual. Ela vê que eu não pergunto, e que eu já sei, e diz assim mesmo, para eu ouvir na voz dela:
 
 — Chegar em casa antes que fosse tarde.
 
@@ -388,21 +420,57 @@ Eu fico.
 
 No meio do pátio. Com um menino agarrado na perna. Com as mãos vermelhas. Com a coruja de ouro à mostra. Com cento e sete cadáveres em volta.
 
+A Nísia volta antes de eu me mexer.
+
+Atravessa o pátio sozinha, pelo meio dos corpos, com a barra do vestido azul suja de sangue até o joelho, e não desvia os olhos de mim. Traz na mão um pano de linho dobrado e uma bacia pequena de bronze com água. Para na minha frente. O Timóteo se encolhe contra a minha perna.
+
+Ela é mais alta do que eu pensava. Quase da minha altura de verdade, não a de velha. Os olhos cor de mel estão secos, vermelhos nas bordas.
+
+— A Euricleia mandou — diz, e estende o pano. — Para as mãos. Ela está lá em cima com a rainha e disse que se eu não trouxesse ela mesma descia, e ela não aguenta essa escada duas vezes num dia.
+
+Eu não pego.
+
+— A rainha mandou você?
+
+— A rainha não manda ninguém trazer nada para você, Emily. — O meu nome na boca dela sai sem cerimônia, como se ela o tivesse ouvido muitas vezes em outra boca. — A rainha subiu a escada, entrou no quarto, passou o ferrolho e sentou no chão encostada na porta. Eu ouvi ela sentar. Faz um barulho de saco caindo.
+
+Eu pego o pano.
+
+Ela segura a bacia enquanto eu lavo as mãos. A água fica vermelha na primeira passada. A gente não diz nada por um tempo. Ela olha as minhas mãos, e eu olho a trança dela por cima do ombro, e a conta de âmbar na ponta, presa por um fio de ouro, balançando cada vez que ela respira.
+
+Eu reconheço aquela conta. Reconheço o colar de onde ela saiu. Eu dei aquele colar à Anne no quinto ano do casamento, numa feira de Corinto.
+
+— Ela vai acender a lamparina hoje — diz a Nísia, de repente, baixo. — Eu conheço ela. Ela vai acender, por teimosia, porque não sabe dormir com a janela escura. E de manhã, antes do sol, ela vai apagar. Na tua frente. Para você ver da janela que ela apagou.
+
+— Por que você está me dizendo isso?
+
+— Porque se eu não disser, você vai ficar a noite inteira aqui embaixo achando que a luz é para você e de manhã vai cair do cavalo. — Ela tira a bacia das minhas mãos. — E porque eu passei seis anos sentada na mesa dela vendo aquela luz de longe, sem direito a ela. Eu sei como é ficar olhando uma janela. Não desejo isso nem a você.
+
+— Que generosidade, para uma mulher que usa na trança uma conta do colar que eu dei a ela — digo, e a voz sai com veneno, e eu deixo sair.
+
+Ela não leva a mão à trança. Eu esperava que levasse. Ela me olha com uma calma que me dá vontade de quebrar a bacia.
+
+— Generosidade nenhuma — diz, sem sorrir. — Você eu desejo coisa pior. Eu desejo que ela te perdoe devagar, muito devagar, e que você tenha que ficar perto vendo cada dia que ela não perdoa.
+
+Ela vira as costas com a bacia de água vermelha nas mãos e vai embora pelo meio dos corpos, com a conta de âmbar batendo nas costas.
+
+E eu fico com o pano dela nas mãos, molhado, e com uma vontade enorme de arrancar aquela conta da trança dela e jogar no poço. E com outra vontade, pior, por baixo da primeira: a de subir a escada da torre agora, ensanguentada como estou, e bater na porta onde uma mulher está sentada no chão fazendo barulho de saco caindo, e sentar do lado de fora, encostada na mesma madeira, até ela sentir que eu estou ali.
+
 Olho a porta por onde ela saiu.
 
 Não me mexo.
 
-— Ela vai voltar? — pergunta o Timóteo, baixinho, contra a minha coxa.
+— Ela vai voltar? — pergunta o Timóteo, baixinho, contra a minha coxa. — Ela foi embora assim uma vez, quando eu tinha sete anos e quebrei a lamparina. Ficou dois dias sem falar comigo. Depois voltou e me deu figo.
 
 Olho a janela alta da ala leste. Pequena. Meio escondida pela sombra da torre. Não há luz nela. Ainda é dia.
 
-— Não sei, meu amor — digo. — Mas eu vou esperar.
+— Não sei, meu amor — digo. — Eu não tenho figo nenhum para dar a ela. Mas eu vou ficar aqui embaixo, onde ela possa me ver da janela, até ela decidir.
 
 Sinto o braço dele apertar a minha perna.
 
 O sol desce sobre o pátio. Sobre o sangue. Sobre o rosto do Antínoo, que olha o céu sem ver.
 
-E sinto, pela primeira vez em dez anos, o peso exato de tudo o que eu fiz. E de tudo o que eu deixei de fazer.
+E sinto, pela primeira vez em dez anos, o peso exato do que eu fiz. E do que eu deixei de fazer.
 
 E lembro, sem querer, de uma frase da Circe, dita numa noite de ébano e incenso.
 
