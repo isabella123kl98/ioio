@@ -304,7 +304,7 @@ O Leócrito me olha, atônito.
 
 E levanta a voz.
 
-— Esta assembleia não nos dá justiça. Então nós vamos tomar. — Aponta o mar. — Em três dias, ao meio-dia, nós nos encontramos no cais. Com os nossos navios. E a gente vê quem tem mais direito a esta ilha.
+— Esta assembleia não nos dá justiça. Então nós vamos tomar. — Aponta o mar. — Na lua nova, daqui a cinco dias, ao amanhecer, nós nos encontramos no cais. Com os nossos navios. E a gente vê quem tem mais direito a esta ilha.
 
 Grito. Aplauso. Uma confusão de vozes e de punhos.
 
@@ -312,7 +312,7 @@ Uma parte da praça se levanta e corre para o cais, gritando nomes. Outra corre 
 
 Fico imóvel. Com o cetro na mão. Olhando aquele mar de gente se mexendo.
 
-Três dias.
+Cinco dias.
 
 Conto os navios que eu conheço nos portos de Same, de Zacinto, de Dulíquio. Quinze. Vinte. Trinta.
 
@@ -410,7 +410,7 @@ Euricleia sorri, triste. E me beija a testa.
 
 Saio pela porta dos fundos, do lado do estábulo, sem olhar para trás.
 
-A noite já caiu. O vento sopra do mar. Sinto o gosto do sal na boca e o cheiro de oliveira e de terra. E de uma casa pequena nos fundos da ilha, onde uma mulher de cabelo curto, com uma cicatriz nova no queixo, dorme do lado do filho, sem saber que em três dias o mundo vai acabar.
+A noite já caiu. O vento sopra do mar. Sinto o gosto do sal na boca e o cheiro de oliveira e de terra. E de uma casa pequena nos fundos da ilha, onde uma mulher de cabelo curto, com uma cicatriz nova no queixo, dorme do lado do filho, sem saber que em cinco dias o mundo vai acabar.
 
 Caminho rápido. Sem tocha. Conhecendo o caminho de cor, estrela por estrela, como ela me ensinou a fazer, num inverno, em outra vida. A Ursa sempre à esquerda. A que nunca mergulha no mar.
 

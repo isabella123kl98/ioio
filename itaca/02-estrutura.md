@@ -63,3 +63,6 @@ Epílogo — A primeira carta
 - Matança: 107 mortos; o menino de Dulíquio (17 anos) foi poupado e fugiu. Timóteo matou um homem para salvar Emily. Emily revelou-se a Eumeu e Timóteo antes do concurso (de madrugada, esvaziando o arsenal).
 - Broche (cão e cervo): Emily o salvou do mar; Laertes recusa recebê-lo de volta: 'dá para quem merece' (Anne recusou o broche na noite de núpcias por ter sido de outro).
 - Cão Fido: batizado por Anne no cap. 21 (sítio). Antes disso é 'o cachorro cinzento' (corrigir B3).
+- Cronologia pós-matança: dia 0 assembleia (prazo de Leócrito: lua nova, 5 dias, ao amanhecer). Noite 0 Anne parte. Dia 1 Emily febril; Anne chega à noite. Dia 2 manhã: decidem; partem; noite no vale do carvalho (mentira da cama). Dia 3 meio-dia: casa de Eupites; Emily conta tudo, inclusive Circe ("a outra"); Anne foge ao entardecer. Noite 3 Emily procura. Dia 4 Emily volta ao palácio. Dia 5 amanhecer: 42 navios.
+- A exigência de Anne (cap. 22): que ninguém ouça "a outra" (Circe) antes dela. Emily conta a Eupites.
+- Anne foge ao entardecer do dia 3, anda a noite e o dia 4 até a pedra chata do morro (A2, noite do dia 4). Emily procura com Timóteo e o cão na estrada (noite 4). Dia 5 amanhecer: navios de Leócrito; Nísia chega com 40 navios de Same; Atena impõe a paz. Ao pôr do sol do dia 5 a lamparina acende: Anne voltou.

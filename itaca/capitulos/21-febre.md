@@ -124,7 +124,7 @@ Depois, com os olhos no teto, ela me conta tudo.
 
 Com aquela voz lenta e firme que ela usa para dar notícia ruim.
 
-A assembleia. O tributo. A proposta do Eupites. A recusa dos homens armados. O Leócrito. Os navios se juntando em Same e em Zacinto. Três dias.
+A assembleia. O tributo. A proposta do Eupites. A recusa dos homens armados. O Leócrito. Os navios se juntando em Same e em Zacinto. Cinco dias. Na lua nova.
 
 — Um já foi — diz. — Ontem. Enquanto você ardia.
 
