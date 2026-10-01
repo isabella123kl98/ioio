@@ -348,7 +348,7 @@ E vozes.
 
 A da Euricleia, baixa, resmungando como resmunga com as panelas. E outra. Rachada. De velha.
 
-Eu chego mais perto. Encosto a palma na madeira. Não empurro.
+Eu chego mais perto, até sentir o vapor no rosto. Não encosto.
 
 — Está quente demais — diz a voz rachada, e tem um riso dentro dela, um riso pequeno, que não combina com a voz. — A senhora quer me cozinhar como lentilha?
 
@@ -360,13 +360,13 @@ Silêncio. A água mexe. Eu ouço a concha de bronze entrar na bacia e sair, e a
 
 Um suspiro comprido, de quem afunda até o pescoço depois de muito tempo. Um suspiro que eu conheço.
 
-Eu tiro a mão da porta como se ela tivesse esquentado.
+Eu recuo meio passo como se a porta tivesse esquentado.
 
 Conheço esse suspiro. Ouvi esse suspiro mil vezes, de dentro da nossa banheira de pedra no primeiro andar, nas noites em que ela voltava do porto com o corpo duro de frio, e eu ficava sentada na beira lendo as contas em voz alta só para ela reclamar que eu não deixava ninguém descansar em paz. Ela entrava na água e afundava e soltava esse suspiro, e depois dizia, de olhos fechados, toda santa vez: *Coruja, se você me ama, cala a boca por uma hora.*
 
 Qualquer pessoa cansada suspira, digo a mim mesma. Qualquer velha numa bacia de água quente.
 
-Encosto a testa na porta. A madeira está morna do vapor.
+Fico parada a dois passos da porta, com o vapor morno subindo pela fresta e lambendo os meus pés descalços.
 
 A água para de mexer. Ninguém fala. Eu escuto a respiração das duas através da madeira, e escuto a minha, e as três estão erradas, compridas demais, presas demais.
 
@@ -376,17 +376,17 @@ Baixinho. Sem letra. Uma cantiga de ninar de Ítaca, de três notas que sobem e 
 
 Ela não canta para hóspede. Em vinte anos eu nunca ouvi a Euricleia cantar para ninguém que não fosse desta casa.
 
-Minha mão desce até o trinco. Os dedos fecham nele. O ferro está frio. É só levantar. Um dedo. Um movimento que eu fiz mil vezes em todas as portas desta casa, e que separa esta noite de todas as outras.
+Dou um passo na direção da porta. Só um. E o meu pé encontra, no escuro, a tábua solta do corredor sul, a que range desde o primeiro inverno e que eu mandei pregar três vezes.
+
+Ela range.
 
 A cantiga para no meio, na nota que desce.
 
-— Vira, filha — diz a Euricleia, com uma voz que eu não conheço nela, molhada. — Deixa eu lavar as costas.
+Silêncio lá dentro. A água parada. Ninguém respira, nem as duas do lado de lá nem eu do lado de cá. Eu fico de pé em cima da tábua traidora, com o coração batendo na boca, sem coragem de tirar o pé, porque tirar o pé faz a tábua ranger de novo.
+
+— É o vento, filha — diz a Euricleia, afinal, alto demais, com uma voz que eu conheço, a voz que ela usava para mentir para a minha sogra. — Essa casa é cheia de vento. Vira, deixa eu lavar as costas.
 
 E a água volta a mexer.
-
-Eu tiro a mão do trinco.
-
-Não sei por quê. Medo de estar certa. Medo de estar errada. Medo de abrir a porta e ver uma velha de Creta pelada numa bacia, e ter que explicar à Euricleia o que a rainha de Ítaca estava fazendo encostada na porta dos hóspedes de madrugada como uma criada curiosa. Medo de abrir a porta e não ver uma velha.
 
 Volto pelo corredor escuro. No degrau quebrado do meio, tropeço, e me seguro na parede, e fico ali um tempo, de mão espalmada na pedra fria, rindo baixinho de mim mesma, um riso horrível, que não é riso.
 
