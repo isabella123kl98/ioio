@@ -20,7 +20,7 @@ Reconheço as velas. As de Same, azuis e brancas. As de Zacinto, vermelhas. As d
 
 Fico parada, com a mão no parapeito, sentindo na palma a pedra fria e áspera.
 
-E faço a conta. Como faço sempre.
+E faço a conta, que é o que eu faço com medo.
 
 Quarenta e dois navios. Catorze homens em cada. Quinhentos e oitenta e oito. E mais os mercenários. Seiscentos. Setecentos.
 
@@ -42,13 +42,13 @@ Voltei ao palácio a pé. Um dia inteiro de estrada.
 
 Quando entrei no pátio, Euricleia estava na porta, de braços cruzados, com o rosto duro.
 
-— Ela não voltou — disse.
+— Ela não voltou — disse. — E você está com cara de quem sabe por quê.
 
-— Eu sei.
+— Ela foi embora por minha causa, ama. Na frente da casa do Eupites, ao pôr do sol, depois de ouvir um nome.
 
-— O que você fez?
+— Que nome? Que você fez, menina? Fala de uma vez, que eu tenho setenta anos e não tenho tempo para você contar em pedaços.
 
-— Contei a verdade. Toda. Ao Eupites.
+— Contei a verdade ao Eupites. Inteira. Antes de contar a ela.
 
 Euricleia fechou os olhos. Soltou o ar devagar, como quem pesa um cesto na mão.
 
@@ -62,15 +62,39 @@ Não estava no porto.
 
 Voltei de madrugada. Subi à torre.
 
+E na madrugada, antes de subir, eu fiz uma coisa que eu não tinha coragem de fazer desde que voltei.
+
+Entrei no quarto dela.
+
+A porta estava sem ferrolho. A lamparina acesa no gancho, que a ama acende agora, toda noite, resmungando. A cama inteira, com a oliveira no meio, como ela disse no fogo. Eu passei a mão no tronco para ter certeza, e a casca estava lá, áspera, viva, e eu encostei a testa nela e respirei como quem sobe do fundo do mar.
+
+Na mesa, num pires de barro, um caroço de pera. Seco. Com a polpa roída até o fim, em volta da semente, com cuidado, por dentes que não deixaram nada.
+
+Fiquei olhando aquele caroço muito tempo.
+
+Ela comeu a pera inteira. A minha mordida e o resto. E guardou o caroço num pires, do lado da cama, onde ela vê ao acordar.
+
+Deitei na cama dela. Do lado dela, o esquerdo, onde o colchão tem o afundado do quadril dela. Vestida, de sandália, com a espada no chão. O travesseiro cheirava a lavanda e ao cabelo dela, e eu enfiei a cara ali e fiquei, e o corpo inteiro acordou de uma vez, como quando ela me tocava no escuro sem avisar. Senti os seios endurecerem debaixo do linho. Senti o peso quente descer pela barriga. Eu, que tinha procurado ela a noite inteira nas colinas e não tinha achado, estava deitada no molde do corpo dela, e era a coisa mais perto dela que eu tinha.
+
+Pus a mão no lugar do lado, o liso, o meu. Frio.
+
+Não me toquei. Quis, e não me toquei. Fiquei ali com a mão aberta no meu lado frio e a cara no travesseiro dela, de olhos abertos, dizendo o nome dela baixinho no linho até o nome perder o sentido e virar só respiração. Se ela entrasse naquela hora, de túnica de estrada e pé sangrando, e me achasse ali, na cama dela, eu não ia ter desculpa nenhuma. Eu ia só abrir os braços.
+
+Ela não entrou.
+
+Levantei antes do galo, alisei o lençol com as duas mãos para apagar a minha forma, e saí. E no meio da escada voltei, e peguei o caroço do pires, e guardei na palma, e desci para a torre com ele fechado na mão.
+
+Está aqui ainda. Na minha mão esquerda, apertado contra o parapeito, enquanto eu conto os navios.
+
 E agora os navios.
 
 ---
 
-Eu sei onde eu errei. Sei exatamente.
+Onde eu errei, eu tenho claro.
 
 Não na verdade. Na ordem.
 
-A Anne me pediu uma coisa. Uma só. Simples e impossível. Que a outra, a que eu deixei escapar no quarto dela, ninguém ouvisse antes dela.
+A Anne me pediu uma coisa. Uma só. Simples e difícil. Que a outra, a que eu deixei escapar no quarto dela, ninguém ouvisse antes dela.
 
 Eu tentei. Juro que tentei.
 
@@ -94,7 +118,7 @@ O velho fechou os olhos.
 
 — E o que ele fez? Na cara. Na hora.
 
-Pensei. Não queria mentir. Não podia mentir. Não para aquele rosto.
+Pensei. Mentir para aquele rosto eu não podia.
 
 — Ele pareceu um menino. Por um segundo. O menino que carregou o meu escudo. Ele pareceu perguntar *por quê.* Como uma criança pergunta quando cai.
 
@@ -156,29 +180,23 @@ Ele ouviu calado. Sem me interromper. Sem me julgar.
 
 Quando terminei, ficou muito tempo olhando a própria mão em cima da mesa. Uma mão grande, de nó grosso, com uma aliança de ferro gasta.
 
-— A tua esposa sabe disso?
+— A tua esposa sabe disso? — perguntou, sem levantar os olhos da mão.
 
-— Não. Sabe que tem outra. Não sabe o nome.
+— Sabe que tem outra. Escapou de mim no quarto dela, numa hora ruim. Não sabe o nome. Ela me pediu, ontem, debaixo de um carvalho, que o senhor não ouvisse antes dela.
 
-— E você me contou antes dela.
+— E você me contou antes dela. — Ele levantou os olhos. — Na minha mesa, sem vinho, para um velho que pediu a tua cabeça na praça.
 
-— Contei.
+— Contei. Porque o senhor perguntou com a cara que ela não teve coragem de fazer.
 
-Ele balançou a cabeça devagar.
-
-— Por quê?
-
-— Porque o senhor perguntou. E ela pediu para não perguntar ainda.
-
-— Não. — Ele me olhou. — Por que você não contou a ela antes, em dez dias, em dez anos? Por que esperou alguém te obrigar?
+— Não é por isso. — Ele me olhou. — Por que você não contou a ela antes, em dez dias, em dez anos? Por que esperou alguém te obrigar?
 
 Não respondi.
 
 — Medo — disse ele, por mim. — Medo de ela te olhar como eu estou te olhando agora.
 
-— Como o senhor está me olhando?
+— E como o senhor está me olhando? Me diz, que eu não sei ler cara de pai, eu fui uma péssima filha.
 
-— Como uma criança que quebrou alguma coisa. — Ele sorriu, triste, cansado. — Mas eu não estou te olhando assim. Estou te olhando como pai. Você tem a idade que o meu filho ia ter, se tivesse crescido mais vinte anos.
+— Você acha que eu te olho como quem olha uma criança que quebrou uma ânfora. — Ele sorriu, triste, cansado. — Mas eu não estou te olhando assim. Estou te olhando como pai. Você tem a idade que o meu filho ia ter, se tivesse crescido mais vinte anos.
 
 Eu chorei.
 
@@ -206,21 +224,21 @@ Está na porta da escada, de túnica de couro e cinto, com uma espada curta pend
 
 Pego o pão. Não tenho fome. Mastigo por ele.
 
-— Onde ela está? — pergunta.
+— Onde ela está? — pergunta. — A senhora procurou no porto, e no norte, e na encruzilhada. Eu fui junto. Onde mais tem?
 
-— Não sei.
+— Num lugar que eu não conheço, filho, e isso é o que mais me assusta, porque eu achava que conhecia a ilha inteira.
 
-— Ela vai voltar?
+— E ela vai voltar?
 
-— Vai. Ela não é mulher que foge. Não foi fuga. Foi uma pausa. Para respirar.
+— Vai. A tua mãe não foge. Ela vai embora para respirar e volta para brigar, que é diferente.
 
 Ele olha o mar. A frota já perto do porto, os remos mexendo na água como patas de inseto.
 
-— Eles vão nos matar — diz, com a voz calma. Sem medo nenhum. — Seiscentos contra cinquenta.
+— Eles vão nos matar — diz, com a voz calma, como quem lê uma conta. — Seiscentos contra cinquenta.
 
-— Cinquenta e cinco.
+— Cinquenta e cinco, se você conta o Eumeu, o Filécio, a ama, você e eu.
 
-— Cinquenta e seis — corrige ele. — O Fido conta.
+— Cinquenta e seis — corrige ele, muito sério. — O Fido conta. Ele mordeu o primo do Leócrito no mercado, a ama contou.
 
 Quase rio.
 
@@ -230,23 +248,19 @@ Me ajoelho. Explico. Em uma hora eles desembarcam. Vão pedir para falar comigo.
 
 — E se eu morrer — digo —, você foge. Leva a Euricleia, o Eumeu, quem você puder. Para o sítio do avô.
 
-— Não.
+— Não fujo, mãe. E não adianta dizer *Timóteo* com essa voz, que eu já conheço a voz.
 
-— Timóteo.
+— Timóteo, me escuta, isso não é arco no pátio...
 
-— Eu tenho dez anos. Eu matei um homem. Eu sei o que é. — O queixo dele empina. — E eu não vou deixar a senhora morrer sozinha. Nem a mãe Anne. Nem ninguém.
+— Eu tenho dez anos e matei um homem. Eu conheço o que é. — O queixo dele empina. — E eu não vou deixar a senhora morrer sozinha. Nem a mãe Anne. Nem ninguém.
 
 Pego o rosto dele com as duas mãos.
 
-— Você é corajoso demais para o teu próprio bem.
+— Você é corajoso demais para o teu próprio bem, filho, e isso não é elogio, é aviso.
 
-— Puxei da senhora.
+— Puxei da senhora, que pulou na frente de um javali com doze anos.
 
-— Puxou da outra.
-
-Beijo a testa dele.
-
-— A mais corajosa de nós três.
+— Puxou da outra. — Beijo a testa dele. — Da que atravessou a ilha a pé de noite com uma faca que nunca usou, para cuidar de uma idiota com febre. Ela é a mais corajosa de nós três, e a única que tem juízo.
 
 ---
 
@@ -268,17 +282,17 @@ O Leócrito sorri ao me ver.
 
 — Eu esperava uma recepção mais calorosa — diz.
 
-— Eu esperava que você viesse de barriga cheia. Na minha mesa você sempre veio.
+— Eu esperava que você viesse de barriga cheia. Na minha mesa você vinha cheio e saía mais cheio.
 
 Ele ri.
 
-— A assassina tem senso de humor.
+— A assassina tem senso de humor. Disseram no porto que era só a esposa que tinha língua.
 
-— Não tenho é paciência. O que você quer?
+— A esposa tem a língua e eu tenho a espada, a gente dividiu as tarefas antes do casamento. Fala o que você quer, Leócrito, que o sol está subindo e eu tenho uma perna ruim.
 
-— Justiça.
+— Justiça, rainha. Para os meus primos e para o meu tio.
 
-— Você quer a coroa.
+— Você quer a coroa, e quer que a justiça carregue ela para você na cabeça, que é mais bonito do que pegar com a mão.
 
 O sorriso dele não vacila. Desce do cavalo com um movimento fluido, joga as rédeas para um escudeiro e vem até mim, devagar, batendo o elmo na coxa.
 
@@ -334,9 +348,9 @@ A palavra que eu tentei dizer dezessete dias no mar. Que eu disse para a terceir
 
 Digo agora. Baixinho. Para ninguém. Para o mar. Para os quarenta e dois navios.
 
-— Agapi.
+— Agapi. Agapi mou.
 
-Sai. Inteira.
+Sai. Inteira. As duas, a curta e a comprida, como ela me ensinou num inverno, rindo do meu sotaque.
 
 E ninguém escuta.
 
@@ -362,9 +376,9 @@ A ponta da trança está nua. Sem conta. Sem fio de ouro.
 
 — Você é que chegou a tempo. — Ela inclina a cabeça. — Eu estava em Same. Quando eu soube da frota, eu vim. Com os meus navios.
 
-— Os teus navios?
+— Os teus navios? Você não tinha nem barco de pesca quando a Anne te conheceu, a ama me contou.
 
-— Quarenta. Não são todos meus. A maioria é de Same. Mas me obedecem.
+— Quarenta, rainha. Não são todos meus. A maioria é de Same, de homens que me devem sal, ou dinheiro, ou a vida da mãe. Mas me obedecem, que dívida obedece melhor que amor.
 
 Me viro devagar.
 
@@ -376,23 +390,23 @@ Atrás da frota do Leócrito, contornando o cabo norte da ilha, uma segunda frot
 
 Ela me olha.
 
-— Eu não vim te ajudar, Emily. Eu vim ajudar ela.
+— Eu não vim te ajudar, Emily. Eu vim ajudar ela. Se fosse só você no cais, eu deixava o Leócrito te pendurar no mastro e voltava para casa para dormir.
 
-— Eu sei.
+— Isso eu entendi quando você apareceu sem me olhar nos olhos.
 
-— E você sabe também que, se for preciso, eu me viro contra você.
+— E entende também que, se for preciso, se você machucar ela de novo, eu viro esses quarenta navios contra você e não peço desculpa à deusa nenhuma.
 
-— Sei.
+— Entendo, e acho justo, e se eu machucar, eu mesma desamarro os teus navios. — Engulo. — Mas eu não vou.
 
-— Bom. — Ela sorri. — Só para ficar claro.
+— Bom. — Ela sorri. — Só para ficar claro entre nós duas, que com ela a gente não consegue deixar nada claro.
 
 Não consigo evitar. Sorrio.
 
 É uma coisa tão absurda que me pega desprevenida. A mulher que passou uma noite com a minha esposa. Que a ama há seis anos. Que trouxe quarenta navios para defendê-la. Está na minha frente, de túnica azul-clara, dizendo com toda a calma que, se for preciso, me mata.
 
-— Você é a pessoa mais honesta que eu conheço — digo.
+— Você é a pessoa mais honesta que eu conheço — digo, e é verdade, e me dói.
 
-— Não é difícil. Com as mentirosas que você tem em volta.
+— Não é difícil, rainha. Com as mentirosas que você tem em volta, até a ama parece filósofa.
 
 ---
 
@@ -408,7 +422,7 @@ O sol, que estava alto, sem nuvem, escurece de repente. Como se um dedo gigante 
 
 Uma voz atravessa o cais.
 
-Não é alta. Não é forte. Mas todo mundo ouve. Como se ela falasse dentro de cada cabeça.
+Nem alta nem forte. Mas todo mundo ouve. Como se ela falasse dentro de cada cabeça.
 
 *Basta.*
 
@@ -438,7 +452,7 @@ E Atena vira os olhos para ele.
 
 E eu vejo, pela primeira vez, uma expressão de pena no rosto da deusa.
 
-*Não se esquece. Mas também não se mata por ele. Não para sempre.*
+*Não se esquece. Mas também não se mata por ele até o fim dos dias.*
 
 Levanta a mão.
 
@@ -458,7 +472,7 @@ Ele se ajoelha.
 
 Atena sorri. E me olha. Um olhar comprido.
 
-E eu entendo, por um instante, que ela sabe de tudo. O cedro. A cama. O silêncio. Eéa. A lamparina. A palavra que eu acabei de dizer para o mar e que ninguém escutou.
+E eu entendo, por um instante, que ela sabe. O cedro. A cama. O silêncio. Eéa. A lamparina. A palavra que eu acabei de dizer para o mar e que ninguém escutou.
 
 *Eu disse que você ia ter trabalho*, diz ela. *Não disse que ia ser fácil.*
 
@@ -478,17 +492,13 @@ Deixa os navios dela ancorados ao largo, com a bandeira azul e branca no mastro,
 
 Ficamos as duas ali, em silêncio, vendo o sol descer.
 
-— Você devia ir embora — digo.
+— Você devia ir embora — digo. — A frota do Leócrito foi, a deusa foi, os teus homens estão com fome. Não sobrou nada para você defender aqui além de mim, e eu você não quer defender.
 
-— Eu sei.
-
-— Por que não vai?
-
-— Porque ela ainda não voltou. — Ela olha o morro. — E eu acho que ela está a caminho. Só precisa de tempo. Eu espero. É o que eu sei fazer.
+— Devia, e vou. Mas não agora. Porque ela ainda não voltou. — Ela olha o morro. — E eu acho que ela está a caminho. Só precisa de tempo. Eu espero. Esperar é o meu ofício, mais que o sal.
 
 Olho de lado. A trança. A ponta nua. O perfil calmo.
 
-Sinto uma onda de gratidão. Uma de ciúme. Uma de vergonha. Tudo misturado, como água de rio entrando no mar.
+Sinto uma onda de gratidão. Uma de ciúme. Uma de vergonha. As três misturadas, como água de rio entrando no mar.
 
 — A conta de âmbar — digo.
 
@@ -496,27 +506,23 @@ Ela leva a mão à ponta da trança. Por reflexo.
 
 — Joguei fora. — Ela solta a mão. — No mato. Na estrada do porto. No dia em que eu fui embora.
 
-— Por quê?
+— Por quê? Você carregou aquela conta seis anos na trança. Eu vi no pátio. Você mexia nela quando ela passava.
 
-— Porque era dela. E ela não era minha.
+— Porque era dela, e ela não era minha. Carregar o que é de alguém que não é teu pesa mais que corrente. — Ela não me olha. — Joguei, e senti a cabeça leve, e chorei até Same.
 
 Fico calada muito tempo.
 
-— Por que você ama ela? — pergunto.
+— Por que você ama ela? — pergunto, e me arrependo, e não retiro.
 
-— Que pergunta.
+— Que pergunta de rainha. — Mas ela pensa, olhando o mar. — Porque ela nunca pediu nada. E porque, sem pedir, me deu o que podia, que era pouco. Mas era inteiro. Ela não sabe dar metade de nada, nem de raiva.
 
-Mas ela pensa. Olha o mar.
+— É o que eu sinto há vinte anos, e nunca consegui dizer em menos palavras.
 
-— Porque ela nunca pediu nada. E porque, sem pedir, sempre me deu tudo o que podia. Que era pouco. — Ela sorri. — Mas era inteiro.
+— Por isso eu não tenho raiva de você. A gente ama a mesma mulher pelo mesmo motivo. Seria como ter raiva do espelho.
 
-— É a mesma coisa que eu sinto.
+— Devia ter, Nísia. Eu tenho de você, um pouco, se te consola.
 
-— Eu sei. É por isso que eu não tenho raiva de você.
-
-— Devia ter.
-
-— Talvez. Mas ia ser perda de tempo.
+— Consola. — Ela sorri de lado. — Mas ia ser perda de tempo, a minha. A tua eu deixo, que você tem tempo de sobra para perder, pelo que eu ouvi.
 
 Ela fica olhando o poente.
 
@@ -530,11 +536,11 @@ Se levanta. Alisa a túnica. Vai até a beira do cais, onde um bote espera. Desc
 
 E antes de soltar a corda, vira, com um sorriso pequeno e torto.
 
-— Eu vou estar em Same. Se ela quiser me chamar.
+— Eu vou estar em Same. Se ela quiser me chamar, para sal, para conversa, para o que for.
 
-— Eu aviso.
+— Eu aviso a ela que você disse isso.
 
-— Não. — Ela solta a corda. — Ela avisa.
+— Não, rainha. — Ela solta a corda. — Você não avisa nada por ela. Ela avisa. Aprende isso de uma vez, que ela vai te agradecer.
 
 ---
 
@@ -554,9 +560,9 @@ Pequena, nesta distância. Contra o céu cor de cobre. De braços cruzados. Com 
 
 O jeito de quem espera que alguma coisa seja devolvida e já calculou os juros.
 
-Ela estava lá. O tempo todo. Lá em cima. Vendo os navios. Vendo a deusa. Vendo a Nísia sentada do meu lado no cais.
+Ela estava lá o tempo todo, lá em cima. Vendo os navios. Vendo a deusa. Vendo a Nísia sentada do meu lado no cais.
 
-Viu tudo.
+Viu cada coisa.
 
 Fico de pé. A perna dói. Não ligo.
 
@@ -579,3 +585,33 @@ Ou é.
 Pela primeira vez em dez anos, eu não sei a diferença.
 
 E não preciso saber.
+
+Abro a mão esquerda.
+
+O caroço está lá, seco, com a marca dos meus dedos na casca escura, morno de um dia inteiro apertado. Passei o duelo que não houve, a deusa, a Nísia, os navios, com ele fechado na mão, e não larguei nem para pegar a espada.
+
+Olho o caroço. Olho a luz na janela.
+
+E entendo uma coisa tão simples que dá vergonha de não ter entendido antes. Ela guardou o caroço do lado da cama. Ela me viu no cais com outra mulher, e desceu o morro sem me olhar, e subiu a torre, e acendeu a luz. Ela faz as coisas ao contrário de mim. Eu digo e não faço. Ela faz e não diz.
+
+Não subo logo.
+
+Fico no cais até escurecer, sentada no barril, com o caroço na mão e uma tocha que um pescador fincou do meu lado sem pedir. Ela precisa de tempo para chegar, para lavar os pés, para decidir se passa o ferrolho. Eu dou o tempo. É a primeira coisa que eu dou a ela sem ela pedir.
+
+— Vai na frente, filho — digo ao Timóteo, que não sai do meu lado. — Vai para casa. Senta no pé da escada da torre e espera ela passar. Não pergunta nada que ela não queira responder. Só fica lá, para ela saber que alguém da casa está acordado.
+
+Ele me olha muito tempo, com a cara de juiz.
+
+— E a senhora?
+
+— Eu vou depois. Quando ela já tiver subido e tiver tido tempo de me odiar em paz.
+
+Ele vai, com o Fido atrás, e eu vejo os dois sumirem na estrada.
+
+Fico. Os pescadores cantam a canção do remo no fim do cais, desafinados, e eu canto junto, baixinho, desafinando no lugar de sempre, e não me importo.
+
+Quando a lua, que não existe esta noite, devia estar alta, eu levanto.
+
+O caroço na mão. A perna doendo. O coração batendo na boca.
+
+E começo a subir a estrada do palácio, contando, que é o que eu faço com medo.
