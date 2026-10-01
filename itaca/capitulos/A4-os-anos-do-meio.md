@@ -408,6 +408,22 @@ E eu, que passei dez anos preparando o discurso, o vestido, o olhar, descubro qu
 
 Levanto. Vou à janela. Olho o pátio escuro. O portão. O monte de estrume onde, há três dias, um cachorro velho morreu com o rabo mexendo. A colina. A pedra chata.
 
+Volto para a cama. E antes de deitar, sem decidir, abro o baú.
+
+A túnica cinza está lá, embaixo do véu e da lasca de pinho, dobrada do jeito que eu dobrei dez anos atrás. Tiro. Desdobro. Encosto no rosto.
+
+Não tem cheiro de nada. Linho velho e cedro do baú.
+
+Mas eu visto assim mesmo. Por cima da pele, como no primeiro ano. E deito do lado dela.
+
+E o que me vem não é a memória do primeiro ano. É a de hoje de manhã. Uma mão de velha nas minhas costas, enfiando um cordão de couro nos ilhoses do meu vestido, de baixo para cima, devagar, e errando o sexto furo, e encostando a palma inteira embaixo das minhas omoplatas para corrigir. Uma palma quente que ficou ali o tempo de uma respiração e que eu senti até agora, o dia inteiro, por baixo do vestido, como uma marca de sol.
+
+Eu ponho a minha mão para trás, por baixo da túnica cinza, e encontro o lugar nas minhas costas. Espalmo a minha palma ali, onde a dela esteve.
+
+Não é a mesma coisa. A minha mão é mais estreita, os dedos mais compridos. Fica um vão.
+
+Fico assim muito tempo, de lado, com a mão torcida nas costas, como uma idiota, respirando um linho que não cheira a ninguém.
+
 Respiro fundo, devagar, como quem toma uma decisão difícil que já tomou.
 
 Amanhã ela vai ter que escolher. Na frente de todos. Com um arco e doze machados.
