@@ -176,7 +176,7 @@ O velho aperta a bengala.
 
 — Eu sei — diz.
 
-— Então o senhor sabe o que eu fiz com os homens que me deram para cuidar. Eu perdi quinhentos e trinta e nove. Voltei sozinha. A rainha Anne recebeu uma ilha com cento e sete homens armados dentro de casa e devolveu com cento e sete a menos e todos os celeiros cheios. — Respiro. — Eu sei quem merece essa cadeira. O senhor também sabe. O sangue de Arcésio pode ficar na parede. É um bom lugar para ele. Daqui ele vê tudo.
+— Então o senhor sabe o que eu fiz com os homens que me deram para cuidar. Eu perdi quinhentos e trinta e nove. Voltei sozinha. A rainha Anne recebeu uma ilha com cento e oito homens armados dentro de casa e devolveu com cento e sete a menos e um fugindo pelo morro e todos os celeiros cheios. — Respiro. — Eu sei quem merece essa cadeira. O senhor também sabe. O sangue de Arcésio pode ficar na parede. É um bom lugar para ele. Daqui ele vê tudo.
 
 O Egípcio me olha muito tempo.
 

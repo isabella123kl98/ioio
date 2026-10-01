@@ -246,7 +246,7 @@ Enfio os dedos na terra. Cheira a tomilho e a cabra. É a minha terra, e eu pass
 
 Ela me conta sem pressa, com a mão no gato.
 
-Cento e sete homens no meu salão. Filhos de Ítaca, de Dulíquio, de Same, de Zacinto, que vieram cortejar a minha esposa porque acham que estou morta, e que ficaram porque ela se recusa a escolher. Comem os meus porcos. Bebem o meu vinho. Dormem com as minhas criadas. O mais ousado se chama Antínoo, filho de Eupites, e quer a coroa, e para ter a coroa precisa da rainha.
+Cento e oito homens no meu salão. Filhos de Ítaca, de Dulíquio, de Same, de Zacinto, que vieram cortejar a minha esposa porque acham que estou morta, e que ficaram porque ela se recusa a escolher. Comem os meus porcos. Bebem o meu vinho. Dormem com as minhas criadas. O mais ousado se chama Antínoo, filho de Eupites, e quer a coroa, e para ter a coroa precisa da rainha.
 
 E do menino fora do caminho.
 
@@ -262,7 +262,7 @@ Ele cuidou.
 
 Atena me olha por um tempo longo.
 
-— Há vinte noites, um mercador de Creta sentou no teu salão e contou onde você estava. E com quem. — Ela não suaviza a voz. — Contou rindo, diante de cento e sete homens que querem a cama dela, diante do teu filho. A tua mulher ouviu sentada na cadeira alta, sem mexer o rosto. Depois subiu a escada com o menino pela mão. O que ela fez lá em cima, eu não sei. Os deuses não sabem de tudo, Emily, por mais que os poetas jurem o contrário.
+— Há vinte noites, um mercador de Creta sentou no teu salão e contou onde você estava. E com quem. — Ela não suaviza a voz. — Contou rindo, diante de cento e oito homens que querem a cama dela, diante do teu filho. A tua mulher ouviu sentada na cadeira alta, sem mexer o rosto. Depois subiu a escada com o menino pela mão. O que ela fez lá em cima, eu não sei. Os deuses não sabem de tudo, Emily, por mais que os poetas jurem o contrário.
 
 O mundo gira. Apoio as duas mãos no chão. A náusea sobe e eu engulo de volta, porque não tenho mais nada dentro para pôr para fora.
 
@@ -274,7 +274,7 @@ Sabe. Antes de eu chegar. Antes de eu ter coragem de me ajoelhar no chão do nos
 
 Ela tira o gato do colo e o põe no chão. O gato se espreguiça, me olha com um desprezo de rei e vai embora entre as raízes.
 
-— Agora escute, rainha. Se você subir até aquele palácio agora, com essa cara, essa coxa aberta e as mãos em carne viva, eles te matam antes do portão. Cento e sete contra uma. E depois matam o menino, e a tua esposa vai ser dada ao que sobrar. Você vai subir, sim. Mas não como você.
+— Agora escute, rainha. Se você subir até aquele palácio agora, com essa cara, essa coxa aberta e as mãos em carne viva, eles te matam antes do portão. Cento e oito contra uma. E depois matam o menino, e a tua esposa vai ser dada ao que sobrar. Você vai subir, sim. Mas não como você.
 
 Ela estende a mão e toca a minha testa com um dedo.
 

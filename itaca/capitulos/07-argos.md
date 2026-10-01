@@ -162,7 +162,7 @@ O mundo fica muito quieto.
 
 Sinto o sangue subir até as orelhas. O trapo no dedo arde como ferro quente. A mão que segura o cajado aperta tanto que a madeira range.
 
-Eu podia levantar o cajado agora. Num movimento só. Acertar na têmpora, no ponto mole atrás do olho, onde os ossos são finos como casca de ovo. Ele cairia sem um som. E eu teria matado um dos cento e sete. E os outros cento e seis entrariam por aquela porta antes de eu terminar de respirar.
+Eu podia levantar o cajado agora. Num movimento só. Acertar na têmpora, no ponto mole atrás do olho, onde os ossos são finos como casca de ovo. Ele cairia sem um som. E eu teria matado um dos cento e oito. E os outros cento e sete entrariam por aquela porta antes de eu terminar de respirar.
 
 E depois o menino.
 
@@ -204,7 +204,7 @@ Sinto as orelhas queimando. Sinto a mão da moça no meu cotovelo, fria, tremend
 
 A vergonha de ser olhada.
 
-A vergonha que a Anne deve ter sentido naquela noite, sentada naquela cadeira, com cento e sete homens rindo dela. Por minha causa.
+A vergonha que a Anne deve ter sentido naquela noite, sentada naquela cadeira, com cento e oito homens rindo dela. Por minha causa.
 
 E é então que eu a vejo.
 

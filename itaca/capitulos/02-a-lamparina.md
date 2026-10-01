@@ -36,7 +36,7 @@ Tem vinte e quatro anos, é filho de Eupites, nasceu nesta ilha e foi criado ent
 
 É a primeira vez que me chama pelo nome.
 
-O coração me sobe à garganta, aos pulsos, ao fundo dos ouvidos. A boca se enche de uma saliva amarga. O que eu devia fazer está claro: levantar e despejar na cara dele o vocabulário inteiro que a minha língua conhece, e minha mãe espartana estaria atrás de mim com a lança, pronta para abrir o peito dele do queixo à virilha. E o que aconteceria depois também está claro. Ele sorriria mais. Os cento e seis amigos acordariam e desceriam ao pátio. Uma mulher e uma criança contra cento e sete, e a conta está escrita na cara dele, e na minha, e nenhum dos dois precisa dizer o resultado.
+O coração me sobe à garganta, aos pulsos, ao fundo dos ouvidos. A boca se enche de uma saliva amarga. O que eu devia fazer está claro: levantar e despejar na cara dele o vocabulário inteiro que a minha língua conhece, e minha mãe espartana estaria atrás de mim com a lança, pronta para abrir o peito dele do queixo à virilha. E o que aconteceria depois também está claro. Ele sorriria mais. Os cento e sete amigos acordariam e desceriam ao pátio. Uma mulher e uma criança contra cento e oito, e a conta está escrita na cara dele, e na minha, e nenhum dos dois precisa dizer o resultado.
 
 Então fico de joelhos, com o sangue do meu filho nas mangas, e conto, um, dois, três, porque é só isso que me separa da pá de adubo encostada na parede e da cabeça dele aberta na frente do menino.
 
@@ -204,7 +204,7 @@ O mercador chega ao entardecer, e eu não sei que ele é o fim.
 
 É um homem gordo e sorridente de Cnossos, chamado Cleantes, que desembarcou à tarde com um navio cheio de ânforas de óleo e tecidos tingidos e foi trazido ao palácio pelos rapazes do Antínoo, que adoram visitante de ilha distante, porque visitante conta história e história é a única coisa que esta casa ainda produz em abundância. Senta-se à mesa de honra. Come como quem sabe que vai pagar a refeição inteira com a língua. Bebe. E conta.
 
-Eu estou na cadeira alta, na cabeceira do salão, de vestido verde escuro e véu preso por um broche de prata, de costas retas e mãos cruzadas no colo, olhando a fumaça das tochas, como estátua posta ali para ser admirada e ignorada. Há cento e sete homens no salão. Conto as cabeças quando entro e quando saio. O Timóteo está ao meu lado, num banco baixo, com o olho ainda roxo e o lábio inchado escondido atrás de um pedaço de pão. Eu o trouxe porque deixá-lo trancado seria dar ao Antínoo a vitória de que o menino tem medo. Ele não fala. Só observa, com aquele jeito de quem anota cada nome para cobrar depois.
+Eu estou na cadeira alta, na cabeceira do salão, de vestido verde escuro e véu preso por um broche de prata, de costas retas e mãos cruzadas no colo, olhando a fumaça das tochas, como estátua posta ali para ser admirada e ignorada. Há cento e oito homens no salão. Conto as cabeças quando entro e quando saio. O Timóteo está ao meu lado, num banco baixo, com o olho ainda roxo e o lábio inchado escondido atrás de um pedaço de pão. Eu o trouxe porque deixá-lo trancado seria dar ao Antínoo a vitória de que o menino tem medo. Ele não fala. Só observa, com aquele jeito de quem anota cada nome para cobrar depois.
 
 Cleantes conta Troia primeiro, como todos contam, porque Troia é a moeda de troca de todo estrangeiro que entra neste salão, e eu escuto com o ouvido desligado. Depois conta os que voltaram. Menelau, com os navios cheios de ouro e uma esposa infiel. Nestor. Diomedes. Agamêmnon, assassinado na banheira pela própria mulher, e aí o salão se cala um instante, porque todos sabemos o que significa uma rainha que espera.
 
@@ -214,7 +214,7 @@ Então ele toma outro gole, limpa a barba, olha em volta como quem escolhe a hor
 
 Uma onda de riso corre pelo salão como fogo em palha seca.
 
-Não é cruel. É pior: é de alívio. Cento e sete homens que passaram dez anos em volta de uma mulher que se recusava a escolher descobrem que a razão da recusa era mentira. Que a esposa fiel que eu fingia ser guardava, na verdade, o leito de outra. O Antínoo ergue a taça, vejo o gesto pelo canto do olho, e grita um brinde à saúde da rainha Emily e ao bom uso que ela tenha feito do seu tempo. Cento e sete taças sobem ao mesmo tempo. O barulho é ensurdecedor. Alguém assobia. Alguém diz uma obscenidade sobre ninfas. A mesa inteira desaba de novo na gargalhada.
+Não é cruel. É pior: é de alívio. Cento e oito homens que passaram dez anos em volta de uma mulher que se recusava a escolher descobrem que a razão da recusa era mentira. Que a esposa fiel que eu fingia ser guardava, na verdade, o leito de outra. O Antínoo ergue a taça, vejo o gesto pelo canto do olho, e grita um brinde à saúde da rainha Emily e ao bom uso que ela tenha feito do seu tempo. Cento e oito taças sobem ao mesmo tempo. O barulho é ensurdecedor. Alguém assobia. Alguém diz uma obscenidade sobre ninfas. A mesa inteira desaba de novo na gargalhada.
 
 Não me mexo.
 

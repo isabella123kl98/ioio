@@ -270,7 +270,7 @@ Eu olho para ela. Ela me olha de volta. Sem sorrir. Ela está falando sério. El
 
 Eu respiro.
 
-— Ninguém é mais impressionante que você. Você pegou um coelho com o cordão da sandália hoje. Você construiu um forno sem saber construir forno. Você governou uma ilha com cento e sete homens dentro de casa. Ninguém, Anne. Satisfeita?
+— Ninguém é mais impressionante que você. Você pegou um coelho com o cordão da sandália hoje. Você construiu um forno sem saber construir forno. Você governou uma ilha com cento e oito homens dentro de casa. Ninguém, Anne. Satisfeita?
 
 — Não. — Ela descruza os braços. — Mas continua.
 

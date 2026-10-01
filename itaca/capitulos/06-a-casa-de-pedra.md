@@ -230,7 +230,7 @@ O Antínoo espera o terceiro prato. Espera o vinho fazer efeito nos outros. Espe
 
 E então levanta a taça na minha direção.
 
-— Majestade — diz, alto, sorrindo. — Vi o navio de Same no porto. A viúva veio de novo. — Faz uma pausa, e cento e sete cabeças se viram. — Que amizade bonita, a de vocês. Ela vem toda lua, não é? Em seis anos, nunca faltou uma. Fico pensando no que uma viúva rica de Same tem para tratar com tanta urgência com uma rainha que não tem mais o que vender.
+— Majestade — diz, alto, sorrindo. — Vi o navio de Same no porto. A viúva veio de novo. — Faz uma pausa, e cento e oito cabeças se viram. — Que amizade bonita, a de vocês. Ela vem toda lua, não é? Em seis anos, nunca faltou uma. Fico pensando no que uma viúva rica de Same tem para tratar com tanta urgência com uma rainha que não tem mais o que vender.
 
 Risos. Não muitos. Os mais bêbados.
 

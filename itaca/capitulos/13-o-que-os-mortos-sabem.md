@@ -164,7 +164,7 @@ Visto o trapo cinzento. Pego o cajado. Saio do quarto antes que alguém me veja.
 
 Hoje é o dia do arco.
 
-Ao meio-dia. Doze machados em fila. Cento e sete homens. E eu, no meio, com o corpo de velha e a cicatriz que ela viu.
+Ao meio-dia. Doze machados em fila. Cento e oito homens. E eu, no meio, com o corpo de velha e a cicatriz que ela viu.
 
 ---
 
@@ -412,4 +412,4 @@ E me dou conta de que, pela primeira vez desde a jangada, eu não estou com medo
 
 Estou com medo de que ele não conte.
 
-Porque se ele não contar, eu vou ter que contar. Ao meio-dia. No pátio. Com um arco de teixo nas mãos, na frente de cento e sete homens e de uma mulher de vestido verde com uma sobrancelha levantada, a da cicatriz, esperando para ver se a rainha de Ítaca ainda sabe ir dormir no estábulo sozinha ou se, desta vez, vai ficar em pé e aguentar a bronca.
+Porque se ele não contar, eu vou ter que contar. Ao meio-dia. No pátio. Com um arco de teixo nas mãos, na frente de cento e oito homens e de uma mulher de vestido verde com uma sobrancelha levantada, a da cicatriz, esperando para ver se a rainha de Ítaca ainda sabe ir dormir no estábulo sozinha ou se, desta vez, vai ficar em pé e aguentar a bronca.

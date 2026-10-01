@@ -14,7 +14,7 @@ Fico olhando as duas metades na palma.
 
 Uma lasca de madeira entrou no polegar. Uma gota de sangue aparece, redonda, limpa, sem pressa. Levo à boca. Gosto de ferro.
 
-Ele bateu numa velha de oitenta anos. Desarmada. Hóspede da minha casa. Com um banco de carvalho, na frente de cento e sete homens e da minha convidada, sem provocação, por diversão. Para me mostrar que podia.
+Ele bateu numa velha de oitenta anos. Desarmada. Hóspede da minha casa. Com um banco de carvalho, na frente de cento e oito homens e da minha convidada, sem provocação, por diversão. Para me mostrar que podia.
 
 Não é mais sobre a mendiga. Nem sobre o mercador. Nem sobre a minha mão no queixo dela, junto ao fogo, e o osso por baixo da pele.
 
@@ -196,7 +196,7 @@ No sexto ano, na mesma lua da notícia de Corinto, desci ao depósito sozinha, �
 
 Mas tem um jeito de usar isso.
 
-Nenhum dos pretendentes vai conseguir. São homens moles, criados a vinho e a carne, sem um calo nas mãos. Vão tentar um por um, suando, xingando, dando risadas nervosas. E vão falhar. Cento e sete humilhações, em público, no meu pátio.
+Nenhum dos pretendentes vai conseguir. São homens moles, criados a vinho e a carne, sem um calo nas mãos. Vão tentar um por um, suando, xingando, dando risadas nervosas. E vão falhar. Cento e oito humilhações, em público, no meu pátio.
 
 E se eu estiver certa sobre a mendiga.
 
@@ -210,7 +210,7 @@ Não sei o que ela vai fazer.
 
 Mas eu, pela primeira vez em dez anos, vou ter o controle.
 
-É cruel. Uma tortura bem educada vestida de concurso. Estou obrigando uma mulher, que nem sei se é quem eu acho, a escolher entre o disfarce e a verdade debaixo dos olhos de cento e sete inimigos.
+É cruel. Uma tortura bem educada vestida de concurso. Estou obrigando uma mulher, que nem sei se é quem eu acho, a escolher entre o disfarce e a verdade debaixo dos olhos de cento e oito inimigos.
 
 Mas é o meu ofício.
 

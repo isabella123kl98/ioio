@@ -249,7 +249,7 @@ Leio todas. Na ordem. Uma por uma. E copio aqui do jeito que escrevi, sem mudar 
 
 *Esta é a última. Não vou escrever mais.*
 
-*Hoje um mercador de Cnossos sentou no meu salão, comeu do meu cordeiro, bebeu do meu vinho, e contou a cento e sete homens, rindo, que você está viva. Numa ilha. No meio do mar. Na cama de uma ninfa. Faz anos.*
+*Hoje um mercador de Cnossos sentou no meu salão, comeu do meu cordeiro, bebeu do meu vinho, e contou a cento e oito homens, rindo, que você está viva. Numa ilha. No meio do mar. Na cama de uma ninfa. Faz anos.*
 
 *Eu ouvi sentada na cadeira dos golfinhos, com as mãos no colo, a cara lisa. Do jeito que se ouve quando a gente joga uma pedra num poço e fica escutando para saber quanto tempo ela demora para bater no fundo.*
 

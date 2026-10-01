@@ -36,7 +36,7 @@ Não era pergunta. Era ordem com a voz rouca de quem segura outra coisa por baix
 
 — Velha não falta a festa, senhora. Tem comida.
 
-— Não vai ter comida. — A mão dela, a livre, desceu. Eu senti descer pelo meu braço bom, devagar, pelo cotovelo, pelo antebraço, até chegar na minha mão direita. Até chegar no trapo amarrado no dedo. Os dedos dela fecharam em volta do trapo, por cima do anel, e apertaram. Eu senti a coruja de ouro afundar na carne do meu dedo debaixo do pano. — Vai ter um arco muito pesado e cento e sete homens que não conseguem armar. E uma velha de Creta que vai ficar sentada no canto olhando.
+— Não vai ter comida. — A mão dela, a livre, desceu. Eu senti descer pelo meu braço bom, devagar, pelo cotovelo, pelo antebraço, até chegar na minha mão direita. Até chegar no trapo amarrado no dedo. Os dedos dela fecharam em volta do trapo, por cima do anel, e apertaram. Eu senti a coruja de ouro afundar na carne do meu dedo debaixo do pano. — Vai ter um arco muito pesado e cento e oito homens que não conseguem armar. E uma velha de Creta que vai ficar sentada no canto olhando.
 
 — Ou não, senhora.
 

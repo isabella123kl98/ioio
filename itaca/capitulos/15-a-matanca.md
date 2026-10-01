@@ -362,7 +362,7 @@ E eu vejo que ela finalmente chora.
 
 Em silêncio. Sem se mexer. As lágrimas descendo pelas bochechas como água descendo por uma pedra.
 
-— Você me deixou com isso — diz. — Com tudo isso. E agora volta, e mata cento e oito homens em duas horas, como se fosse um favor. Como se eu tivesse pedido. Você não perguntou. Nunca pergunta. Você decide, e faz, e espera que eu agradeça.
+— Você me deixou com isso — diz. — Com tudo isso. E agora volta, e mata cento e sete homens em duas horas, como se fosse um favor. Como se eu tivesse pedido. Você não perguntou. Nunca pergunta. Você decide, e faz, e espera que eu agradeça.
 
 — Você trouxe o arco.
 
@@ -410,6 +410,6 @@ E lembro, sem querer, de uma frase da Circe, dita numa noite de ébano e incenso
 
 Só agora eu entendo o que ela queria dizer.
 
-Não é a coragem de matar cento e oito homens.
+Não é a coragem de matar cento e sete homens.
 
 É a de ficar parada no meio deles, esperando que uma mulher volte por uma porta. Sabendo que ela pode não voltar.

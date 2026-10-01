@@ -72,7 +72,7 @@ Ele não senta. Fica de pé, a três passos, com os punhos fechados, tremendo, e
 
 Ele fica parado. O peito sobe e desce.
 
-— Se eles descobrirem quem ela é antes de ela decidir, ela morre — diz, por fim, mais baixo. — São cento e sete, mãe. Eles estão com faca de mesa e com raiva. E a senhora fica aí fazendo conta de quem paga o quê.
+— Se eles descobrirem quem ela é antes de ela decidir, ela morre — diz, por fim, mais baixo. — São cento e oito, mãe. Eles estão com faca de mesa e com raiva. E a senhora fica aí fazendo conta de quem paga o quê.
 
 Não tenho resposta que caiba num menino de dez anos. Não tenho resposta que caiba em mim.
 
@@ -132,7 +132,7 @@ E a aljava com as doze flechas de bronze, encostada embaixo, arrumada, como quem
 
 Fico na porta com a mão no batente.
 
-Alguém tirou as armas daqui esta noite. Alguém que calculou que ao meio-dia cento e sete homens iam se juntar no pátio desarmados, porque eu mandei que deixassem as espadas na entrada, e que, quando a coisa começasse, a primeira coisa que fariam seria correr para cá.
+Alguém tirou as armas daqui esta noite. Alguém que calculou que ao meio-dia cento e oito homens iam se juntar no pátio desarmados, porque eu mandei que deixassem as espadas na entrada, e que, quando a coisa começasse, a primeira coisa que fariam seria correr para cá.
 
 Alguém que pensou nisso antes de mim.
 
@@ -144,7 +144,7 @@ Ela está um passo na minha frente.
 
 Como estava no molhe, quando disse *você é alta* antes de eu preparar a primeira frase.
 
-Poderia voltar ao salão agora e mandar procurar as armas. Mandar o Antínoo e os amigos dele revistarem o porão, o estábulo, a pocilga. Poderia acabar com isso, salvar cento e sete vidas, e a dela, e entregar a casa ao melhor dos piores.
+Poderia voltar ao salão agora e mandar procurar as armas. Mandar o Antínoo e os amigos dele revistarem o porão, o estábulo, a pocilga. Poderia acabar com isso, salvar cento e oito vidas, e a dela, e entregar a casa ao melhor dos piores.
 
 Entro.
 
@@ -188,7 +188,7 @@ O ar sai do meu peito de uma vez.
 
 Ninguém me chama assim há dez anos. Ninguém sabe que alguém me chamou assim. A palavra entra em mim como a ponta de uma flecha, quente, e fica, e o calor se espalha da garganta até a barriga e desce, e eu aperto a mão do Timóteo com tanta força que ele olha para mim.
 
-Ela já foi, sem esperar resposta, como quem joga uma pedra num poço e não fica para ouvir o fundo. Já está atravessando o pátio, curva, arrastando a perna, com cento e sete homens rindo de qualquer coisa em volta dela.
+Ela já foi, sem esperar resposta, como quem joga uma pedra num poço e não fica para ouvir o fundo. Já está atravessando o pátio, curva, arrastando a perna, com cento e oito homens rindo de qualquer coisa em volta dela.
 
 Eu fico sentada na cadeira alta com o rosto de pedra e as coxas apertadas uma contra a outra por baixo do vestido, e o coração batendo no meio delas.
 
@@ -204,7 +204,7 @@ Cada um vai tentar armar o arco, de pé, sem ajuda, sem ferramenta. Quem consegu
 
 Um murmúrio corre pelo pátio.
 
-O Antínoo para de sorrir. Vejo no rosto dele, por um instante, o cálculo atravessando a máscara. Percebeu a armadilha. Mas é tarde. Duzentos olhos estão em cima dele, os de cento e sete homens e os de todos os criados.
+O Antínoo para de sorrir. Vejo no rosto dele, por um instante, o cálculo atravessando a máscara. Percebeu a armadilha. Mas é tarde. Duzentos olhos estão em cima dele, os de cento e oito homens e os de todos os criados.
 
 — Começamos pelo mais novo — diz ele, com um sorriso de quem fez a melhor escolha. — Por que não o menino de Dulíquio?
 
@@ -338,7 +338,7 @@ Levanto.
 
 — Concordaram com o silêncio de vocês quando eu disse a regra no jantar — respondo, sem levantar a voz. — Em Esparta, homem calado assina.
 
-O murmúrio cresce. Agitado. Cento e sete homens se levantam, cochichando. Vejo as mãos escorregarem para os cintos, onde não há espadas, porque eu mandei deixar na entrada. Vejo os olhos correrem para as portas trancadas. Vejo três rapazes de Dulíquio saírem de lado, disfarçando, em direção à porta baixa da ala leste.
+O murmúrio cresce. Agitado. Cento e oito homens se levantam, cochichando. Vejo as mãos escorregarem para os cintos, onde não há espadas, porque eu mandei deixar na entrada. Vejo os olhos correrem para as portas trancadas. Vejo três rapazes de Dulíquio saírem de lado, disfarçando, em direção à porta baixa da ala leste.
 
 O arsenal.
 
@@ -346,7 +346,7 @@ Vazio.
 
 Vejo o Antínoo recuar um passo, com o maxilar duro.
 
-— Anne — diz ele, baixo. — Você está cometendo um erro. Nós somos cento e sete, e você é uma mulher numa cadeira.
+— Anne — diz ele, baixo. — Você está cometendo um erro. Nós somos cento e oito, e você é uma mulher numa cadeira.
 
 — Eu sei contar, Antínoo. Foi a primeira coisa que eu aprendi nesta casa, contando o que vocês comiam.
 
@@ -362,7 +362,7 @@ Os homens viram a cabeça, franzindo a testa, sem entender. Ela atravessa o pát
 
 — Senhora rainha — diz, e a voz é rouca, baixa, e não é de mendiga. — A senhora disse quem conseguir. Uma velha de Creta conta como quem?
 
-O pátio explode em gargalhada. Aliviada. Cruel. A gargalhada de cento e sete homens que, por um instante, esqueceram que estavam com medo.
+O pátio explode em gargalhada. Aliviada. Cruel. A gargalhada de cento e oito homens que, por um instante, esqueceram que estavam com medo.
 
 O Antínoo ri também, mas o riso não chega aos olhos.
 
@@ -436,7 +436,7 @@ Não o de velha. O verdadeiro. Com a cicatriz pequena no queixo. Com a linha de 
 
 *Posso?*, pergunta ela. Sem som. Só com os lábios.
 
-E eu, sentada na cadeira alta, com o filho dela pela mão, com a mulher que dormiu uma noite comigo do lado, com cento e sete homens que a querem morta em volta, abro a boca.
+E eu, sentada na cadeira alta, com o filho dela pela mão, com a mulher que dormiu uma noite comigo do lado, com cento e oito homens que a querem morta em volta, abro a boca.
 
 E pela primeira vez em dez anos digo a palavra que me queima a língua.
 
@@ -480,7 +480,7 @@ E é só então, tarde demais, vendo cair dos ombros dela o último trapo, e por
 
 Eu a armei.
 
-Dei a ela o arco. E o palco. E o momento. Carreguei o arco com as minhas mãos. Tranquei as portas com o meu silêncio. Pus nas mãos da mulher que eu mais amo e mais odeio o poder de matar cento e sete homens na frente do filho dela e da minha convidada.
+Dei a ela o arco. E o palco. E o momento. Carreguei o arco com as minhas mãos. Tranquei as portas com o meu silêncio. Pus nas mãos da mulher que eu mais amo e mais odeio o poder de matar cento e oito homens na frente do filho dela e da minha convidada.
 
 E agora, sentada na cadeira alta, a um passo da catástrofe que eu mesma montei, não sinto medo. Nem triunfo, nem arrependimento.
 

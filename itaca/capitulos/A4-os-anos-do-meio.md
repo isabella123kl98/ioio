@@ -4,7 +4,7 @@
 
 Volto da porta dela, deito de lado com a lamparina acesa e o tronco da oliveira nas costas, e conto os anos.
 
-Não é o que eu devia fazer. Devia dormir, porque amanhã o dia é comprido. Devia planejar, porque há cento e sete homens para humilhar e uma mulher para encurralar. Devia descansar, porque amanhã a minha cara tem que ser de pedra o dia inteiro, e pedra cansada racha.
+Não é o que eu devia fazer. Devia dormir, porque amanhã o dia é comprido. Devia planejar, porque há cento e oito homens para humilhar e uma mulher para encurralar. Devia descansar, porque amanhã a minha cara tem que ser de pedra o dia inteiro, e pedra cansada racha.
 
 Mas o corpo, quando não consegue parar, faz contas. E a conta que me vem esta noite não é a dos porcos nem a dos sacos de cevada.
 
@@ -396,7 +396,7 @@ E agora, na véspera de um dia em que a casa inteira pode acabar, uma coisa se a
 
 Eu sobrevivi.
 
-Não foi mérito. Foi o que havia para fazer. Criei um filho. Segurei um reino. Enganei cento e sete homens por três anos com um pano. Enterrei uma sogra com as mãos. Li cartas que não existiam. Me deitei uma noite com uma mulher que não era ela, e me arrependi a vida inteira.
+Não foi mérito. Foi o que havia para fazer. Criei um filho. Segurei um reino. Enganei cento e oito homens por três anos com um pano. Enterrei uma sogra com as mãos. Li cartas que não existiam. Me deitei uma noite com uma mulher que não era ela, e me arrependi a vida inteira.
 
 E durante esse tempo todo, em cada dia, em cada hora, em cada conta, eu esperei.
 
@@ -422,7 +422,7 @@ Eu ponho a minha mão para trás, por baixo da túnica cinza, e encontro o lugar
 
 Não é a mesma coisa. A minha mão é mais estreita, os dedos mais compridos. Fica um vão.
 
-Fico assim muito tempo, de lado, com a mão torcida nas costas, como uma idiota, respirando um linho que não cheira a ninguém. E pensando que amanhã, no pátio, com cento e sete homens olhando, essa mão de velha vai segurar um arco ou não vai, e que eu não sei qual das duas coisas eu quero mais, nem qual das duas eu vou perdoar.
+Fico assim muito tempo, de lado, com a mão torcida nas costas, como uma idiota, respirando um linho que não cheira a ninguém. E pensando que amanhã, no pátio, com cento e oito homens olhando, essa mão de velha vai segurar um arco ou não vai, e que eu não sei qual das duas coisas eu quero mais, nem qual das duas eu vou perdoar.
 
 Respiro fundo, devagar, como quem toma uma decisão difícil que já tomou.
 

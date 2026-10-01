@@ -378,7 +378,7 @@ Nísia.
 
 O estômago faz um movimento que eu não autorizei.
 
-Ela não pode saber de nada. Ninguém sabe. Ninguém além de mim e do mar sabe o que aconteceu na sexta primavera, na quarta noite da lua nova, na casa de pedra do fim da ilha. Nísia é a única mulher que entra no meio dos cento e sete homens do meu salão sem baixar os olhos. A única que nunca me tocou sem pedir. A única que, em seis anos de visitas, jamais me falou de casamento. Só de esperança.
+Ela não pode saber de nada. Ninguém sabe. Ninguém além de mim e do mar sabe o que aconteceu na sexta primavera, na quarta noite da lua nova, na casa de pedra do fim da ilha. Nísia é a única mulher que entra no meio dos cento e oito homens do meu salão sem baixar os olhos. A única que nunca me tocou sem pedir. A única que, em seis anos de visitas, jamais me falou de casamento. Só de esperança.
 
 Dobro o véu. Ponho a lasca de pinho por cima. Fecho a tampa. Empurro o baú de volta para debaixo da cama, até sentir que encostou na parede.
 
