@@ -422,7 +422,7 @@ Eu ponho a minha mão para trás, por baixo da túnica cinza, e encontro o lugar
 
 Não é a mesma coisa. A minha mão é mais estreita, os dedos mais compridos. Fica um vão.
 
-Fico assim muito tempo, de lado, com a mão torcida nas costas, como uma idiota, respirando um linho que não cheira a ninguém.
+Fico assim muito tempo, de lado, com a mão torcida nas costas, como uma idiota, respirando um linho que não cheira a ninguém. E pensando que amanhã, no pátio, com cento e sete homens olhando, essa mão de velha vai segurar um arco ou não vai, e que eu não sei qual das duas coisas eu quero mais, nem qual das duas eu vou perdoar.
 
 Respiro fundo, devagar, como quem toma uma decisão difícil que já tomou.
 
