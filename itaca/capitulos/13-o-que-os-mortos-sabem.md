@@ -2,28 +2,320 @@
 
 *Emily*
 
-Não durmo mais do que uma hora, e nessa hora eu desço ao inferno.
+Não durmo mais do que uma hora, e nessa hora eu desço ao reino dos mortos.
 
-É um lugar que não sai de mim. Acordo nele, às vezes, no meio da noite, com o gosto de sangue de carneiro na língua e o ruído de asas de morcego nos ouvidos, e preciso de alguns segundos para me lembrar de que estou numa cama estreita de palha, em Ítaca, e não de pé numa praia de pedras negras, com um fosso aos pés e uma espada na mão. Hoje, depois da noite em que a ouvi do outro lado da porta, o sono me leva direto para lá, como se a cabeça soubesse que é o único lugar onde ainda posso ouvir a verdade sem que ninguém precise dizê-la.
+É um lugar que não sai de mim. Acordo nele às vezes, no meio da noite, com o gosto de sangue de carneiro na língua e o barulho de asas de morcego nos ouvidos, e preciso de alguns segundos para lembrar que estou numa cama de palha em Ítaca e não de pé numa praia de pedra preta, com um fosso aos pés e uma espada na mão.
 
-Circe me mandou; foi o último favor dela, e o mais cruel. Antes de ir para casa, disse na véspera da partida, apoiada no batente da porta, com os braços cruzados, eu tinha que consultar um morto, o vidente Tirésias, que saberia o caminho e as condições, e sem ele eu não passava das sereias. Nenhum vivo vai ao reino dos mortos, respondi. *Nenhum vivo volta. Você não é como os outros, Emily: você sempre volta.* Navegamos um dia e uma noite para o extremo do oceano, onde o sol nunca brilha e a névoa cobre tudo como uma mortalha, e chegamos a uma praia de areia negra, num bosque de salgueiros e choupos estéreis. Segui as instruções: cavei um fosso do comprimento de um braço, derramei nele leite, mel, vinho, água e farinha, degolei duas ovelhas negras, deixando o sangue escorrer, e sentei ao lado, com a espada desembainhada, e esperei. Eles vieram. Primeiro um, depois dez, depois milhares: sombras sem corpo, vultos pálidos saindo da névoa em silêncio, atraídos pelo cheiro de sangue, cada um querendo beber para recuperar, por um momento, a voz. Jovens mortas de amor, velhos cobertos de feridas, soldados de armaduras ensanguentadas, meninas de branco, rostos que eu nunca vira e rostos que eu conhecia. Afastei-os com a espada. O primeiro que reconheci foi Elpenor, o mais jovem dos meus homens, que morrera na véspera da partida caindo bêbado do telhado da casa de Circe; eu nem soubera; não tínhamos tido tempo de enterrá-lo. Veio pálido, transparente, com o pescoço torto, e implorou que eu voltasse à ilha e lhe desse sepultura, e eu prometi, chorando, sem entender por que chorava por alguém que mal conhecia. Mais tarde percebi: não chorava por ele. Chorava por mim, vendo pela primeira vez o tamanho do que deixava para trás.
-
-A segunda sombra era a da minha mãe. Reconheci-a de longe, e ainda assim não acreditei: Anticleia, a mulher que me criou, que me ensinou as primeiras palavras, que me ralhava por sujar as mãos de resina, que olhava para a Anne, no dia do casamento, com desconfiança e depois com uma ternura relutante que nunca aprendeu a dizer em voz alta. Estava morta, e eu não sabia, ninguém me contara. Aproximou-se do fosso, vestida de branco, os cabelos grisalhos soltos nos ombros, e ficou parada olhando para mim sem me reconhecer, porque os mortos só reconhecem quem bebe do sangue. Eu a proibi de beber, mandei-a recuar com a espada, e chorei ao fazê-lo. Tirésias veio, velho, cego, com um cajado de ouro, e falou em enigmas e em verdades: que Poseidon me perseguiria por ter cegado o filho dele; que eu voltaria tarde, sozinha, em navio alheio, e encontraria a casa em desordem; que mataria os pretendentes com a ajuda de um deus; e que depois eu pegaria um remo e caminharia com ele sobre o ombro até uma terra onde ninguém conhecesse o mar, onde um homem me perguntasse por que carregava uma pá de joeirar, e ali fincaria o remo na terra e ofereceria sacrifícios a Poseidon, e só então teria paz. Perguntei da minha esposa. *Essa é uma pergunta*, disse, com um sorriso de quem sabe mais do que conta, *que só você pode responder.*
-
-Depois deixei que minha mãe bebesse. Ela se curvou sobre o fosso, sorveu o sangue, e quando ergueu o rosto me olhou nos olhos e reconheceu-me, e uma expressão de alegria e de horror atravessou o rosto dela. Disse que eu estava viva, e estendeu os braços, e eu tentei abraçá-la, e três vezes meus braços atravessaram o ar. Disse que morrera de saudade de mim, não de doença, nem de velhice, nem da mão de um deus, só de saudade, que é a pior morte, a mais lenta. Perguntou da Anne, se ela e o menino estavam bem, e eu disse que não sabia, que não tivera notícias. *Você não escreveu*, disse, e não era pergunta. Eu a vi, antes de morrer: ela vinha todas as tardes ao meu quarto, e sentava à beira da cama, e lia para mim as cartas que você não mandava. Inventava. Dizia: *hoje a Emily escreveu, mãe, diz que está bem, que a guerra vai terminar logo.* Eu sabia que era mentira, ela sabia que eu sabia, mas nós duas fingíamos, porque era o único consolo possível. As lágrimas me escorriam, e eu não consegui falar. *Ela é forte, Emily. Mais forte do que você. Quando você voltar, não espere que ela te receba de braços abertos. Ela vai te fazer pagar. E vai estar certa.* Ergueu a mão transparente num gesto de despedida e recuou para a névoa.
-
-A última sombra que reconheci foi a de Agamêmnon, ao longe, afastado, de pé junto a uma árvore estéril, com uma túnica manchada de sangue e uma ferida enorme no peito. Ao me ver, aproximou-se, bebeu do fosso com avidez, e quando levantou o rosto tinha nos olhos uma expressão que eu nunca vira nele em vida: não a arrogância do rei, nem a raiva do guerreiro, uma espécie de sabedoria ferida. Disse que a esposa o matara, na banheira, com uma machadinha, com a ajuda do amante: voltara de dez anos de guerra com o butim e as glórias, e ela o recebera com um banquete e um punhal; achava que o mundo era feito de homens que lutam e mulheres que esperam. E me deu o único conselho que tinha: *nunca conte tudo a uma mulher. Diga a verdade em partes, com cuidado, esconda o resto. Se você contar tudo, ela saberá onde te ferir.* Respondi, e ainda hoje me lembro da minha própria voz, tão segura, que ele não entendia nada de mulheres, não entendia da minha: *se eu contar tudo a ela, ela saberá onde me ferir, sim, mas também saberá onde me curar. É por isso que eu conto.* Ele riu, um riso rouco, desesperado, e disse que eu era jovem, que ia aprender. E eu achava que não. Achava que ao chegar em casa, na primeira noite, sentaria diante da Anne e diria tudo, Troia, a criança, o silêncio, Circe, o ciclope, a vaidade, em ordem, sem esconder nada, achava que era o que eu faria, que era o que eu era. E agora, deitada numa cama estreita, em Ítaca, com o rosto de outra, uma velha de trapos cujos pés ela lavou e que ela trata com o desprezo gélido que reserva aos que ama, percebo uma coisa que o rei dos mortos já sabia: eu não sou a mulher que contaria tudo. Sou a que esconde. A que se esconde. A que passou dez anos calada, e mais uma semana, e mais uma noite, e mais um dia, dentro de um disfarce que mal é disfarce, esperando que a verdade venha até mim em vez de ir até ela.
+Hoje, depois da noite em que ouvi a palma dela na porta, o sono me leva direto para lá. Como se a cabeça soubesse que é o único lugar onde eu ainda posso ouvir a verdade sem que ninguém precise dizer.
 
 ---
 
-Acordo antes do amanhecer com um nome na boca. Não é o dela; é outro, mais curto, mais duro. *Timóteo.* Ainda não o vi de perto, só de longe, no salão, sentado ao lado da mãe, um menino magro de cabelo escuro, com um olho roxo e um arco encostado na perna. Senti o olhar dele uma vez sobre mim, fixo, desconfiado, e desviei os olhos como quem toca em brasa. Levanto, visto o trapo cinzento, pego o cajado, e saio do quarto antes que alguém me veja. Desço ao pátio pelas escadas de serviço; está escuro ainda, frio, cheirando a orvalho; os pretendentes dormem; um cachorro levanta a cabeça perto do poço e volta a deitar. Atravesso o pátio e chego ao fundo, onde há um alpendre velho cheio de sacos de ração e de sobras de madeira, e ali, sentado num tronco, com o arco no colo e uma flecha entre os dedos, está o menino.
+Foi a Circe quem mandou. O último favor dela. O mais cruel.
 
-Paro. Ele não me vê. Olha a flecha, tentando ajustá-la à corda, e erra; tenta de novo; erra. Fica ali, de cabeça baixa, os ombros curvados, a boca apertada numa linha que eu reconheço: é a minha boca. É o modo como eu franzo os lábios quando estou com raiva de mim mesma. Puxou de mim sem que eu lhe ensinasse, e sinto um aperto tão grande no peito que tenho de me apoiar na parede. Dez anos. Tem a altura do meu peito, ombros estreitos, braços longos demais, pernas ainda de criança; o cabelo escuro, cacheado, cai na testa, a mesma testa larga, a que a Anne tanto detestava; o queixo é dela; um olho está fechado por uma mancha amarela de hematoma, e o outro, verde, enorme, tem a expressão exata do rosto de uma menina de dezesseis anos descendo de um barco. Quero abraçá-lo. Quero ajoelhar e pedir perdão. Quero dizer que sou eu, que voltei, que nunca mais vou embora; quero, acima de tudo, que ele levante o rosto e me reconheça.
+Na véspera da partida, apoiada no batente da porta, de braços cruzados, ela me disse que antes de ir para casa eu tinha que consultar um morto. O vidente Tirésias, de Tebas. Ele saberia o caminho e as condições. Sem ele, eu não passava das sereias.
 
-— Você vai fazer o braço doer — digo, com a voz de velha.
+— Nenhum vivo vai ao reino dos mortos — eu disse.
 
-Ele se sobressalta, a flecha cai, e ele me olha com o olho bom, desconfiado, e recua meio passo: quer saber quem sou, e eu digo que sou uma mendiga, e ele diz que sabe, a que o Antínoo bateu. Que é isso que eu quero? Nada, só passei e vi que ele tentava, achei que podia ajudar. Ele diz que não sei nada de arco, e eu respondo que sei um pouco, que não minto para crianças, e ele franze a testa e diz que não é criança, e eu pergunto quantos anos tem, e ele diz dez, e eu digo então que é um homem, e ele me olha um longo momento, desconfiado, tentando decifrar a ironia, e não acha. Apanha a flecha do chão, limpa-a na perna, e a encaixa de novo na corda. Digo que a mão esquerda dele está muito baixa, que o arco deve ficar firme como extensão do braço, que a corda tem de tocar o queixo, o nariz e o canto da boca, sempre no mesmo lugar, e que ele não puxe só com o braço, puxe com as costas. Ele ajusta a mão e puxa, e a flecha sai e vai bater numa pilha de sacos, a um palmo do alvo. *Melhor*, digo. Ele diz que foi sorte; eu digo que foi técnica; ele faz de novo, e a segunda flecha acerta dentro do círculo, e ele fica olhando, com a boca entreaberta. Pergunta, sem me olhar, quem me ensinou, e eu hesito: uma rainha, que não existe mais.
+— Nenhum vivo volta. — Ela sorriu. — Mas você não é como os outros, Emily. Você sempre volta. É o teu defeito.
 
-Ele se vira de repente, com o rosto contraído: *minha mãe não morreu.* O coração me dispara. Digo que claro que não. Pergunta se sei alguma coisa dela, porque falo dela como se soubesse. Digo que conheço pessoas que a conheceram, que dizem que era muito corajosa e muito teimosa. E ele diz, baixinho, com a voz de quem repete o que ouviu muitas vezes em cochichos: *dizem que ela abandonou a gente. Dizem que ficou sete anos com uma ninfa.* Respondo que as pessoas dizem muita coisa, e ele pergunta se é verdade, e eu fecho os olhos por um segundo e digo que não sei, mas que se for, acho que ela vai ter que explicar. *Eu não quero explicação*, diz ele, e aperta a corda do arco e a solta, com um estalo seco, e olha para o chão. *Quero que ela tenha voltado antes. Quando eu era pequeno. Quando a mãe Anne chorava de noite, e eu não sabia o que fazer. Eu ficava debaixo da cama ouvindo. Todo dia.* A voz dele quebra. *Eu queria que alguém viesse. Não queria que fosse tarde.* As palavras me atravessam como uma lança. Não falo, não posso. Fico parada, apoiada no cajado, olhando aquele menino de dez anos que me fala da solidão da minha mulher como quem descreve uma paisagem, e sinto, por dentro, uma coisa se quebrar, sem barulho, como gelo. Digo, afinal, com uma voz que não sei de onde tiro, que ela vem, e ele pergunta como sei, e eu digo que também espero, há muito tempo.
+Navegamos um dia e uma noite até o fim do oceano, onde o sol nunca bate e a névoa cobre tudo como uma mortalha. Chegamos a uma praia de areia preta, com um bosque de salgueiros e choupos que não davam fruto.
 
-Ele me olha, com as pestanas molhadas, e depois, muito devagar, como quem faz uma concessão que não tem certeza de querer fazer, estende-me o arco. *Mostre.* Pego-o, leve, de freixo, bem-feito, com a empunhadura gasta pelo uso. Sinto a madeira nas palmas feridas, e o corpo de velha se move por conta própria num gesto antigo em que o peso se distribui, a mão firma, o ombro trava. Coloco uma flecha, puxo. Não olho o alvo, olho o menino: digo que quando se mira não se mira só com os olhos, mira-se com tudo o que se é, com o que se quer, e que se se quer muito, muito mesmo, a flecha sabe. Solto. A flecha voa e se crava no centro exato do alvo, com um som fundo e seco. O Timóteo fica imóvel; depois, muito devagar, olha para mim, e para o ombro enfaixado, e para a mão direita em que aparece, por cima do trapo, um pedaço de ouro: a coruja, só o bico e uma das asas. Cubro-a com o polegar, depressa. Pergunta quem sou, e eu digo que ninguém, hoje; amanhã, talvez alguém. Devolvo o arco, viro-me, vou embora arrastando a perna, e escuto atrás de mim o silêncio pesado de uma criança que está começando a entender. Não olho para trás, mas sei que, quando eu virar a esquina do alpendre, ele vai correr até o alvo, arrancar a flecha que eu atirei, e ficar segurando-a nas mãos, sem saber o que sente. É a primeira coisa que faço por ele em dez anos. E a única que ele jamais vai me agradecer.
+Fiz o que ela mandou.
+
+Cavei um fosso do comprimento de um braço. Derramei leite. Mel. Vinho. Água. Farinha. Degolei duas ovelhas pretas e deixei o sangue escorrer para dentro do buraco, quente, fumegando no frio. Sentei do lado, com a espada desembainhada no colo.
+
+E esperei.
+
+Eles vieram.
+
+Primeiro um. Depois dez. Depois milhares. Sombras sem corpo, vultos pálidos saindo da névoa sem barulho nenhum, atraídos pelo cheiro de sangue. Cada um querendo beber, para recuperar por um instante a voz. Moças mortas de amor. Velhos cobertos de ferida. Soldados de armadura ensanguentada. Meninas de branco.
+
+Rostos que eu nunca tinha visto. E rostos que eu conhecia.
+
+Afastei todos com a espada.
+
+O primeiro que reconheci foi Elpenor. O mais novo dos meus homens. Tinha morrido na véspera da partida, caindo bêbado do telhado da casa de Circe, e eu nem soube. Não tivemos tempo de enterrar. Veio pálido, transparente, com o pescoço torto, e pediu que eu voltasse à ilha e lhe desse sepultura.
+
+Prometi. Chorando. Sem entender por que chorava por alguém que eu mal conhecia.
+
+Mais tarde entendi. Não chorava por ele. Chorava por mim, vendo pela primeira vez o tamanho do que eu deixava pelo caminho.
+
+---
+
+A segunda sombra era a da minha mãe.
+
+Reconheci de longe, e mesmo assim não acreditei.
+
+Anticleia. A mulher que me ensinou as primeiras palavras. Que brigava comigo por sujar as mãos de resina. Que olhou para a Anne, no dia do casamento, com desconfiança, e depois com uma ternura que nunca aprendeu a dizer em voz alta.
+
+Estava morta. E eu não sabia. Ninguém tinha me contado.
+
+Ela se aproximou do fosso, vestida de branco, com o cabelo grisalho solto nos ombros. E ficou parada me olhando sem me reconhecer, porque os mortos só reconhecem quem bebeu do sangue.
+
+Eu a proibi de beber.
+
+Levantei a espada entre nós. Mandei que recuasse. Primeiro precisava falar com Tirésias; era a regra; a Circe tinha sido clara. E eu chorava enquanto empurrava a minha mãe para longe com a ponta de uma espada.
+
+Tirésias veio. Velho. Cego. Com um cajado de ouro. Bebeu, e falou em enigmas e em verdades.
+
+Que Poseidon ia me perseguir por ter cegado o filho dele. Que eu voltaria tarde, sozinha, em navio alheio, e acharia a casa em desordem. Que mataria os pretendentes com a ajuda de um deus. E que depois pegaria um remo e caminharia com ele no ombro até uma terra onde ninguém conhecesse o mar, onde um homem me perguntasse por que eu carregava uma pá de joeirar. Ali eu fincaria o remo no chão e ofereceria sacrifício a Poseidon. E só então teria paz.
+
+— E a minha esposa? — perguntei.
+
+Ele sorriu, com a boca molhada de sangue de ovelha.
+
+— Essa é uma pergunta que só você pode responder.
+
+---
+
+Depois deixei a minha mãe beber.
+
+Ela se curvou sobre o fosso e sorveu o sangue. Quando levantou o rosto, me olhou nos olhos e me reconheceu. E uma coisa de alegria e de horror atravessou o rosto dela ao mesmo tempo.
+
+— Você está viva — disse.
+
+Estendeu os braços.
+
+Tentei abraçá-la. Três vezes. Três vezes os meus braços atravessaram o ar, como quem abraça fumaça, como quem abraça um sonho de manhã, e eu fiquei de joelhos na areia preta com os braços vazios em volta de nada.
+
+— Do que você morreu, mãe?
+
+— De saudade. — Ela não chorava. Os mortos não choram. — Não de doença. Nem de velhice. Nem da mão de um deus. De saudade de você, Emily. É a pior morte. A mais lenta.
+
+Perguntou da Anne. Se ela e o menino estavam bem.
+
+Eu disse que não sabia. Que não tinha notícias.
+
+— Você não escreveu — disse ela.
+
+Não era pergunta.
+
+— Eu vi a Anne antes de morrer — continuou. — Ela vinha toda tarde ao meu quarto. Sentava na beira da cama e lia para mim as cartas que você não mandava. Inventava. Dizia: *hoje a Emily escreveu, mãe. Diz que está bem. Que a guerra vai acabar logo. Que comprou um cavalo branco.* — A sombra dela quase sorriu. — Eu sabia que era mentira. Ela sabia que eu sabia. Mas a gente fingia. Era o único consolo que havia.
+
+As lágrimas me escorriam, e eu não conseguia falar.
+
+— Ela é forte, Emily. Mais forte do que você. — A minha mãe levantou a mão transparente. — Quando você voltar, não espere que ela te receba de braços abertos. Ela vai te fazer pagar.
+
+Uma pausa.
+
+— E vai estar certa.
+
+E recuou para a névoa.
+
+---
+
+A última sombra que reconheci foi a de Agamêmnon.
+
+Ao longe, afastado, de pé ao lado de uma árvore seca. Túnica manchada de sangue. Uma ferida enorme no peito. Quando me viu, veio. Bebeu do fosso com uma avidez de cão. E quando levantou o rosto, tinha nos olhos uma coisa que eu nunca tinha visto nele em vida. Não a arrogância do rei, nem a raiva do guerreiro. Uma sabedoria ferida.
+
+Contou que a esposa o matou na banheira. Com uma machadinha. Com a ajuda do amante. Ele voltou de dez anos de guerra com o butim e a glória, e ela o recebeu com um banquete e um punhal.
+
+— Eu achava que o mundo era feito de homens que lutam e mulheres que esperam — disse. — Me deixa te dar o único conselho que eu tenho. Nunca conte tudo a uma mulher. Conte a verdade em pedaços. Com cuidado. Esconda o resto. Se você contar tudo, ela vai saber onde te ferir.
+
+E eu respondi. Lembro até hoje da minha própria voz, tão segura.
+
+— Se eu contar tudo a ela, ela vai saber onde me ferir, sim. Mas também vai saber onde me curar. É por isso que eu conto.
+
+Ele riu. Um riso rouco, desesperado.
+
+— Você é jovem. Vai aprender.
+
+E eu achava que não.
+
+Achava que, ao chegar em casa, na primeira noite, ia sentar na frente da Anne e dizer tudo. Troia. A criança. O silêncio. Circe. O ciclope. A vaidade. Em ordem, sem esconder nada. Achava que era o que eu faria. Que era o que eu era.
+
+E agora, deitada numa cama estreita em Ítaca, com o rosto de outra, uma velha de trapos cujos pés ela mandou lavar e que ela trata com o desprezo gelado que reserva às pessoas que ama, percebo uma coisa que o rei dos mortos já sabia.
+
+Eu não sou a mulher que conta tudo.
+
+Sou a que esconde. A que se esconde. A que passou dez anos calada, e mais três dias, e mais uma noite, dentro de um disfarce que mal é disfarce, esperando que a verdade venha até mim em vez de eu ir até ela.
+
+Agamêmnon tinha razão.
+
+E eu o odeio por isso.
+
+---
+
+Acordo antes do amanhecer com um nome na boca.
+
+Não é o dela. É outro. Mais curto. Mais duro.
+
+*Timóteo.*
+
+Visto o trapo cinzento. Pego o cajado. Saio do quarto antes que alguém me veja. Desço ao pátio pela escada de serviço. Está escuro ainda, frio, cheirando a orvalho. Os pretendentes dormem. Um cachorro levanta a cabeça perto do poço e volta a deitar.
+
+Hoje é o dia do arco.
+
+Ao meio-dia. Doze machados em fila. Cento e oito homens. E eu, no meio, com o corpo de velha e a cicatriz que ela viu.
+
+Atravesso o pátio até o fundo, onde há um alpendre velho cheio de sacos de ração e restos de madeira. O alvo de palha continua amarrado na porta do celeiro, com doze buracos no centro, juntos, do tamanho de uma mão.
+
+Ele está lá.
+
+Sentado num tronco, com o arco no colo e duas flechas no chão, aos pés.
+
+Não está treinando. Está esperando.
+
+Paro.
+
+Ele me vê. Não se assusta, desta vez. Não recua. Fica sentado, com os ombros curvados, olhando para mim com o olho bom e o outro já quase aberto, só uma sombra amarela em volta.
+
+— Eu sabia que a senhora vinha — diz.
+
+— Como?
+
+— Porque a senhora vem quando ninguém está olhando. — Ele dá de ombros. — Como eu.
+
+Fico parada. Apoiada no cajado. Sem conseguir chegar perto.
+
+Ele tem a boca apertada numa linha que eu conheço. É a minha boca. É o jeito como eu fecho os lábios quando estou com raiva de mim mesma. Ele puxou isso de mim sem que ninguém ensinasse, e sinto um aperto tão grande no peito que preciso me apoiar na parede do alpendre.
+
+Dez anos. Tem a altura do meu peito. Ombros estreitos. Braços compridos demais. Pernas ainda de criança. O cabelo escuro caindo na testa larga, a que a Anne detestava. O queixo dela. E o olho verde, enorme, com a expressão exata do rosto de uma menina de dezesseis anos descendo de um barco.
+
+— Senta — diz ele, e aponta outro tronco, ao lado.
+
+Sento. O ombro dói. A perna dói. Tudo dói, e eu não sinto nada.
+
+Ficamos um tempo calados. O céu clareia devagar, cinza, depois cor de pérola. Um galo canta longe.
+
+— Como a senhora sabia? — pergunta ele, por fim. — Do palmo.
+
+Penso em mil mentiras. Escolho a mais perto da verdade.
+
+— Eu conheci uma pessoa que atirava assim.
+
+— Quem?
+
+— Uma rainha.
+
+Ele vira o rosto para mim, devagar.
+
+— A minha mãe?
+
+— Ela atirava um palmo para a esquerda a vida inteira. Nunca consertou o cotovelo. Aprendeu a mentir para a flecha.
+
+O menino não respira.
+
+— A mãe Anne nunca me disse isso.
+
+— Talvez ela não soubesse.
+
+— Ela sabe tudo.
+
+— Ninguém sabe tudo. — Engulo. — Nem ela.
+
+---
+
+Ele pega uma das flechas do chão. Gira entre os dedos. Olha a pena, a ponta, o cabo, como quem estuda um mapa.
+
+— Dizem que ela abandonou a gente — diz, baixinho, com a voz de quem repete o que ouviu muitas vezes em cochicho. — Dizem que ela ficou sete anos com uma ninfa. O Antínoo diz isso no salão. Rindo.
+
+— As pessoas dizem muita coisa.
+
+— É verdade?
+
+Fecho os olhos um segundo.
+
+O alpendre cheira a feno velho e a rato. Uma pomba arrulha em algum lugar do telhado. E o meu filho, que eu não vejo desde que tinha o tamanho de um pão, me pergunta, sem saber que está perguntando a mim, se eu o abandonei.
+
+— Não sei — digo. — Mas se for verdade, acho que ela vai ter que explicar.
+
+— Eu não quero explicação.
+
+Ele puxa a corda do arco e solta, com um estalo seco, sem flecha nenhuma. Olha para o chão.
+
+— Eu queria que ela tivesse voltado antes. Quando eu era pequeno. — A voz dele racha no meio, como a de um menino que ainda não decidiu se vai ser homem. — Quando a mãe Anne chorava de noite e eu não sabia o que fazer. Eu ficava debaixo da cama, ouvindo. Todo dia. Ela achava que eu dormia. Eu não dormia.
+
+Ele aperta a flecha até os nós dos dedos ficarem brancos.
+
+— Eu queria que alguém viesse. Eu não queria que fosse tarde.
+
+As palavras me atravessam como uma lança.
+
+Não falo. Não posso.
+
+Fico parada, apoiada no cajado, olhando aquele menino de dez anos que me fala da solidão da minha mulher como quem descreve uma paisagem. E sinto por dentro uma coisa se quebrar, sem barulho, como gelo no fundo de um poço.
+
+*Debaixo da cama.*
+
+Ela nunca vai me contar isso. Eu sei. Vai me contar de Troia, de Calipso, dos pretendentes, da mortalha, da lamparina. Mas não vai me contar que o nosso filho dormia no chão, debaixo da cama, para ouvir a mãe chorar e não poder fazer nada.
+
+— Ela vem — digo, por fim, com uma voz que eu não sei de onde tiro.
+
+— Como a senhora sabe?
+
+— Porque eu também espero. Há muito tempo.
+
+Ele me olha.
+
+Com as pestanas molhadas. Com o queixo da mãe dele empinado. Com uma coisa nos olhos que eu reconheço, porque vejo todo dia na água da bacia: a desconfiança de quem já foi enganado e decidiu que não vai ser de novo.
+
+E depois, muito devagar, como quem faz uma concessão que não tem certeza de querer fazer, ele me estende o arco.
+
+— Mostra.
+
+---
+
+Pego o arco.
+
+Leve. De freixo. Bem feito. A empunhadura forrada de couro, já gasta onde a mão dele aperta. O Eumeu escolheu bem a madeira. Eu teria escolhido igual.
+
+Sinto a madeira nas palmas feridas. E o corpo de velha se move sozinho, num gesto antigo, onde o peso se distribui, a mão firma, o ombro trava.
+
+O ombro esquerdo grita. O que o banco acertou. Grita tanto que a vista escurece por um instante.
+
+Não ligo.
+
+Pego a flecha que ele não usou. Encaixo na corda. Puxo.
+
+Cotovelo alto. Olho errado.
+
+Não olho o alvo. Olho o menino.
+
+— Quando a gente mira — digo —, não mira só com os olhos. Mira com tudo o que é. Com o que quer. E se quer muito, muito mesmo, a flecha sabe.
+
+Desvio a ponta um palmo para a direita.
+
+Solto.
+
+A flecha voa e crava no centro exato do alvo, no meio dos doze buracos dele, com um som fundo e seco, de coisa que chegou em casa.
+
+O Timóteo fica imóvel.
+
+Depois, muito devagar, olha para mim. Para o ombro enfaixado. Para a mão direita, que ainda segura o arco.
+
+E eu vejo, no mesmo instante que ele, o que o esforço fez.
+
+O trapo do dedo afrouxou. Escorregou meio dedo. E por cima do pano sujo aparece um pedaço de ouro. O bico de uma coruja. Uma asa. Um olhinho de pedra cinza.
+
+Cubro com o polegar. Depressa.
+
+Tarde.
+
+Ele viu. Vejo nos olhos dele que viu. E vejo que ele não sabe o que viu. Que ele já ouviu falar daquela coruja mil vezes, na boca do Eumeu, da Euricleia, da mãe, dos bardos, do Antínoo rindo, e que a coruja na cabeça dele é uma coisa de história, de poema, de mãe morta. Não uma coisa que existe. Não uma coisa num dedo de velha, num alpendre, de manhã.
+
+— Quem é a senhora? — pergunta, num sussurro.
+
+Devolvo o arco. As mãos tremem tanto que quase deixo cair.
+
+— Ninguém. Hoje. — Me levanto, com o cajado, arrastando a perna. — Amanhã, talvez alguém.
+
+Viro as costas.
+
+Vou embora devagar, arrastando a perna, contando os passos. E escuto atrás de mim o silêncio pesado de uma criança que está começando a entender uma coisa grande demais para o tamanho dela.
+
+Não olho para trás.
+
+Mas sei que, quando eu dobrar a esquina do alpendre, ele vai correr até o alvo, arrancar a flecha que eu atirei, e ficar segurando ela nas duas mãos, sem saber o que sente.
+
+É a segunda coisa que eu faço por ele em dez anos.
+
+E é a primeira que pode custar a vida de nós três.
+
+Porque se ele contar à mãe. Se ele contar ao Eumeu. Se ele contar, pior que tudo, a algum menino do pátio, e o menino contar ao pai, e o pai contar ao Antínoo.
+
+Paro no meio do pátio, com o sol nascendo atrás do morro.
+
+E me dou conta de que, pela primeira vez desde a jangada, eu não estou com medo de morrer.
+
+Estou com medo de que ele não conte.

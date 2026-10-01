@@ -2,178 +2,342 @@
 
 *Emily*
 
-Eles estão do outro lado da porta, e eu sei o que querem, e ainda assim não consigo me levantar.
+Ela sabe, e eu sei que ela sabe, e mesmo assim não consigo me levantar.
 
-Estou sentada na cama estreita do quarto dos hóspedes, no escuro, com as costas na parede e as mãos abertas sobre os joelhos. Faz uma hora que Euricleia lavou os meus pés, e a cicatriz da coxa, agora que a Anne a viu, arde como se estivesse de novo aberta. Faz meia hora que subi do salão, sem coragem de falar com ninguém, sem coragem de comer, sem coragem de chorar. Ouço a casa respirar. Ouço os pretendentes, lá embaixo, adormecendo pelos cantos. Ouço o mar. E, de tempos em tempos, muito baixo, na cabeça, ouço uma outra coisa: um estalo seco, rítmico, de madeira rangendo sob um peso.
+Estou deitada de bruços na cama estreita do quarto de hóspedes, no escuro, com a cara enfiada no travesseiro de palha. Faz três horas que Euricleia lavou os meus pés. A cicatriz da coxa, agora que a Anne a viu, arde como se tivesse aberto de novo. Faz uma hora que eu subi do salão, depois do anúncio, depois do arco, depois de *se ela estiver viva, é o que ela ia querer*, sem coragem de comer, sem coragem de olhar ninguém, sem coragem de chorar.
+
+E agora estou chorando.
+
+Com a boca no travesseiro, para ninguém ouvir. Um choro feio, de bicho, que eu não sabia que ainda tinha. Achei que tinha gastado tudo no mar.
+
+Ouço a casa respirar. Os pretendentes lá embaixo, dormindo pelos cantos. O mar. E de tempos em tempos, muito baixo, dentro da cabeça, outra coisa.
+
+Um estalo seco, ritmado. Madeira rangendo debaixo de um peso.
 
 O cavalo.
 
-Sempre volta quando eu tenho medo. Não como uma lembrança. Como um lugar. Fecho os olhos, e estou lá dentro, no escuro, com o cheiro de pinho fresco e de suor de trinta homens, com o joelho de alguém me cutucando as costas e a respiração lenta, contida, de gente que sabe que não pode respirar alto.
+Sempre volta quando eu tenho medo. Não como lembrança. Como lugar. Fecho os olhos e estou lá dentro, no escuro, com o cheiro de pinho fresco e de suor de trinta homens, com o joelho de alguém me cutucando as costas, e a respiração lenta, contida, de gente que sabe que não pode respirar alto.
 
 ---
 
-Foi ideia minha, e eu nunca a contei direito.
+Foi ideia minha. E eu nunca contei direito.
 
-Os poetas dizem que foi Epeu quem construiu, e que foi Atena quem inspirou. Verdade em parte. Epeu, um carpinteiro desajeitado, com mãos de urso e olhos de criança, levou três semanas para montar o bicho, e Atena, que gostava de me ver sofrer, derramou sobre mim um sonho, uma noite, em que vi uma cidade inteira arrastando para dentro das muralhas a própria ruína. Mas a ideia de esconder homens dentro, de fingir uma retirada, de deixar os troianos se convencerem de que tinham vencido, foi minha. Só minha.
+Os poetas dizem que foi Epeu quem construiu e Atena quem inspirou. É verdade em parte. Epeu, um carpinteiro desajeitado de mãos de urso e olhos de criança, levou três semanas para montar o bicho. E Atena, que gostava de me ver sofrer, me mandou um sonho em que eu vi uma cidade inteira arrastando para dentro das muralhas a própria ruína.
 
-Não tenho orgulho. Tenho a lembrança exata do que senti, na noite em que a ideia me veio, sentada numa tenda, com uma taça de vinho na mão, olhando o mapa da cidade riscado no chão de terra: um prazer terrível, uma exaltação limpa, o prazer de quem encontra a chave de uma fechadura. Pensei: *resolvi.* Pensei: *acabou.* E, por baixo, como uma corrente fria, outro pensamento, que não quis ouvir: *é por isso que eu nunca vou voltar para casa.*
+Mas a ideia de esconder homens dentro. De fingir uma retirada. De deixar os troianos se convencerem de que tinham ganhado.
 
-Dois anos de cerco. Dois anos de areia e de ferro, de noites sem dormir e de dias sem comer, de cartas que eu escrevia e queimava, de homens que morriam ao meu lado com a garganta aberta. Dois anos sem ouvir a voz dela, sem o cheiro, sem o peso de uma criança dormindo no meu peito. Dois anos de contas: os dias, os mortos, os navios, os sacos de cevada. E a cada noite, deitada numa tenda fria, com a mão no anel, eu repetia: *mais um dia. Só mais um.*
+Essa foi minha. Só minha.
 
-O cavalo era o fim. Eu sabia. Se funcionasse, acabava. Se não funcionasse, eu morria. As duas coisas me pareciam aceitáveis.
+Não tenho orgulho. Tenho a lembrança exata do que senti na noite em que a ideia veio. Sentada numa tenda, com uma taça de vinho, olhando o mapa da cidade riscado no chão de terra com a ponta de uma flecha. Um prazer terrível. Uma exaltação limpa. O prazer de quem acha a chave de uma fechadura que ninguém conseguiu abrir.
+
+Pensei: *resolvi.*
+
+Pensei: *acabou.*
+
+E por baixo, como corrente fria passando debaixo de água morna, outro pensamento, que eu não quis ouvir.
+
+*É por isso que eu nunca vou voltar para casa.*
+
+---
+
+Dois anos de cerco.
+
+Dois anos de areia e de ferro. De noites sem dormir e dias sem comer. De cartas que eu escrevia e queimava. De homens morrendo do meu lado com a garganta aberta, e eu segurando a cabeça deles no colo e dizendo que ia ficar tudo bem, porque é o que se diz.
+
+Dois anos sem a voz dela. Sem o cheiro. Sem o peso de uma criança dormindo no meu peito.
+
+Dois anos de contas. Os dias. Os mortos. Os navios. Os sacos de cevada.
+
+E toda noite, deitada numa tenda fria, com a mão no anel:
+
+*Mais um dia. Só mais um.*
+
+O cavalo era o fim. Se funcionasse, acabava. Se não funcionasse, eu morria.
+
+As duas coisas me pareciam aceitáveis.
 
 ---
 
 Entramos ao anoitecer.
 
-Éramos trinta, contados por mim três vezes: os melhores. Euríloco, o de mãos de ferro, o mais leal. Anticlo, o de língua solta, que eu amava como a um irmão caçula. Diomedes, o de olhos de serpente, que nunca falava. Menelau, o rei traído, pálido de raiva. Ajax de Lócrida, o ligeiro. Neoptólemo, o rapaz de dezesseis anos, filho de Aquiles, que tremia de ansiedade e de orgulho. E os outros, cujos nomes eu sabia todos, e que mesmo assim vão se dissolvendo na minha memória, um a um, como sal na água.
+Éramos trinta. Contei três vezes.
 
-Subimos por uma escada de corda, pela porta escondida no ventre. A madeira cheirava a resina e a verniz. Lá dentro, o escuro era total. Sentamos no chão, em duas fileiras, encostados uns nos outros, com as armas presas ao corpo e as mãos nos joelhos. Ouvimos Epeu fechar a portinhola. Ouvimos o som de cordas, de rodas de madeira, de homens gritando ordens. Ouvimos, por fim, o silêncio de uma praia vazia.
+Euríloco, de mãos de ferro, o mais leal, que nunca concordou com nada do que eu fiz e me seguiu em tudo. Anticlo, de língua solta, dezenove anos, que eu amava como irmão caçula e que tinha deixado em casa uma mulher grávida de cinco meses. Diomedes, de olhos de serpente, que nunca falava. Menelau, o rei traído, pálido de raiva por dentro e por fora. Neoptólemo, o filho de Aquiles, dezesseis anos, tremendo de ansiedade e de orgulho.
 
-Ficamos esperando.
+E os outros. Eu sabia o nome de todos. E mesmo assim eles vão se dissolvendo na minha memória, um a um, como sal na água.
 
-Ninguém falou nos primeiros minutos. Havia em todos aquela solenidade de quem está dentro de um túmulo e sabe. Só o ruído de trinta respirações, o ranger da madeira, o cheiro forte de medo. Senti o joelho de Euríloco nas minhas costas. Senti o ombro de Anticlo roçar o meu. Senti, atrás de mim, num canto, o tremor contido de Neoptólemo, que batia os dentes.
+Subimos por uma escada de corda até a portinhola escondida no ventre. A madeira cheirava a resina e a verniz. Lá dentro, o escuro era total.
 
-Foi Diomedes quem rompeu o silêncio, sem nenhum calor, num sussurro que cortou o escuro como lâmina: mandou o rapaz ficar tranquilo, porque os dentes dele faziam barulho, e Neoptólemo, que tinha dezesseis anos e o sangue de Aquiles e nenhuma serenidade, pediu desculpas e fechou a boca. Ouvi-o engolir. Ouvi, por longos minutos, apenas o mar.
+Sentamos no chão em duas fileiras, encostados uns nos outros, com as armas presas ao corpo. Ouvimos Epeu fechar a portinhola. Cordas. Rodas. Homens gritando ordens. Navios sendo empurrados para a água.
+
+E por fim, o silêncio de uma praia vazia.
+
+Ninguém falou nos primeiros minutos. Havia em todos aquela solenidade de quem está dentro de um túmulo e sabe. Só trinta respirações. O ranger da madeira. O cheiro de medo, que tem cheiro de cobre e de cebola.
+
+Senti o joelho de Euríloco nas minhas costas. O ombro de Anticlo encostando no meu. E atrás, num canto, o tremor de Neoptólemo, que batia os dentes como um menino com frio.
+
+Foi Diomedes quem quebrou o silêncio, num sussurro que cortou o escuro como lâmina.
+
+— Os teus dentes, rapaz.
+
+— Desculpe.
+
+— Engole os teus dentes.
+
+Ouvi o menino engolir. Fechar a boca. E por longos minutos só ouvi o mar.
 
 ---
 
 Os troianos chegaram de madrugada.
 
-Ouvimos primeiro os gritos: vozes jubilosas, de gente que acorda e encontra a praia vazia. Uma explosão de risos, de aclamações. Passos correndo na areia. Tambores. Uma mulher cantando. O cavalo balançou, levemente, quando alguém o tocou. Depois outro. Depois muitos. Mãos o batendo, riscando, cutucando, como se fosse um bicho. Uma voz de homem, rouca, autoritária, disse, em troiano: *é um presente dos deuses.* Outra, mais fina, em tom de aviso: *é uma armadilha.* Vozes discutiam. Uma terceira, velha, tremida, suplicava que o queimassem.
+Primeiro os gritos. Gente que acorda e encontra a praia vazia. Riso. Aclamação. Passos correndo na areia. Tambores. Uma mulher cantando.
 
-Fiquei imóvel, com a mão no punho da espada, sentindo o coração bater nos ouvidos.
+O cavalo balançou quando alguém encostou nele. Depois outro. Depois muitos. Mãos batendo, arranhando, como se ele fosse bicho.
 
-Discutiram horas. Não sei dizer quantas. A luz do dia entrava pelas frestas da madeira em raios finos, empoeirados, cortando o escuro. Conforme o sol subia, o calor aumentava, e o cheiro de suor e de medo ficava insuportável. Sentia a cabeça latejar. Sentia a garganta seca. E em algum momento, no meio daquela espera absurda, me ocorreu que eu não sabia mais por que estava ali.
+Uma voz de homem, rouca: *é presente dos deuses.*
 
-Não que duvidasse do plano. Duvidava de mim. Do que eu era. Uma mulher de trinta anos, com um filho de dois meses que agora teria quase dois anos, dentro de um cavalo de madeira, no meio de uma praia estrangeira, esperando poder matar. Por um juramento que não entendia. Por um rei que desprezava. Por uma cidade que nunca me fizera mal.
+Outra, mais fina: *é armadilha.*
 
-*Por ela*, disse a mim mesma. *Para voltar. Para acabar logo.*
+Uma terceira, velha, tremida, implorando que queimassem aquilo.
 
-Mas a voz que respondeu, de dentro, foi outra: *para não ter de voltar.*
+Fiquei imóvel. Com a mão na espada e o coração nos ouvidos.
+
+Discutiram horas. A luz do dia entrava pelas frestas em raios finos, cheios de poeira. Conforme o sol subia, o calor aumentava, e o cheiro de suor e de medo ficou insuportável. A cabeça latejava. A garganta secou.
+
+E em algum momento, no meio daquela espera absurda, me ocorreu que eu não sabia mais por que estava ali.
+
+Não duvidava do plano. Duvidava de mim. Uma mulher de trinta e dois anos, com um filho em casa que ela mal conhecia, dentro de um cavalo de madeira numa praia estrangeira, esperando poder matar. Por um juramento que não entendia. Por um rei que desprezava. Por uma cidade que nunca tinha feito mal nenhum a ela.
+
+*Por ela*, eu disse a mim mesma. *Para voltar. Para acabar logo.*
+
+Mas a voz que respondeu, de dentro, foi outra.
+
+*Para não ter que voltar.*
 
 ---
 
 Foi então que a voz de mulher falou.
 
-Uma voz clara, doce, jovem, aproximando-se do cavalo, com passos leves. Não a conhecia. Nunca a ouvira. Mas todos os trinta homens dentro do cavalo a reconheceram ao mesmo tempo, porque o corpo inteiro de cada um se contraiu, como se tivesse recebido um golpe.
+Clara. Doce. Jovem. Se aproximando com passos leves.
+
+Eu nunca tinha ouvido. Mas os trinta homens lá dentro a reconheceram ao mesmo tempo, porque o corpo de cada um se contraiu como se levasse um soco.
 
 Helena.
 
-Não a vi. Ouvi-a rodear o cavalo, batendo as unhas na madeira, num ritmo lento, curioso. Ouvi-a cantarolar baixinho. E depois, sem aviso, começou a falar, em grego, numa voz que não era a dela.
+Ouvi ela rodear o cavalo, batendo as unhas na madeira, num ritmo lento, curioso. Cantarolando baixinho. E depois, sem aviso, começou a falar em grego. Com uma voz que não era a dela.
 
-Era a voz de Laódice, prima dela, esposa de um dos meus homens.
+Era a voz da mulher de Menelau chamando o marido. Depois a da mulher de Diomedes. Ela tinha ouvido falar de cada uma, em dez anos de guerra, nas histórias dos prisioneiros, e as inventava com uma perfeição de feiticeira.
 
-— *Ulisses?* — disse. — *Querido, é você aí dentro?*
+Senti, do meu lado, Menelau parar de respirar.
 
-Senti a mão de Anticlo apertar a minha perna. Ao meu lado, outro homem, um velho soldado de Tessália, prendeu a respiração, com o rosto contraído.
+Depois ela ficou quieta. Um instante. Como quem procura uma coisa no escuro.
 
-— *Fale comigo, meu amor. Faz dois anos que não te vejo. Diga que está vivo.*
+E disse:
 
-Eu conhecia a voz. Não era a de Laódice. Era a de outra. Uma mulher que Helena nunca vira, que não podia conhecer, que ela imitava sem saber, construindo a cada sílaba uma voz inventada, verossímil, dessas que saem da boca de alguém que quer enganar e é boa nisso. Mas a entonação que ela escolheu, a música que descobriu, tinha no fundo uma rouquidão pequena, um fio puxado na primeira sílaba.
-
-— *Emmm-ily* — disse Helena.
+— *Emmm-ily.*
 
 Fechei os olhos.
 
-Não foi um pensamento. Foi uma onda. O corpo inteiro, de uma vez, arrancado do cavalo e posto em outro lugar: um quarto com uma oliveira, uma janela aberta para o mar, uma mulher de camisola na beira da cama, dando o peito a uma criança. *Vá logo, Emily, antes que eu peça para você ficar.*
+Ela não me conhecia. Nunca tinha visto a Anne. Não podia saber. Inventou uma voz, como quem tira a sorte numa bacia de pedras, e a voz que tirou tinha no fundo uma rouquidão pequena. Um fio puxado na primeira sílaba.
+
+Não foi um pensamento. Foi uma onda.
+
+O corpo inteiro, de uma vez, arrancado do cavalo e posto em outro lugar. Um quarto com uma oliveira. Uma janela aberta para o mar. Uma mulher de camisola, na beira da cama, dando o peito a uma criança, sem levantar os olhos.
+
+*Vá logo, Emily. Antes que eu peça para você ficar.*
 
 Abri a boca.
 
-Não sei o que ia dizer. Acho que o nome dela. Acho que um grito. Acho que uma coisa sem palavras, sem sentido, que subia do peito como vômito. Senti o ar entrar, e a garganta se abrir, e a língua se mover.
+Não sei o que ia dizer. O nome dela. Um grito. Uma coisa sem palavra nenhuma, que subia do peito como vômito. O ar entrou. A garganta abriu. A língua se mexeu.
 
-Uma mão me cobriu a boca.
+Uma mão tapou a minha boca.
 
-Forte, dura, selada. Anticlo. Vi-lhe o rosto, no escuro, a centímetros do meu, com os olhos arregalados e a expressão contorcida de quem quer salvar alguém de si mesmo. Ele tinha as duas mãos em volta do meu rosto. Segurava-me a cabeça. Eu me debati, e ele apertou. Mordi-lhe a palma. Ele não soltou.
+Forte. Dura. Selada.
 
-Só então percebi o que fazia.
+Anticlo.
 
-Eu ia responder. Ia dizer o nome dela, ou o meu, ou qualquer coisa. Ia abrir a boca, diante de uma mulher que chamava do lado de fora, e dizer *sou eu*, *estou aqui*, e trinta homens morreriam, e a cidade seria salva, e a minha mulher ficaria viúva. Anticlo me salvou. Tapou-me a boca, com a força de um homem que sabe que, se eu falar, acabou.
+Vi o rosto dele no escuro, a um palmo do meu. Os olhos arregalados. A cara contorcida de quem quer salvar alguém de si mesmo. Segurava a minha cabeça contra a madeira com as duas mãos. Eu me debati, e ele apertou. Mordi a palma dele. Senti o gosto do sangue. Ele não soltou.
 
-Mas então, do lado de fora, Helena disse outro nome.
+Só então eu entendi o que estava fazendo.
 
-— *Anticlo?* — Doce, cantando. — *Anticlo, meu querido, é você aí dentro?*
+Eu ia responder. Ia dizer *sou eu*, *estou aqui*, e trinta homens iam morrer, e a cidade ia ser salva, e a minha mulher ia ficar viúva de uma idiota.
+
+Anticlo me salvou.
+
+Mas então, lá fora, Helena disse outro nome.
+
+---
+
+— *Anticlo?*
+
+Doce. Cantado.
+
+— *Anticlo, meu amor, é você aí dentro?*
 
 Ele gelou.
 
-Ela tinha encontrado a voz da mulher dele. Uma imitação pobre, desajeitada, mas para ele, que tinha a esposa esperando em casa, perfeita. Senti o corpo dele tremer. Senti-lhe os dedos, sobre a minha boca, afrouxarem.
+Ela tinha achado a voz da mulher dele. Uma imitação pobre, desajeitada. Mas para ele, perfeita. Ele tinha me contado, nas noites de vigília, como a mulher dizia o nome dele, com o *a* comprido, como quem chama uma criança no campo.
 
-— *Responda, meu amor. Estou aqui.*
+Senti o corpo dele tremer. Senti os dedos dele, na minha boca, afrouxarem.
+
+— *Responde, meu amor. Eu estou aqui. Eu e o teu filho.*
 
 Ele abriu a boca.
 
-Não sei como explicar o que senti. Foi um instante só, de uma clareza absoluta. Vi a cena inteira: o rosto dele, no escuro, inclinado para a frente, os olhos cheios de lágrimas, a boca aberta para responder. Vi trinta homens dentro de um cavalo de madeira, à mercê de uma palavra. Vi o cerco, a guerra, os dois anos, a casa, a mulher, o filho. Vi tudo isso, e vi, acima de tudo, que não havia tempo.
+Não sei explicar o que eu senti. Foi um instante só. De uma clareza absoluta.
+
+Vi a cena inteira. O rosto dele inclinado para a frente. Os olhos cheios de água. A boca aberta para responder. Trinta homens dentro de um cavalo de madeira à mercê de uma palavra. O cerco. A guerra. Os dois anos. A casa. A mulher. O filho.
+
+E vi, por cima de tudo, que não havia tempo.
 
 Pus as duas mãos no pescoço dele.
 
 Apertei.
 
-Foi rápido. Mais rápido do que eu esperava. Ele tinha dezenove anos e o pescoço fino, e a traqueia se quebrou sob os meus polegares com um estalo seco, pequeno, que só eu ouvi. O corpo dele se contorceu uma vez, duas, os olhos arregalados fixos nos meus, cheios de uma surpresa infantil. Depois os olhos perderam o brilho, e ele amoleceu, e eu o segurei, com as duas mãos ainda no pescoço, sentindo o peso do corpo dele contra o meu peito.
+---
 
-Do lado de fora, Helena cantarolava.
+Foi rápido. Mais rápido do que eu esperava.
 
-— *Anticlo? Responda...*
+Ele tinha dezenove anos e o pescoço fino. A traqueia cedeu debaixo dos meus polegares com um estalo seco. Pequeno. Que só eu ouvi.
 
-Ninguém respondeu. Ela esperou. Depois riu, baixinho, uma risada pequena, cansada, de quem perdeu uma aposta, e se afastou.
+O corpo dele se contorceu uma vez. Duas. Os olhos fixos nos meus, cheios de uma surpresa de criança. Como quem pergunta, sem palavras, *por quê*. Como quem pergunta *você?*
+
+Depois os olhos perderam o brilho.
+
+Ele amoleceu. E eu o segurei, com as duas mãos ainda no pescoço dele, sentindo o peso cair contra o meu peito. Morno. Ainda morno. Com o coração dele parado e o meu batendo pelos dois.
+
+Lá fora, Helena cantarolava.
+
+— *Anticlo? Responde...*
+
+Ninguém respondeu.
+
+Ela esperou. Depois riu, uma risada pequena e cansada, de quem perdeu uma aposta. E se afastou.
 
 ---
 
-Esperamos a noite inteira.
+Esperamos o dia inteiro e a noite inteira.
 
-Segurei o corpo de Anticlo durante todas aquelas horas, sem soltá-lo. Não chorei. Ninguém falou. Euríloco me olhava, no escuro, com os olhos brilhantes, e eu sabia que ele sabia. Diomedes, ao lado, tinha no rosto uma expressão que eu não consegui ler. O rapaz Neoptólemo vomitou num canto, sem fazer barulho.
+Segurei o corpo de Anticlo durante todas aquelas horas. Não soltei. Não chorei. Ninguém falou.
 
-O cavalo foi arrastado, no meio da madrugada, para dentro das muralhas. Ouvimos os portões abrirem e fecharem. Ouvimos a cidade festejar, cantar, dançar, embriagar-se, até que, por fim, o silêncio voltou, pesado, cheio de bêbados adormecidos. Esperamos mais uma hora. Esperamos duas. Quando o primeiro galo cantou, eu, com o corpo de Anticlo ainda no colo, levantei uma das mãos e bati três vezes na parede de madeira.
+Euríloco me olhava no escuro, com os olhos brilhando, e eu sabia que ele sabia. Diomedes tinha no rosto uma expressão que até hoje eu não sei se era nojo ou respeito. O menino Neoptólemo vomitou num canto, sem barulho, nas próprias mãos.
+
+O cavalo foi arrastado para dentro das muralhas no meio da tarde. Sentimos o chão subir e descer, as rodas, as cordas. Ouvimos os portões abrirem e fecharem. Ouvimos a cidade festejar. Cantar. Encher a cara. Até o silêncio voltar, pesado, cheio de bêbados dormindo nas ruas.
+
+Quando o primeiro galo cantou, eu, com o corpo de Anticlo no colo, levantei uma das mãos e bati três vezes na parede de madeira.
 
 A portinhola se abriu.
 
-Não me lembro de sair. Não me lembro de descer a corda. Só me lembro de que estava no chão, de pé, com a espada na mão e o sangue de um jovem de dezenove anos nas palmas, olhando uma cidade adormecida sob um céu cor de cinza.
+Não lembro de sair. Não lembro de descer a corda. Lembro de estar no chão, de pé, com a espada na mão e o sangue de um menino de dezenove anos secando nas palmas, olhando uma cidade dormindo debaixo de um céu cor de cinza.
 
-Euríloco chegou ao meu lado e sussurrou o meu nome, e depois o nome de Anticlo, e depois começou uma terceira frase que eu cortei antes que ela existisse. Disse que sabia. Disse que ninguém, nunca, falaria daquilo, e olhei-o por cima do ombro com a espada na mão e o sangue de um garoto nas palmas, e o que lhe pedi com os olhos era mais do que silêncio: era que me deixasse ser, pelo resto da vida, uma pessoa que não tinha feito aquilo.
+Euríloco chegou do meu lado. Disse o meu nome. Depois o de Anticlo. Começou uma terceira frase.
 
-Ele me olhou. Um olhar comprido, cheio de alguma coisa que não era censura, mas compreensão. Depois assentiu. Nunca falou. Morreu anos depois, no estreito de Cila, sem mencionar uma só vez.
+Eu cortei antes que ela existisse.
+
+— Ninguém fala disso. Nunca.
+
+Ele me olhou. Um olhar comprido, que não era censura. Era compreensão. E a compreensão era pior.
+
+Assentiu.
+
+Nunca falou. Morreu anos depois, no estreito de Cila, agarrado por uma coisa que saiu da rocha, e não mencionou aquilo uma única vez.
 
 Mas os olhos dele, naquele instante, eu guardo.
 
 ---
 
-Não conto o resto.
+O resto eu não conto.
 
-A cidade, em chamas. Os gritos. Os corpos. A minha espada, entrando e saindo. A manhã subindo sobre as ruínas, rosada, indiferente. A assembleia dos reis, a decisão, a criança na muralha. Já contei o que posso contar. O resto não tem forma.
+A cidade pegando fogo. Os gritos. Os corpos. A minha espada entrando e saindo. A manhã subindo sobre as ruínas, rosada, indiferente, linda. A assembleia dos reis. A criança na muralha.
 
-Mas a mãe do Anticlo, dois meses depois, veio me ver, num porto da Grécia, onde o meu navio parou para se reabastecer. Uma mulher pequena, velha, de xale escuro, que tinha perdido o marido e o filho em menos de um ano. Perguntou, de pé diante de mim, com voz baixa, se eu sabia como o filho morrera.
+O resto não tem forma.
+
+Mas a mãe de Anticlo, dois meses depois, veio me ver num porto da Grécia, onde o meu navio parou para pegar água. Uma mulher pequena, velha, de xale escuro, que tinha perdido o marido e o filho em menos de um ano. Ficou de pé na minha frente, no cais, e perguntou se eu sabia como o filho dela tinha morrido.
 
 Menti.
 
-Disse que ele morrera lutando. Que tinha sido corajoso. Que tinha morrido rápido, sem dor, com uma espada na mão. Ela me olhou muito tempo, com os olhos secos. Depois assentiu, e agradeceu, e se foi.
+Disse que ele morreu lutando. Corajoso. Rápido, sem dor, com uma espada na mão, na rua principal de Troia, salvando um companheiro.
 
-Eu sabia que ela sabia. Sabia que ela tinha ouvido, de algum dos meus homens, uma versão mais verdadeira. Mas ela não perguntou de novo. E eu, que carregava já tantas dívidas, acrescentei mais uma, não de sangue, mas de silêncio.
+Ela me olhou muito tempo. Com os olhos secos.
 
-Essa é a parte que a Anne ainda não sabe.
+Depois agradeceu. E foi embora.
+
+Eu sabia que ela sabia. Que tinha ouvido de algum dos meus homens, bêbado numa taverna, uma versão mais verdadeira. Mas ela não perguntou de novo.
+
+E eu, que já carregava tantas dívidas, acrescentei mais uma. Não de sangue. De silêncio.
+
+Essa é a parte que a Anne não sabe.
+
+A parte que nenhuma bacia de água vai lavar, porque não está na pele.
 
 ---
 
-Ouço passos no corredor.
+Paro de chorar.
 
-Muito leves. Descalços. Um pé depois do outro, com uma hesitação que eu reconheço, que conheço há vinte anos. Não preciso contar. Sei que são os da mulher que atravessa o corredor sul, às escuras, contando os degraus em vez de os passos. Sei que ela parou diante da minha porta.
+Não decido. O choro para sozinho, como um cavalo que para no meio da estrada e levanta as orelhas.
 
-Abro os olhos.
+Porque alguma coisa mudou no corredor.
 
-Não me mexo. Fico sentada na cama, com as costas na parede, olhando o escuro, sem respirar. Ouço, do outro lado da madeira, uma respiração curta, contida, de quem prende o ar. Ouço um farfalhar de tecido. Ouço uma palma pousando na porta, de leve, como quem verifica se uma coisa está quente.
+Não ouvi passos. Ela sempre soube andar sem barulho quando quer. Mas a casa tem um jeito de respirar, e a respiração do corredor mudou. Ficou mais curta. Mais perto. Como quando alguém para atrás de uma porta e prende o ar.
 
-Quero levantar. Quero abrir. Quero dizer tudo, agora, a essa hora, nesse escuro, sem a máscara, sem o disfarce, sem o peso. Quero dizer Troia, e a criança, e o silêncio. Quero dizer o pescoço fino de um rapaz de dezenove anos. Quero dizer Circe, e Calipso, e o cedro, e tudo.
+Levanto a cabeça do travesseiro.
 
-Mas os pés não obedecem. As mãos, apertadas nos joelhos, não obedecem. A garganta, cheia de palavras, se fecha.
+Fico imóvel. De bruços. Olhando o escuro onde a porta deve estar.
 
-Do outro lado da porta, baixinho, tão baixo que eu quase não escuto, alguém soluça.
+E escuto.
 
-Fecho os olhos. Sinto as lágrimas descerem. Levo a mão à boca, para abafar o meu próprio som, e fico assim, imóvel, enquanto duas mulheres, separadas por uma porta de carvalho, choram em silêncio, cada uma de um lado, sem saber que a outra também.
+Uma respiração. Do outro lado da madeira. Contida, de quem solta o ar devagar para não ser ouvida. Um farfalhar de tecido. E depois, muito de leve, um som que eu conheço mais do que o meu próprio nome.
 
-Ou sabendo.
+Uma palma pousando na porta.
 
-Não sei quanto tempo passa. Só sei que, por fim, os passos se afastam, devagar, contados, escada acima. E eu, sozinha, no escuro, com os pés ainda úmidos do sabão de oliva e o peso do pescoço de Anticlo nos polegares, penso, pela primeira vez sem ironia:
+De leve. Como quem verifica se uma coisa está quente.
+
+Eu sei de quem é. Sei pela altura onde ela pousou, a altura exata do ombro de uma mulher alta. Sei porque, quando a gente brigava nos primeiros anos, ela fazia isso. Encostava a mão na porta do quarto onde eu tinha me trancado e ficava ali, sem bater, até eu abrir.
+
+Eu sempre abria.
+
+Quero levantar. Quero abrir. Quero dizer tudo, agora, a esta hora, neste escuro, sem máscara, sem disfarce, sem peso.
+
+Troia. A criança. O silêncio.
+
+O pescoço fino de um rapaz de dezenove anos debaixo dos meus polegares.
+
+Circe. Calipso. O cedro. Tudo.
+
+Mas os pés não obedecem. As mãos, agarradas no lençol, não obedecem. A garganta, cheia de palavras, fecha como uma porta.
+
+Do outro lado da madeira, baixinho, tão baixo que eu quase não escuto, alguém respira de um jeito que não é mais respiração.
+
+É choro.
+
+Sem soluço. Sem barulho. Só a respiração quebrando aos pouquinhos, como gelo fino debaixo do pé.
+
+Fecho os olhos.
+
+As lágrimas voltam, e eu ponho a mão na boca para abafar o meu som. E fico assim, imóvel, enquanto duas mulheres separadas por uma porta de carvalho choram em silêncio, cada uma de um lado, cada uma sabendo que a outra está ali.
+
+E nenhuma das duas abre.
+
+---
+
+Não sei quanto tempo passa.
+
+Sei que, por fim, a palma sai da porta. A madeira faz um estalo pequeno, quase nada, de quem tira um peso.
+
+Os passos se afastam. Devagar. Contados.
+
+Eu conto com ela, sem querer. Até a escada. Depois os degraus, um por um, quarenta e um, até a porta do quarto da oliveira se fechar lá em cima com um clique que eu ouço através de dois andares de pedra.
+
+Fico sozinha no escuro.
+
+Com os pés ainda úmidos do sabão de oliva. Com a cicatriz da coxa ardendo. Com o peso do pescoço de Anticlo nos polegares, que nunca saiu.
+
+E penso, pela primeira vez sem ironia nenhuma:
 
 *Amanhã.*
 
 *Amanhã eu conto.*
 
-E sei que é a mentira mais antiga que conheço.
+E sei que é a mentira mais velha que eu conheço.
+
+Eu digo isso desde Troia.
