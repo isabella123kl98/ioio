@@ -6,17 +6,17 @@ A ordem chega de manhã, na boca da Melanto, e eu escuto com o corpo inteiro em 
 
 — A rainha manda que a senhora a sirva — diz a moça, parada na porta do quarto de hóspedes, com a bandeja do desjejum nas mãos e os olhos em qualquer lugar menos em mim. — Hoje e nos próximos dias. Precisa de uma criada de confiança. E como a senhora está sob a proteção dela, e com o ombro assim...
 
-— Por quê?
+— A rainha tem trinta criadas e escolhe uma velha de um braço só para servir de manhã? — digo. — Ou ela quer que eu derrube a bandeja na escada, para rir?
 
 Ela levanta os olhos por um segundo. Há neles uma coisa nova. Uma cautela. Uma espécie de vergonha, como se ela soubesse alguma coisa de mim que não devia saber, ou eu soubesse alguma coisa dela.
 
-— Não sei, senhora. Ela só disse que a senhora ia saber.
+— Ela não me explicou nada, senhora. Ela nunca explica. Só disse que a senhora ia entender o motivo, e que se não entendesse, era porque ela tinha errado de velha.
 
 Bebo o leite devagar, com o ombro latejando debaixo da faixa, e penso.
 
 A mulher que me interrogou junto ao fogo, que pegou o meu queixo com dois dedos e depois recuou como quem toca brasa, não me manda chamar por caridade. Ela quer olhar para mim. Quer me ter perto, sob controle, à vista, e me observar de dia como me observou de noite. Procurando um gesto. Uma marca. Uma palavra fora do lugar.
 
-Ela sabe. Ou quase. Ou está decidindo se sabe.
+Ela desconfia. Ou mais do que isso. Ou está decidindo quanto ainda aguenta não saber.
 
 E eu, com o corpo de velha e o coração de quem tem vinte anos, vou obedecer.
 
@@ -24,7 +24,7 @@ E eu, com o corpo de velha e o coração de quem tem vinte anos, vou obedecer.
 
 Subo a escada pela primeira vez em dez anos.
 
-Conto os degraus. Não quero, mas conto. Quarenta e um. Com a mão direita no corrimão e o cajado na esquerda, e cada degrau é uma lembrança que me pega pelo tornozelo.
+Os pés contam os degraus antes de eu mandar. Com a mão direita no corrimão e o cajado na esquerda, e cada degrau é uma lembrança que me pega pelo tornozelo.
 
 Aqui, no quinto, ela me beijou em público pela primeira vez, na frente de uma multidão de conselheiros, para me provocar, e eu corei como uma menina e todo mundo riu.
 
@@ -78,13 +78,67 @@ E voltam para mim.
 
 Alguma coisa endurece no rosto dela. Ela atravessa o quarto em três passos, fecha a tampa do berço com força, um estalo seco de madeira, e fica parada com a mão em cima, como quem segura uma coisa que pode fugir.
 
-— Você vai me servir — diz. — Penteia o meu cabelo. Prepara o banho. Traz as refeições. Cuida da roupa. Mais nada. Eu não quero conversa. Nem opinião. Nem conselho. Quero alguém que faça o que eu mando sem perguntar.
+— Você vai me servir — diz. — Penteia o meu cabelo, prepara o banho, traz a comida, cuida da roupa. E fica de boca fechada. Uma mulher de Creta que fala tanto de rainha morta deve ter muita opinião, e eu não pedi nenhuma.
 
-— Sim, senhora.
+— Velha de Creta só tem opinião sobre tempo e sobre lentilha, senhora — digo. — E a lentilha desta casa está salgada.
 
-Ela tira um pente de marfim da manga e joga na cama. Senta num banco baixo, de costas para mim, e fica esperando.
+O canto da boca dela se mexe. Ela segura.
 
-A dor sobe pelo meu ombro. Os olhos ardem. Caminho devagar até ela, com o cajado batendo no chão, pego o pente, e levanto as mãos, que tremem, até o cabelo dela.
+Mas ela não me dá o pente primeiro.
+
+— O vestido — diz, de costas, apontando com o queixo para um pano verde-escuro dobrado no baú. — Antes do cabelo. Eu não consigo amarrar sozinha atrás, e a Euricleia está com a vista ruim.
+
+É mentira. Ela amarra sozinha desde os dezesseis anos, de braços torcidos para trás, xingando em espartano. Eu vi cem vezes.
+
+Pego o vestido. Ela tira o manto dos ombros, deixa cair no banco, e fica de pé de costas para mim só de camisa de linho. Levanta os braços. Eu passo o vestido por cima da cabeça dela, devagar, por causa do meu ombro, e o tecido escorrega pelo corpo dela até os tornozelos, e ela baixa os braços, e ficam as costas.
+
+A abertura do vestido vai da nuca até a cintura. Doze ilhoses de cada lado. Um cordão de couro fino pendurado, esperando.
+
+Eu fico parada.
+
+Por baixo, a camisa de linho é tão fina que eu vejo a pele através dela. A linha da coluna, as duas covinhas em cima dos quadris, a sombra das omoplatas. A pele mais clara do que eu lembrava. Uma pinta pequena do lado esquerdo, embaixo da costela, que eu beijei mais vezes do que contei.
+
+— Está esperando o quê? — diz ela, sem virar.
+
+Pego o cordão.
+
+Começo por baixo. Não decido; é a mão que sabe. Enfio a ponta do cordão no ilhós de baixo da esquerda, cruzo, passo no de baixo da direita, puxo. O couro corre contra o linho com um barulho baixo, de seda rasgando devagar. Cruzo de novo. Subo. A ponta dos meus dedos de velha encosta nas costas dela a cada volta, através da camisa, e a cada volta eu sinto a pele dela responder, um arrepio pequeno subindo da cintura em direção à nuca, uma onda que eu persigo com o cordão sem nunca alcançar.
+
+Ela respira curto. Eu respiro curto.
+
+No sexto ilhós, as minhas mãos estão tremendo tanto que eu erro o furo e enfio o cordão no de cima. Tenho que voltar. Puxar. Começar de novo o sexto. E nesse movimento a mão inteira, a palma, encosta nas costas dela, embaixo das omoplatas, por um instante. Espalmada. Quente.
+
+Ela não se mexe. Mas eu sinto, debaixo da palma, o coração dela batendo contra as costelas, rápido, rápido como de passarinho preso na mão.
+
+Tiro a mão.
+
+Termino. Sete. Oito. Nove. Dez. Onze. Doze. Puxo as duas pontas do cordão até o tecido abraçar a cintura dela, não apertado demais, do jeito que ela gosta, para poder respirar fundo quando briga no conselho. E dou o laço. Um laço duplo, com as pontas para baixo, escondidas dentro da gola.
+
+Ela leva a mão para trás.
+
+Toca o laço com a ponta dos dedos. Sente as pontas escondidas. Sente o cruzamento, que eu fiz de baixo para cima, ao contrário do jeito de Esparta, que é de cima para baixo, e ao contrário do jeito da Euricleia, que dá nó cego.
+
+A mão dela fica ali, parada nas costas, em cima do laço.
+
+— Quem te ensinou a amarrar desse jeito? — pergunta. A voz saiu rouca.
+
+— Ninguém, senhora. Em Creta a gente amarra assim.
+
+— Em Creta não. — Ela tira a mão do laço devagar. — Em Creta elas usam fivela. Eu tive uma criada de Creta no primeiro ano. Ela não sabia o que era um ilhós.
+
+Eu fico calada atrás dela, com as mãos vazias, com a pele dela ainda na palma.
+
+Ela pega o pente de marfim de cima do baú e estende para trás, por cima do ombro, sem virar a cabeça.
+
+— Agora o cabelo — diz.
+
+---
+
+Ela senta num banco baixo, de costas para mim, e fica esperando.
+
+A dor sobe pelo meu ombro. Os olhos ardem. Pego o pente da mão dela, que não solta logo; os dedos dela ficam no marfim um instante a mais, encostados nos meus, e depois soltam. Encosto o cajado na parede. E levanto as mãos, que tremem, até o cabelo dela.
+
+Ela tira os grampos sozinha, um por um, e põe no colo. Quatro. O cabelo desce de uma vez pelas costas, por cima do laço que eu acabei de dar, e se espalha no verde do vestido como água escura derramada.
 
 ---
 
@@ -194,21 +248,21 @@ No terceiro dia, ao entardecer, ela sentou do meu lado.
 
 — Fica — disse.
 
-— Eu tenho uma casa. Uma esposa.
+— Eu tenho uma casa do outro lado do mar, uma esposa que me odeia com razão e doze homens que já comeram o teu estoque de vinho de um ano — eu disse. — Fico mais uma semana e você me cobra a adega.
 
 Ela pegou a minha mão. Virou a palma para cima. Passou o polegar devagar pela linha que atravessa a palma de lado a lado.
 
 — Uma esposa que não escreve — disse. — Um filho que você mal viu. E um reino que sobrevive sem você há dois anos. Você tem um mar inteiro para cruzar, com deuses zangados. — O polegar dela subiu até o meu pulso, onde o sangue bate. — Não precisa começar esta noite. Uma noite. Só uma.
 
-Eu sabia o que era aquilo.
+Eu entendi o que era aquilo.
 
-Sabia exatamente, como uma criança sabe que vai cair da árvore um segundo antes de cair. Sabia que estava prestes a fazer uma coisa que nunca mais ia conseguir desfazer.
+Entendi como uma criança entende que vai cair da árvore um segundo antes de cair. Eu estava prestes a fazer uma coisa que nunca mais ia conseguir desfazer.
 
-E sabia também que o desejo não era só dela.
+E o desejo não era só dela.
 
 Eu queria.
 
-Esse é o ponto que eu nunca contei a ninguém. Não foi feitiço, nem fraqueza, nem solidão, embora tivesse tudo isso. Foi porque fazia dois anos que ninguém me tocava com carinho. Porque eu sentia que, se não me desse a alguém, ia virar pedra. Porque eu tinha visto um menino cair de uma muralha e precisava de alguma coisa, qualquer coisa, que me fizesse esquecer o barulho. Porque a Anne estava a três mil léguas de distância, e a mão da Circe, quente, seca, firme, estava na minha.
+Esse é o ponto que eu nunca contei a ninguém. Não foi feitiço, nem fraqueza, nem solidão, embora houvesse um pouco de cada. Foi porque fazia dois anos que ninguém me tocava com carinho. Porque eu sentia que, se não me desse a alguém, ia virar pedra. Porque eu tinha visto um menino cair de uma muralha e precisava de alguma coisa, qualquer coisa, que me fizesse esquecer o barulho. Porque a Anne estava a três mil léguas de distância, e a mão da Circe, quente, seca, firme, estava na minha.
 
 Fui para a cama dela.
 
@@ -234,15 +288,15 @@ Me olhou inteira. Os ombros. A cicatriz da lança nas costelas. As marcas de sol
 
 Levantou a mão e tocou a cicatriz das costelas. Seguiu a linha com a ponta do dedo.
 
-— Quem costurou?
+— Quem costurou isso, um açougueiro cego?
 
-— Eu mesma.
+— Eu mesma, de noite, numa praia, com agulha de vela. Estava com pressa.
 
-— Claro.
+— Dá para ver. — Ela riu, e o riso desceu pela minha barriga como uma mão. — Você costura como luta. Rápido e feio. E sobrevive.
 
 E me beijou.
 
-O beijo dela não era o da Anne. Era mais lento. Mais fundo. Mais sabido. Com gosto de vinho quente e de ervas, e uma língua que explorava a minha boca com a segurança de quem sabe exatamente o que está fazendo e não tem pressa nenhuma de terminar.
+O beijo dela não era o da Anne. Era mais lento. Mais fundo. Mais sabido. Com gosto de vinho quente e de ervas, e uma língua que explorava a minha boca com a segurança de quem conhece o caminho e não tem pressa nenhuma de chegar.
 
 As mãos dela subiram pelas minhas costas. Pelo pescoço. Se enfiaram no meu cabelo curto. O corpo dela, nu, quente, apertado contra o meu. Um gemido escapou da minha garganta sem eu querer, e ela sorriu contra a minha boca.
 
@@ -280,7 +334,7 @@ E eu chorei.
 
 Fiquei um ano.
 
-Um ano em que os homens se empanturraram, e dormiram, e cantaram, e engordaram, e esqueceram. Um ano em que as luas passaram e eu nem contei. Eu, que conto tudo. Um ano de vinho, de seda, de tardes preguiçosas na beira da fonte, de noites sem fim, de risadas.
+Um ano em que os homens se empanturraram, e dormiram, e cantaram, e engordaram, e esqueceram. Um ano em que as luas passaram e eu nem contei. Eu, que conto até os dentes dos peixes. Um ano de vinho, de seda, de tardes preguiçosas na beira da fonte, de noites sem fim, de risadas.
 
 Ela me ensinou ervas. Feitiços pequenos. A ler o que as estrelas dizem baixinho. Eu ensinei a ela a jogar dados e a roubar no jogo.
 
@@ -292,17 +346,17 @@ Me achou deitada no jardim, com a cabeça no colo dela, os olhos fechados, o ros
 
 — Está na hora, rainha.
 
-Não abri os olhos.
+— Está na hora do almoço, Euríloco — eu disse, sem abrir os olhos. — Se você trouxer figo, eu levanto.
 
-— Faz um ano — disse ele. — Os homens estão inquietos. Querem as famílias. — Uma pausa, e a voz dele mudou. — E a senhora tem uma esposa. E um filho. Eles esperam.
+— Faz um ano — disse ele, e não riu. — Os homens estão inquietos. Querem as famílias. — Uma pausa, e a voz dele mudou. — E a senhora tem uma esposa. E um filho. Eles esperam.
 
 Fechei os olhos com mais força. E a mão de Circe voltou a mexer, devagar, no meu cabelo.
 
 Naquela noite, deitada na cama de ébano, com a cabeça no ombro dela, eu disse que precisava ir.
 
-— Eu sei — disse ela. — Eu sabia desde o dia em que você baixou a espada.
+— Eu esperava isso desde o dia em que você baixou a espada — disse ela, com a voz de quem anuncia o fim do verão.
 
-— Você me enfeitiçou?
+— Você me enfeitiçou, Circe? Diz a verdade uma vez. Eu baixei a espada porque quis, ou porque você mexeu na minha cabeça com a erva do teu tear?
 
 Ela riu, baixo.
 
@@ -312,13 +366,9 @@ Virou o meu rosto para ela, com dois dedos debaixo do queixo, e me olhou nos olh
 
 — Você vai chegar em casa. Não agora, nem logo, nem do jeito que imagina. Vai perder tudo o que tem, menos esse anel. E quando finalmente chegar, vai encontrar uma mulher que não é a que deixou. Mais forte. Mais dura. Mais ferida. E com toda a razão do mundo para te odiar.
 
-— E o que eu faço?
+— Então me diz o que eu faço quando chegar, já que você vê tanta coisa.
 
-— Vai precisar de coragem. Não a de guerra. A outra.
-
-— Que outra?
-
-— A que dói. — Ela me beijou a testa. — A de dizer a verdade.
+— Vai precisar de coragem. E não dessa que você usa para enfiar estaca em olho de gigante. — Ela me beijou a testa. — A que dói. A de ficar parada na frente dela e dizer a verdade inteira enquanto ela te olha. Essa você não tem ainda. Vai ter que roubar de alguém.
 
 Me beijou uma última vez. Um beijo comprido, lento, sem pressa nenhuma, com gosto de sal.
 
@@ -340,45 +390,33 @@ Estou de pé atrás dela, no quarto da oliveira, com o pente de marfim na mão e
 
 Solto os dedos. Um horror me sobe do estômago.
 
-— Desculpe, senhora.
+— Desculpe, senhora. A mão de velha prende onde não deve.
 
-— Você estava longe.
+— A mão de velha não prende sozinha. — Ela não se vira. — Você foi para longe. Eu senti os teus dedos irem embora do meu cabelo e voltarem com raiva. Foi pensar em quê, que voltou com tanta força?
 
-— Estava pensando.
-
-— Em quê?
-
-Silêncio.
+Fico calada.
 
 Ela não se vira. Fica imóvel no banco, de costas, com a coluna reta. Mas eu vejo o reflexo dela no bronze da lamparina, pendurada no gancho na nossa frente. Uma imagem pequena, torta, redonda. E nela os olhos verdes estão fixos em mim.
 
-— Numa mulher que eu conheci — digo. — Faz muito tempo.
+— Numa mulher que eu conheci — digo. — Faz muito tempo. Numa ilha. Tinha um cabelo como o seu, pesado, e eu penteava, e ela não deixava eu parar.
 
-— Amiga?
+O pente treme na minha mão. No bronze, os olhos verdes não piscam.
 
-— Não.
-
-— Amante?
-
-O ar muda. O pente treme na minha mão.
-
-— Sim.
+— Penteava como criada — pergunta ela — ou como quem deita depois?
 
 Uma gaivota grita lá fora. O mar rebenta longe.
 
-— Era bonita? — pergunta ela.
+— Como quem deita depois — digo. — E depois se arrepende.
 
-A voz é tão neutra, tão fria, tão vazia de tudo, que me gela os dedos.
+— E ela era bonita? — A voz é neutra, fria, vazia, e me gela os dedos. — Não precisa poupar a rainha, velha. A rainha ouviu coisa pior num salão cheio.
 
-— Era.
+— Bonita como uma fera é bonita, senhora. A gente olha porque tem medo de virar as costas.
 
-— Mais do que eu?
+— E eu? — Ela não se mexe. — Você me olha porque tem medo de quê?
 
-— Não.
+Eu abro a boca. No bronze, eu vejo a minha cara de velha e, atrás dela, a dela, de olhos fixos, esperando.
 
-— Você nunca me viu antes de ontem.
-
-— Vi a sua cara — digo. — No bronze.
+— De a senhora virar para trás — digo.
 
 Ela se levanta devagar.
 
@@ -390,15 +428,9 @@ E levanta a mão, e sem aviso agarra o meu queixo com os dedos. Com força. E me
 
 Sinto as unhas dela na minha pele.
 
-— Você conhece a minha esposa.
+— Você conhece a minha esposa — diz. — Não me olha com essa cara de velha esquecida. Você falou dela junto ao fogo como quem fala de alguém que comeu na mesma tigela. Ela está viva, Éton?
 
-Não é pergunta.
-
-— Conheço.
-
-— Ela está viva?
-
-— Está.
+— Estava, da última vez que eu olhei — digo. — Mais magra. Mais feia. Com mais medo de você do que de qualquer monstro.
 
 O aperto aumenta. Os olhos dela, a um palmo dos meus, verdes, molhados, ferozes.
 
@@ -408,7 +440,7 @@ Fico imóvel.
 
 Sinto os olhos dela nos meus. E vejo o que está dentro deles. A raiva. O medo. A esperança, que é a pior das três. A necessidade desesperada de ouvir uma coisa que eu não posso dizer.
 
-E o corpo dela. Perto. O peito subindo e descendo. O cheiro de amêndoa no cabelo que eu acabei de pentear. A boca entreaberta, a um palmo da minha, e eu sei, eu sei com cada pedaço de mim, que se eu disser sim ela vai me bater. E depois.
+E o corpo dela. Perto. O peito subindo e descendo. O cheiro de amêndoa no cabelo que eu acabei de pentear. A boca entreaberta, a um palmo da minha, e cada pedaço de mim tem certeza de que, se eu disser sim, ela vai me bater. E depois.
 
 Depois eu não sei.
 
