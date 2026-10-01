@@ -345,7 +345,7 @@ Eu não soltei. Eu esqueci que tinha uma flecha. Eu fiquei parada dentro dos bra
 
 A flecha foi parar no telhado do estábulo. O cavalo relinchou. Ela riu tanto que caiu sentada na grama e me puxou junto, e o arco caiu em cima das duas, e ninguém foi buscar a flecha.
 
-Ela continua lá, eu acho. Em cima do estábulo. Faz vinte anos que ninguém sobe para tirar.
+Ela continua lá, eu acho. Em cima do estábulo. Faz vinte anos que ninguém sobe para tirar. Eu nunca deixei. Toda vez que um criado fala em consertar o telhado do estábulo, eu acho um motivo para consertar outro telhado primeiro, e a flecha vai ficando, apodrecendo devagar ao sol, com a pena desbotada apontando para o mar.
 
 — Idiota — digo em voz alta. Para mim. Para ela.
 
