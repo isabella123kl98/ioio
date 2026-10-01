@@ -2,28 +2,580 @@
 
 *Emily*
 
-Os navios chegam ao amanhecer do terceiro dia, e eu os vejo antes de qualquer outro, porque não dormi.
+Os navios chegam ao amanhecer da lua nova. E eu vejo antes de qualquer pessoa, porque não dormi.
 
-Estou no alto da torre leste do palácio, encostada ao parapeito de pedra, com o manto enrolado nos ombros e o frio da madrugada entrando pelos ossos. O mar está liso e cinzento, sem um sopro de vento, e a linha do horizonte começa a se tingir de rosa; e nela, uma a uma, como dentes que se arrancam de uma gengiva escura, vão aparecendo as velas. Dez, vinte, trinta, quarenta e dois navios, pretos, pesados, carregados de gente, deslizando sobre o mar sem pressa, com as proas viradas para o cais de Ítaca. Reconheço as velas de Same, azuis e brancas; as de Zacinto, vermelhas; as de Dulíquio, amarelas com uma faixa negra. Uma frota inteira, erguida em três dias com o ódio de cento e oito famílias e a cobiça de uns poucos que souberam usá-lo. Fico parada, com a mão no parapeito, sentindo na palma a aspereza fria da pedra, e faço as contas, como faço sempre: quarenta e dois navios, catorze homens em cada um, quinhentos e oitenta e oito, e mais os soldados de fortuna; seiscentos, setecentos. Do lado de cá, cinquenta e dois guardas, Eumeu, Filécio, um menino de dez anos, uma mulher com uma perna ferida. E uma rainha que não está.
+Estou no alto da torre leste, encostada no parapeito de pedra, com o manto enrolado nos ombros e o frio da madrugada entrando nos ossos. O mar está liso e cinzento, sem um sopro de vento. A linha do horizonte começa a ficar rosa.
 
-Ela desapareceu na tarde do dia anterior. Voltei ao palácio com o Timóteo, a pé, depois de passar a noite inteira procurando-a pelas colinas do norte, chamando o nome dela até a voz falhar; encontrei o rastro de um passo rápido, de uma sandália com a correia rota, que subia pelo bosque de oliveiras e sumia numa pedreira, e perdi o rastro; deitei-me no chão, junto a uma pedra, sem coragem de ir para casa, e o amanhecer me encontrou assim, com o menino dormindo a meu lado, enroscado em Fido, e o coração enrolado num nó. Quando entrei no pátio, Euricleia estava à porta, de braços cruzados, com o rosto endurecido. Disse que ela não voltou. Perguntou o que eu fiz, e eu disse que contei a verdade, toda, ao Eupites. Euricleia fechou os olhos, soltou o ar devagar, como quem pesa um cesto, e disse que eu era tão idiota quanto ela.
+E nela, uma por uma, como dentes saindo de uma gengiva escura, vão aparecendo as velas.
 
-Sei agora que errei, e sei exatamente onde: não na verdade, na ordem. A Anne pediu uma coisa só, simples e impossível, e eu não a fiz: que, se eu tivesse que contar Calipso a alguém, contasse a ela primeiro. Uma exigência egoísta e justa, a única coisa que, em dez anos, ela me pediu por escrito, em voz alta, com todas as letras. Eu tentei. Juro que tentei: sentada à mesa de Eupites, diante de um pai de sessenta anos que me olhava sem piscar, contei Troia, o silêncio, o medo, e deixei de fora a gruta, deixei de fora, deixei de fora. E ele sabia. Olhou-me e disse *a verdade, rainha, ou nada*, e havia na voz dele uma coisa tão cansada, tão nua, tão absolutamente honesta, que eu, que passei dez anos me escondendo, não consegui sustentá-la. Contei tudo; não porque tivesse medo de morrer, isso é o que eu deveria ter dito; contei porque, pela primeira vez em dez anos, tive vontade de ser vista, e a pessoa que me olhava era um homem que perdera um filho por minha causa, e não havia espaço, diante dele, para mentira. Ele ouviu em silêncio, sem me interromper, sem me julgar; quando terminei, ficou muito tempo calado, olhando a própria mão sobre a mesa; depois perguntou se a minha esposa sabia, e eu disse que sabia o que o mercador contou; ele disse que isso não é saber; perguntou por que eu não contara, e eu disse que por medo, de que ela me olhasse como ele me olhava, como se eu fosse uma criança que quebrou alguma coisa. Ele sorriu, triste, cansado: não me olhava como a uma criança, olhava como a um pai; eu tinha a idade que o filho dele teria, se tivesse crescido. Mandou-me conversar com ela antes que fosse tarde: perdera um filho sem a chance de dizer o que queria dizer, e não queria que isso me acontecesse. E depois, de pé, apoiado na bengala, disse que me perdoava, não porque eu merecesse, mas porque estava cansado de odiar, e porque o filho dele, no fim, fora morto por uma mulher que se lembrou do nome dele, e isso era mais do que muitos têm. Chorei; ele me deixou chorar, com uma mão no meu ombro, como se eu fosse, de fato, uma criança. Disse que levaria a questão à assembleia e tentaria conter Leócrito, mas que não prometia nada: os homens têm sede de sangue, e essas coisas, uma vez iniciadas, não se detêm. Saí; encontrei a Anne no portão, pálida, e disse a ela, tarde demais, o que já tinha feito.
+Dez.
+
+Vinte.
+
+Trinta.
+
+Quarenta e dois navios. Pretos. Pesados. Cheios de gente. Deslizando no mar sem pressa, com a proa virada para o cais de Ítaca.
+
+Reconheço as velas. As de Same, azuis e brancas. As de Zacinto, vermelhas. As de Dulíquio, amarelas com uma faixa preta. Uma frota inteira, levantada em cinco dias com o ódio de cento e sete famílias e a cobiça de uns poucos que souberam usar esse ódio.
+
+Fico parada, com a mão no parapeito, sentindo na palma a pedra fria e áspera.
+
+E faço a conta. Como faço sempre.
+
+Quarenta e dois navios. Catorze homens em cada. Quinhentos e oitenta e oito. E mais os mercenários. Seiscentos. Setecentos.
+
+Do lado de cá: cinquenta e dois guardas. O Eumeu. O Filécio. Um menino de dez anos. Uma mulher com uma perna ferida.
+
+E uma rainha que não está.
 
 ---
 
-O Timóteo vem me buscar na torre. Está de pé na porta da escada, de túnica de couro e cinto, com uma espada curta pendurada no quadril, grande demais para ele, e o arco curto atravessado nas costas, os cabelos escuros amarrados com um pano, o rosto pálido, os olhos vermelhos de quem não dormiu, e nas mãos uma bandeja com pão e queijo. Diz que mãe Euricleia mandou, que eu preciso comer; e acrescenta, sem me olhar, que me chamou de mãe Emily, que é o jeito mais fácil: a Anne é a mãe Anne, eu sou a mãe Emily. Sorrio, sem querer. Pego o pão; não tenho fome, mas mastigo, por ele. Pergunta onde ela está; digo que não sei; que vai voltar, porque não é uma mulher que foge; que não foi fuga, foi uma pausa, para respirar. Ele olha o mar, a frota que já se aproxima do porto, com os remos agitando a água como patas de insetos, e diz, com a voz calma, sem medo, que eles vão nos matar. Seiscentos contra cinquenta. *Cinquenta e cinco*, digo. *Cinquenta e seis*, corrige. *Fido conta.* Quase rio. Olho para o menino, para aquele rosto sério de dez anos, a testa larga e o queixo dela, e penso que, se sobrevivermos, vou passar o resto da vida tentando compensá-lo. Explico: em uma hora eles vão desembarcar, vão exigir falar comigo, vão pedir a minha cabeça; vou propor um duelo com Leócrito, porque se eu o matar o resto se dispersa, sem líder não há exército; e peço que, se eu morrer, ele fuja, leve a Euricleia, o Eumeu, os que puder, para o sítio do avô. Ele diz que não. *Eu tenho dez anos. Matei um homem. Sei o que é. E não vou deixar a senhora morrer sozinha. Nem a mãe Anne. Nem ninguém.* Ajoelho diante dele, pego o rosto dele com as duas mãos, e digo que ele é corajoso demais para o próprio bem; ele diz que puxou de mim; eu digo que puxou da outra; beijo a testa dele: *a mais corajosa de nós três.*
+Ela sumiu faz duas noites.
 
-O desembarque é sem pressa. Os navios aportam um a um, deslizando junto ao cais com um ruído longo de madeira contra pedra; homens de túnica escura pulam para a terra, com lanças e escudos, e formam fileiras, em silêncio, sem gritos, sem a euforia que eu esperava; é pior assim, é a calma de quem sabe o que vai fazer. Desço ao porto com os cinquenta e dois guardas, o Eumeu, o Filécio, o menino, levando a espada à cintura, o manto escuro, a cabeça descoberta. Paro a vinte passos da primeira fileira e olho-os: seiscentos homens, em linhas de dez, com os escudos encostados no chão e as lanças apontadas para o céu, jovens, velhos, magros, gordos, homens que reconheço de vista e outros que nunca vi; alguns olham para mim com ódio, outros com curiosidade, um ou dois com medo. No centro, à frente de todos, sobre um cavalo negro, está um homem alto, louro, de ombros largos, com um elmo de crina vermelha debaixo do braço e uma espada longa no cinto. Leócrito sorri ao me ver, e diz que esperava uma recepção mais calorosa. Respondo que esperava que viesse de barriga cheia; ele ri, a assassina tem senso de humor; eu digo que só não tenho paciência. Pergunto o que quer, e ele diz que justiça, e eu digo que não quer justiça, quer a coroa, e o sorriso dele não vacila; desce do cavalo com um movimento fluido, joga as rédeas a um escudeiro, e caminha até mim, devagar, batendo o elmo contra a coxa: tem razão, quer a coroa, mas também quer justiça, as duas coisas podem coexistir. Digo que não neste caso, que a justiça, para ele, é uma desculpa; para mim é uma dívida: a que devo a cada mãe que perdeu um filho, a Ítaca, à minha esposa, e que não devo nada a ele. Proponho um acordo: um duelo; se ele ganhar, a ilha é dele, e seiscentos homens não precisam morrer por uma briga pessoal; se perder, vai embora com os navios, sem tocar em mais ninguém. Um murmúrio corre pelas fileiras. Ele me observa em silêncio, com o sorriso mudando, mais frio, mais calculado, e aceita, com uma condição: que a rainha Anne assista, porque quer que ela veja a mulher que escolheu morrer. Digo que ela não está aqui. Ele cruza os braços: espera até o meio-dia; se ela não aparecer, o duelo é cancelado e a guerra começa. Olho o sol, já alto; a fileira de homens, os escudos brilhando; a cidade atrás de mim, a colina do palácio, a torre leste, onde uma janela pequena, meio escondida pela sombra, não tem luz. Digo que ela vem.
+No pôr do sol, na frente da casa do Eupites, depois de *Circe*. Virou as costas e andou. E eu fiquei parada com a boca aberta e o nome dela preso nos dentes.
 
-Espero até o meio-dia. Fico de pé no cais, sob o sol, com a espada à cintura, sem me mover; os guardas se agrupam atrás de mim; o Timóteo, a meu lado, com a mão na espada, não diz nada; os homens de Leócrito comem, bebem, riem, deitam-se à sombra dos navios, esperando. O mar brilha, as cigarras cantam, nenhum vento. Conto as gaivotas, as ondas, os passos que dei da torre ao cais, quatrocentos e doze, e conto, com uma raiva cada vez mais fria, cada minuto que passa. *Ela não vem.* Claro que não vem. Por que viria? Contei a um estranho antes de contar a ela, deixei-a esperando dez anos, traí-a com duas mulheres e uma ninfa; sou a pior esposa do mundo; ela nunca mais vai me perdoar, e eu vou morrer aqui, nesse cais, num duelo estúpido, sem sequer ter dito a palavra.
+Passei a primeira noite procurando nas colinas do norte. Chamando até a voz falhar. Achei o rastro de um passo rápido, de uma sandália com a correia arrebentada, subindo um bosque de oliveiras. E perdi numa pedreira.
+
+Deitei no chão do lado de uma pedra, sem coragem de voltar. O amanhecer me achou assim. Com o menino dormindo do meu lado, enroscado no Fido, e o coração enrolado num nó.
+
+Voltei ao palácio a pé. Um dia inteiro de estrada.
+
+Quando entrei no pátio, Euricleia estava na porta, de braços cruzados, com o rosto duro.
+
+— Ela não voltou — disse.
+
+— Eu sei.
+
+— O que você fez?
+
+— Contei a verdade. Toda. Ao Eupites.
+
+Euricleia fechou os olhos. Soltou o ar devagar, como quem pesa um cesto na mão.
+
+— Você é tão idiota quanto ela — disse.
+
+Saí de novo à noite. Com uma tocha. Com o menino e o cachorro. Fui até a encruzilhada das oliveiras, onde a estrada do porto se divide. E fiquei parada lá muito tempo, sem saber para que lado.
+
+Escolhi o porto. Pensei que ela tivesse pegado um barco. Para Same. Para a outra.
+
+Não estava no porto.
+
+Voltei de madrugada. Subi à torre.
+
+E agora os navios.
+
+---
+
+Eu sei onde eu errei. Sei exatamente.
+
+Não na verdade. Na ordem.
+
+A Anne me pediu uma coisa. Uma só. Simples e impossível. Que a outra, a que eu deixei escapar no quarto dela, ninguém ouvisse antes dela.
+
+Eu tentei. Juro que tentei.
+
+---
+
+A sala do Eupites é escura. Uma janela só, estreita, que dá para o mar. Uma mesa comprida de carvalho, igual à da nossa cozinha. Duas cadeiras.
+
+Ele me mandou sentar e sentou na minha frente. Sem vinho. Sem pão. Sem nada entre nós além da madeira.
+
+— Conta — disse.
+
+Contei o arco. O salão. A flecha.
+
+— Ele morreu depressa — eu disse. — Eu juro. Pela garganta. Ele não sentiu quase nada.
+
+— Ele sabia quem você era?
+
+— Sabia. Eu disse antes. Eu disse *você bateu no meu filho.* E ele olhou para mim e eu vi que ele sabia.
+
+O velho fechou os olhos.
+
+— E o que ele fez? Na cara. Na hora.
+
+Pensei. Não queria mentir. Não podia mentir. Não para aquele rosto.
+
+— Ele pareceu um menino. Por um segundo. O menino que carregou o meu escudo. Ele pareceu perguntar *por quê.* Como uma criança pergunta quando cai.
+
+O Eupites ficou muito tempo calado.
+
+Depois abriu os olhos.
+
+— E por que você não voltou antes?
+
+---
+
+Eu contei Troia. O menino na muralha. O silêncio. As cartas que não escrevi.
+
+Contei o mar. O ciclope. O nome gritado. Os lestrigões. As sereias. Cila.
+
+Contei os sete anos. A gruta. A ninfa. Isso todo mundo já sabia, o mercador contou para a ilha inteira, e mesmo assim doía dizer em voz alta.
+
+E deixei de fora Eéa.
+
+Deixei de fora. Deixei de fora.
+
+Pulei de Cila para a ilha do Sol, de lá para Ogígia, como quem pula uma tábua podre num cais.
+
+O Eupites me olhou.
+
+Os olhos dele eram cinzentos, pequenos, cansados. Os olhos de um homem que enterrou o filho há oito dias e não dormiu nenhuma noite.
+
+— Tem um buraco na tua história, rainha — disse.
+
+Fiquei imóvel.
+
+— Entre o monstro de seis cabeças e a ilha do Sol. Os poetas cantam isso. Eu ouvi no salão do meu filho, no inverno. Tem uma ilha ali. Uma feiticeira. Um ano.
+
+Não respondi.
+
+— A verdade, rainha — disse ele, devagar. — Ou nada.
+
+E tinha naquela voz uma coisa tão cansada. Tão nua. Tão absolutamente honesta.
+
+Eu pensei na Anne. Do lado de fora. Debaixo da figueira. Com o nosso filho. Pensei na mão dela na minha boca, no vale do carvalho. *Não quero ouvir agora. Mas também não quero que ele ouça antes.*
+
+Pensei em dizer *me mata, mas essa eu devo a outra pessoa.*
+
+Eu pensei.
+
+Juro que pensei.
+
+E não disse.
+
+Porque, pela primeira vez em dez anos, eu tive vontade de ser vista. E a pessoa que me olhava era um homem que perdeu um filho por minha causa. E não havia lugar, na frente dele, para mais uma mentira. Nem para mais um silêncio.
+
+— Circe — eu disse.
+
+E contei.
+
+---
+
+Ele ouviu calado. Sem me interromper. Sem me julgar.
+
+Quando terminei, ficou muito tempo olhando a própria mão em cima da mesa. Uma mão grande, de nó grosso, com uma aliança de ferro gasta.
+
+— A tua esposa sabe disso?
+
+— Não. Sabe que tem outra. Não sabe o nome.
+
+— E você me contou antes dela.
+
+— Contei.
+
+Ele balançou a cabeça devagar.
+
+— Por quê?
+
+— Porque o senhor perguntou. E ela pediu para não perguntar ainda.
+
+— Não. — Ele me olhou. — Por que você não contou a ela antes, em dez dias, em dez anos? Por que esperou alguém te obrigar?
+
+Não respondi.
+
+— Medo — disse ele, por mim. — Medo de ela te olhar como eu estou te olhando agora.
+
+— Como o senhor está me olhando?
+
+— Como uma criança que quebrou alguma coisa. — Ele sorriu, triste, cansado. — Mas eu não estou te olhando assim. Estou te olhando como pai. Você tem a idade que o meu filho ia ter, se tivesse crescido mais vinte anos.
+
+Eu chorei.
+
+Ele deixou. Se levantou, apoiado na bengala, contornou a mesa e pôs a mão pesada e seca no meu ombro, como se eu fosse, de fato, uma criança.
+
+— Eu te perdoo — disse. — Não porque você mereça. Porque eu estou cansado de odiar. E porque o meu filho, no fim, foi morto por uma mulher que lembrou do nome dele. Isso é mais do que muita gente tem.
+
+Ele apertou o meu ombro.
+
+— Agora vai. Conversa com ela. Antes que seja tarde. Eu perdi o meu filho sem a chance de dizer o que eu queria dizer. Não quero isso para você.
+
+Fui.
+
+Encontrei a Anne no portão.
+
+E disse a ela, tarde demais, o que eu já tinha feito.
+
+---
+
+O Timóteo vem me buscar na torre.
+
+Está na porta da escada, de túnica de couro e cinto, com uma espada curta pendurada no quadril, grande demais para ele, e o arco atravessado nas costas. O cabelo amarrado com um pano. O rosto pálido. Os olhos vermelhos de quem não dormiu. Uma bandeja com pão e queijo nas mãos.
+
+— A mãe Euricleia mandou — diz. — A senhora tem que comer.
+
+Pego o pão. Não tenho fome. Mastigo por ele.
+
+— Onde ela está? — pergunta.
+
+— Não sei.
+
+— Ela vai voltar?
+
+— Vai. Ela não é mulher que foge. Não foi fuga. Foi uma pausa. Para respirar.
+
+Ele olha o mar. A frota já perto do porto, os remos mexendo na água como patas de inseto.
+
+— Eles vão nos matar — diz, com a voz calma. Sem medo nenhum. — Seiscentos contra cinquenta.
+
+— Cinquenta e cinco.
+
+— Cinquenta e seis — corrige ele. — O Fido conta.
+
+Quase rio.
+
+Olho o menino. Aquele rosto sério de dez anos. A testa larga e o queixo dela. E penso que, se a gente sobreviver, eu vou passar o resto da vida tentando compensar.
+
+Me ajoelho. Explico. Em uma hora eles desembarcam. Vão pedir para falar comigo. Vão pedir a minha cabeça. Eu vou propor um duelo com o Leócrito. Se eu matar ele, o resto se dispersa, sem cabeça não tem exército.
+
+— E se eu morrer — digo —, você foge. Leva a Euricleia, o Eumeu, quem você puder. Para o sítio do avô.
+
+— Não.
+
+— Timóteo.
+
+— Eu tenho dez anos. Eu matei um homem. Eu sei o que é. — O queixo dele empina. — E eu não vou deixar a senhora morrer sozinha. Nem a mãe Anne. Nem ninguém.
+
+Pego o rosto dele com as duas mãos.
+
+— Você é corajoso demais para o teu próprio bem.
+
+— Puxei da senhora.
+
+— Puxou da outra.
+
+Beijo a testa dele.
+
+— A mais corajosa de nós três.
+
+---
+
+O desembarque é sem pressa.
+
+Os navios encostam um por um no cais, com um barulho comprido de madeira raspando pedra. Homens de túnica escura pulam para a terra com lança e escudo e formam fileiras. Em silêncio. Sem grito. Sem a euforia que eu esperava.
+
+É pior assim. É a calma de quem sabe o que vai fazer.
+
+Desço ao porto com os cinquenta e dois guardas, o Eumeu, o Filécio, o menino. Espada na cintura. Manto escuro. Cabeça descoberta.
+
+Paro a vinte passos da primeira fileira. E olho.
+
+Seiscentos homens em linhas de dez, com os escudos no chão e as lanças apontadas para o céu. Moços. Velhos. Magros. Gordos. Homens que eu conheço de vista e outros que nunca vi. Alguns me olham com ódio. Outros com curiosidade. Um ou dois com medo.
+
+No centro, na frente de todos, num cavalo preto, um homem alto, louro, de ombros largos, com um elmo de crina vermelha debaixo do braço e uma espada comprida no cinto.
+
+O Leócrito sorri ao me ver.
+
+— Eu esperava uma recepção mais calorosa — diz.
+
+— Eu esperava que você viesse de barriga cheia. Na minha mesa você sempre veio.
+
+Ele ri.
+
+— A assassina tem senso de humor.
+
+— Não tenho é paciência. O que você quer?
+
+— Justiça.
+
+— Você quer a coroa.
+
+O sorriso dele não vacila. Desce do cavalo com um movimento fluido, joga as rédeas para um escudeiro e vem até mim, devagar, batendo o elmo na coxa.
+
+— Tem razão. Eu quero a coroa. Mas também quero justiça. As duas coisas podem andar juntas.
+
+— Não neste caso. Para você, a justiça é desculpa. Para mim, é dívida. A que eu devo a cada mãe que perdeu um filho. A Ítaca. À minha esposa. — Olho nos olhos dele. — A você eu não devo nada.
+
+— E então?
+
+— Um duelo. Eu e você. Se você ganhar, a ilha é tua, e seiscentos homens não precisam morrer por uma briga de família. Se perder, vai embora com os navios. Sem tocar em mais ninguém.
+
+Um murmúrio corre pelas fileiras.
+
+Ele me observa calado. O sorriso muda. Fica mais frio. Mais medido.
+
+— Aceito — diz. — Com uma condição. Que a rainha Anne assista. Eu quero que ela veja a mulher que escolheu morrer.
+
+— Ela não está aqui.
+
+Ele cruza os braços.
+
+— Então eu espero até o meio-dia. Se ela não aparecer, o duelo está cancelado, e a guerra começa.
+
+Olho o sol. Já alto. A fileira de homens. Os escudos brilhando. A cidade atrás de mim. A colina do palácio. A torre leste, onde uma janela pequena, meio escondida pela sombra, não tem luz.
+
+— Ela vem — digo.
+
+---
+
+Espero até o meio-dia.
+
+De pé no cais, debaixo do sol, com a espada na cintura, sem me mexer. Os guardas se juntam atrás de mim. O Timóteo, do meu lado, com a mão na espada, não diz nada. Os homens do Leócrito comem, bebem, riem, deitam na sombra dos navios, esperando.
+
+O mar brilha. As cigarras cantam. Nenhum vento.
+
+Conto as gaivotas. As ondas. Os passos que eu dei da torre até o cais. Quatrocentos e doze.
+
+E conto, com uma raiva cada vez mais fria, cada pedaço de tempo que passa.
+
+*Ela não vem.*
+
+Claro que não vem. Por que viria?
+
+Eu contei a um estranho antes de contar a ela. Deixei ela esperando dez anos. Traí ela com uma feiticeira e uma ninfa. Sou a pior esposa do mundo.
+
+Ela nunca mais vai me perdoar.
+
+E eu vou morrer aqui, neste cais, num duelo idiota, sem ter dito a palavra.
+
+A palavra que eu tentei dizer dezessete dias no mar. Que eu disse para a terceira pereira do meu pai. Que eu quase disse no colchão do sítio, com a boca no pescoço dela, e engoli.
+
+*Agapi.*
+
+Digo agora. Baixinho. Para ninguém. Para o mar. Para os quarenta e dois navios.
+
+— Agapi.
+
+Sai. Inteira.
+
+E ninguém escuta.
+
+---
 
 — Emily.
 
-Não é a voz que espero. Viro-me: vinda do caminho que desce do palácio, caminhando devagar, sem pressa, com as mãos vazias, vem uma figura de túnica azul-clara, com uma trança pesada sobre o ombro e uma conta de âmbar na ponta; não tem escolta, não tem armas, só um manto dobrado no braço e uma expressão de absoluta serenidade. Nísia. Fico imóvel; atrás de mim o Timóteo prende a respiração; os guardas se entreolham; Leócrito, do outro lado da praça, levanta-se, curioso. Ela chega a dois passos e para, e me olha, um olhar longo, tranquilo, sem hostilidade, e diz que cheguei a tempo. Pergunto se não estava em Same; estava, diz; quando soube da frota, veio, com os navios dela. *Quarenta, não são todos meus; a maioria é de Same, mas me obedecem.* Viro-me devagar e olho o mar, e atrás da frota de Leócrito, contornando o cabo norte da ilha, uma segunda frota surge no horizonte: velas azuis e brancas, dezenas, avançando devagar, em formação perfeita, como um bando de aves migratórias. Ela explica: nem todos os homens de Same queriam a guerra; alguns queriam a paz; outros queriam a ela; conseguiu um pouco de cada. E acrescenta: não veio para me ajudar, veio para ajudá-la. Digo que sei; e que sabe também que, se for preciso, ela se vira contra mim; digo que sei; *bom*, diz, sorrindo, *só para deixar claro.* Não consigo evitar: sorrio. É uma coisa tão absurda que me pega desprevenida: a mulher que passou a noite com a minha esposa, que a ama, que trouxe quarenta navios para defendê-la, está diante de mim, de túnica azul-clara, dizendo-me com toda a calma que, se for preciso, me matará. Digo que é a pessoa mais honesta que conheço; ela diz que não é difícil, com as mentirosas que tenho ao redor.
+Não é a voz que eu espero.
 
-O que acontece depois é tão rápido que quase não percebo. Leócrito grita uma ordem; os homens se levantam, pegando escudos, formando fileiras; a frota de Nísia, agora perto, avança em linha reta, e de seus conveses sobem gritos e flechas e o ruído metálico de centenas de remos batendo na água; por um momento o cais inteiro parece prestes a explodir numa batalha de proporções que não reconheço. E então a luz muda. O sol, que estava alto, sem nuvens, escurece de repente, como se um dedo gigantesco tivesse coberto o disco; um vento frio sopra do mar, trazendo cheiro de chuva, de ferro, de fogo distante; os cavalos relincham; os homens, nos dois lados, olham para cima, atônitos. Uma voz atravessa o cais; não é alta nem forte, mas todos a ouvem, como se falasse dentro de cada cabeça: *basta.* Uma mulher está parada entre as duas frotas, sobre a água, pequena, de aparência juvenil, com roupa de pastora, um cajado nos joelhos e um chapéu de palha; os olhos, cinza, brilham; em volta dela o ar ondula, como calor sobre pedra. *Esta ilha já viu sangue suficiente por uma geração*, diz Atena, e a voz agora é grave, poderosa, e eu me vejo de joelhos no chão sem saber quando caí. *Zeus decretou. A rainha Emily voltou. Os pretendentes morreram. A dívida foi paga. Vocês lutaram por ódio, e o ódio foi saciado; lutarão agora por vaidade, e a vaidade não merece sangue. Voltem aos seus navios. Enterrem os seus mortos com honra. E esqueçam.* Um velho, nas fileiras, grita *como se esquece um filho?*, e Atena volta os olhos para ele, e eu vejo, pela primeira vez, uma expressão de piedade no rosto da deusa: *não se esquece. Mas também não se mata por ele. Não para sempre. Eu ordeno a paz, e ela será cumprida.* Levanta o cajado; o céu volta a clarear, o vento cessa, a luz do sol cai de novo sobre o cais, sobre os escudos, sobre as velas, sobre as fileiras de homens imóveis; um a um, como quem acorda de um transe, os soldados baixam as lanças. Leócrito fica parado, olhando a deusa; vejo o ódio dele vacilar, a ambição lutar com o medo, e o medo vencer. Ele se ajoelha: como ordenar, senhora. Atena sorri e me olha, um olhar longo, e eu entendo, por um instante, que ela sabe tudo, o cedro, a cama, o silêncio, a lamparina. *Eu disse que você teria trabalho. Mas não disse que seria fácil.* E desaparece, como uma bolha de sabão.
+Me viro.
+
+Descendo o caminho do palácio, devagar, sem pressa, de mãos vazias, vem uma figura de túnica azul-clara, com uma trança pesada no ombro. Sem escolta. Sem arma. Só uma capa dobrada no braço e uma cara de absoluta serenidade.
+
+A Nísia.
+
+Fico imóvel. Atrás de mim, o Timóteo prende a respiração. Os guardas se olham. O Leócrito, do outro lado da praça, levanta, curioso.
+
+Ela chega a dois passos e para. E me olha. Um olhar longo, calmo, sem hostilidade nenhuma.
+
+A ponta da trança está nua. Sem conta. Sem fio de ouro.
+
+— Você chegou a tempo — digo.
+
+— Você é que chegou a tempo. — Ela inclina a cabeça. — Eu estava em Same. Quando eu soube da frota, eu vim. Com os meus navios.
+
+— Os teus navios?
+
+— Quarenta. Não são todos meus. A maioria é de Same. Mas me obedecem.
+
+Me viro devagar.
+
+E olho o mar.
+
+Atrás da frota do Leócrito, contornando o cabo norte da ilha, uma segunda frota aparece no horizonte. Velas azuis e brancas. Dezenas. Avançando devagar, em formação perfeita, como um bando de pássaros indo para o sul.
+
+— Nem todo homem de Same queria a guerra — diz ela. — Uns queriam paz. Outros queriam a mim. Eu juntei um pouco de cada.
+
+Ela me olha.
+
+— Eu não vim te ajudar, Emily. Eu vim ajudar ela.
+
+— Eu sei.
+
+— E você sabe também que, se for preciso, eu me viro contra você.
+
+— Sei.
+
+— Bom. — Ela sorri. — Só para ficar claro.
+
+Não consigo evitar. Sorrio.
+
+É uma coisa tão absurda que me pega desprevenida. A mulher que passou uma noite com a minha esposa. Que a ama há seis anos. Que trouxe quarenta navios para defendê-la. Está na minha frente, de túnica azul-clara, dizendo com toda a calma que, se for preciso, me mata.
+
+— Você é a pessoa mais honesta que eu conheço — digo.
+
+— Não é difícil. Com as mentirosas que você tem em volta.
 
 ---
 
-Os navios partem ao entardecer, um a um, sem pressa, os homens embarcando, recolhendo escudos, enrolando velas. Leócrito é o último; passa por mim, a cavalo, sem me olhar; ficou claro que não voltará. Eupites, que chegou durante a confusão num mulo branco, acompanha o desembarque em silêncio, com as mãos cruzadas sobre o pomo da sela; quando me vê, assente, uma vez, devagar, e vira o animal. Nísia fica. Deixa os seus navios ancorados ao largo, com a bandeira azul e branca tremulando no mastro, e caminha até o cais, onde me encontra sentada, com as costas apoiadas num barril, olhando o mar. Senta-se ao meu lado sem pedir licença, e ficamos as duas ali, em silêncio, vendo o sol se pôr. Digo que ela devia ir embora; ela diz que sabe; pergunto por que não vai; porque ela ainda não voltou, diz, e acha que está a caminho, que só precisa de tempo, e que espera, é o que sabe fazer. Olho-a de lado, a trança, a conta de âmbar, o perfil sereno, e sinto uma onda de gratidão, uma de ciúme e uma de vergonha, tudo misturado. Pergunto por que a ama. *Que pergunta*, diz; mas pensa, olha o mar: *porque ela nunca pediu nada, e porque, sem pedir, sempre me deu tudo o que podia. Que era pouco. Mas era inteiro.* É a mesma coisa que eu sinto, digo. *Eu sei. É por isso que não tenho raiva de você.* Devia ter, digo. *Talvez. Mas seria uma perda de tempo.* Fala depois, olhando o poente, com aquela voz baixa: quando a Anne voltar, vai me perguntar uma coisa; que eu responda a verdade, mas devagar, com carinho; ela não suporta ser atropelada. Digo que ela a conhece bem. *Melhor do que você, acho. Não porque a ame mais. Porque tive menos medo de olhar.* Levanta-se, alisa a túnica, caminha até a borda do cais, onde um bote a espera, sobe, e antes de partir vira-se, com um sorriso pequeno e torto: estará em Same, se ela quiser chamá-la. Digo que aviso. *Não. Ela avisa.* O bote se afasta; fico olhando até ele chegar ao navio, a vela azul se encher de vento, a frota de Same virar, lenta, em direção ao norte. Depois olho para o morro, para o palácio, para a torre leste, onde, pela primeira vez em dias, uma luz pequena e amarela acaba de se acender na janela.
+O que vem depois é tão rápido que eu quase não percebo.
+
+O Leócrito grita uma ordem. Os homens levantam, pegam os escudos, formam fileiras. A frota da Nísia, já perto, avança em linha reta. Dos conveses sobem gritos e flechas e o barulho metálico de centenas de remos batendo na água.
+
+Por um instante o cais inteiro parece a ponto de explodir numa batalha do tamanho de Troia.
+
+E então a luz muda.
+
+O sol, que estava alto, sem nuvem, escurece de repente. Como se um dedo gigante tivesse tapado o disco. Um vento frio sopra do mar, trazendo cheiro de chuva, de ferro, de fogo longe. Os cavalos relincham. Os homens, dos dois lados, olham para cima, espantados.
+
+Uma voz atravessa o cais.
+
+Não é alta. Não é forte. Mas todo mundo ouve. Como se ela falasse dentro de cada cabeça.
+
+*Basta.*
+
+Uma mulher está de pé entre as duas frotas.
+
+Em cima da água.
+
+O lenço desbotado na cabeça. O avental de quem remenda rede. As mãos grossas. E os olhos cinza, brilhando. Em volta dela, o ar ondula como calor em cima de pedra.
+
+Não tem gato no colo, desta vez.
+
+*Esta ilha já viu sangue suficiente para uma geração*, diz Atena.
+
+A voz agora é grave. Poderosa. E eu me vejo de joelhos no chão sem saber quando caí.
+
+*Zeus decidiu. A rainha Emily voltou. Os pretendentes morreram. A dívida foi paga. Vocês lutaram por ódio, e o ódio comeu até se fartar. Agora vão lutar por vaidade. E vaidade não merece sangue.*
+
+Ela olha as duas frotas.
+
+*Voltem para os seus navios. Enterrem os seus mortos com honra. E esqueçam.*
+
+Um velho nas fileiras grita:
+
+— Como é que se esquece um filho?
+
+E Atena vira os olhos para ele.
+
+E eu vejo, pela primeira vez, uma expressão de pena no rosto da deusa.
+
+*Não se esquece. Mas também não se mata por ele. Não para sempre.*
+
+Levanta a mão.
+
+*Eu mando a paz. E ela vai ser cumprida.*
+
+O céu clareia de novo. O vento para. A luz do sol cai outra vez sobre o cais, sobre os escudos, sobre as velas, sobre as fileiras de homens imóveis.
+
+Um por um, como quem acorda de um transe, os soldados baixam as lanças.
+
+O Leócrito fica parado, olhando a deusa. Vejo o ódio dele vacilar. A ambição brigar com o medo.
+
+E o medo ganhar.
+
+Ele se ajoelha.
+
+— Como a senhora mandar.
+
+Atena sorri. E me olha. Um olhar comprido.
+
+E eu entendo, por um instante, que ela sabe de tudo. O cedro. A cama. O silêncio. Eéa. A lamparina. A palavra que eu acabei de dizer para o mar e que ninguém escutou.
+
+*Eu disse que você ia ter trabalho*, diz ela. *Não disse que ia ser fácil.*
+
+E some. Como bolha de sabão.
+
+---
+
+Os navios partem ao entardecer. Um por um. Sem pressa. Os homens embarcando, recolhendo escudo, enrolando vela.
+
+O Leócrito é o último. Passa por mim a cavalo sem me olhar. Ficou claro que não volta.
+
+O Eupites, que chegou no meio da confusão montado num mulo branco, acompanha o embarque calado, com as mãos cruzadas no arreio. Quando me vê, assente. Uma vez. Devagar. E vira o animal.
+
+A Nísia fica.
+
+Deixa os navios dela ancorados ao largo, com a bandeira azul e branca no mastro, e anda até o cais, onde me acha sentada, encostada num barril, olhando o mar. Senta do meu lado sem pedir licença.
+
+Ficamos as duas ali, em silêncio, vendo o sol descer.
+
+— Você devia ir embora — digo.
+
+— Eu sei.
+
+— Por que não vai?
+
+— Porque ela ainda não voltou. — Ela olha o morro. — E eu acho que ela está a caminho. Só precisa de tempo. Eu espero. É o que eu sei fazer.
+
+Olho de lado. A trança. A ponta nua. O perfil calmo.
+
+Sinto uma onda de gratidão. Uma de ciúme. Uma de vergonha. Tudo misturado, como água de rio entrando no mar.
+
+— A conta de âmbar — digo.
+
+Ela leva a mão à ponta da trança. Por reflexo.
+
+— Joguei fora. — Ela solta a mão. — No mato. Na estrada do porto. No dia em que eu fui embora.
+
+— Por quê?
+
+— Porque era dela. E ela não era minha.
+
+Fico calada muito tempo.
+
+— Por que você ama ela? — pergunto.
+
+— Que pergunta.
+
+Mas ela pensa. Olha o mar.
+
+— Porque ela nunca pediu nada. E porque, sem pedir, sempre me deu tudo o que podia. Que era pouco. — Ela sorri. — Mas era inteiro.
+
+— É a mesma coisa que eu sinto.
+
+— Eu sei. É por isso que eu não tenho raiva de você.
+
+— Devia ter.
+
+— Talvez. Mas ia ser perda de tempo.
+
+Ela fica olhando o poente.
+
+— Quando a Anne voltar — diz, com aquela voz baixa —, ela vai te perguntar uma coisa. Responde a verdade. Mas devagar. Com carinho. Ela não aguenta ser atropelada.
+
+— Você conhece ela bem.
+
+— Melhor do que você, eu acho. — Ela me olha. — Não porque eu ame mais. Porque eu tive menos medo de olhar.
+
+Se levanta. Alisa a túnica. Vai até a beira do cais, onde um bote espera. Desce para o bote.
+
+E antes de soltar a corda, vira, com um sorriso pequeno e torto.
+
+— Eu vou estar em Same. Se ela quiser me chamar.
+
+— Eu aviso.
+
+— Não. — Ela solta a corda. — Ela avisa.
+
+---
+
+O bote se afasta.
+
+Fico olhando até ele chegar ao navio. A vela azul se encher de vento. A frota de Same virar, devagar, para o norte.
+
+Depois olho para o morro.
+
+Para o palácio. Para a torre leste.
+
+E para a pedra chata no alto, onde a gente sentava nas noites de verão.
+
+Tem alguém de pé nela.
+
+Pequena, nesta distância. Contra o céu cor de cobre. De braços cruzados. Com a cabeça inclinada.
+
+O jeito de quem espera que alguma coisa seja devolvida e já calculou os juros.
+
+Ela estava lá. O tempo todo. Lá em cima. Vendo os navios. Vendo a deusa. Vendo a Nísia sentada do meu lado no cais.
+
+Viu tudo.
+
+Fico de pé. A perna dói. Não ligo.
+
+A figura no morro não se mexe.
+
+E então, devagar, ela se vira. E começa a descer a trilha. Para o palácio.
+
+Não para mim.
+
+Para o palácio.
+
+Fico olhando até ela sumir atrás das oliveiras.
+
+E alguns minutos depois, na torre leste, na janela pequena meio escondida pela sombra, uma luz pequena e amarela se acende.
+
+Não é para eu ver. Eu sei.
+
+Ou é.
+
+Pela primeira vez em dez anos, eu não sei a diferença.
+
+E não preciso saber.
