@@ -1,10 +1,12 @@
-# Guia de estilo (revisão 2)
+# Guia de estilo (revisão 3 — aprovada no capítulo-teste 2)
+
+A referência é a amostra que a autora colou na conversa ("O que o mar cobra"). Imitar a voz, nunca copiar cenas.
 
 ## Regras
-1. **Nada de pingue-pongue.** Diálogo só em falas longas (cada fala com peso, 80–300 palavras), entremeadas de percepção, corpo e memória. A resposta do outro vem depois, às vezes só no olhar ou na ação. Muito discurso indireto livre.
-2. **Densidade.** Parágrafos longos, frases encadeadas, detalhe sensorial concreto, pensamento que se desdobra. Cada cena precisa ter um núcleo que mude algo entre as duas.
-3. **Frio na barriga.** Tensão física e emocional constante entre Emily e Anne, mesmo (e sobretudo) nas brigas: a respiração presa, a distância de um palmo, o calor de um corpo que se aproxima, a mão que quase toca, o silêncio que pesa. O desejo é anterior ao ato. Cenas de sexo: mais atenção, expectativa e entrega do que coreografia; explícitas, mas guiadas pela tensão.
-4. **Sem tiques.** Evitar "o ar me falta", "o coração aos pulos", "riso rouco", "lágrimas sem som", "contar um, dois, três" como muleta. Cada um só quando for insubstituível.
-5. **Vozes distintas.** Emily: concreta, marítima, seca, observa mãos e ofícios, fala curto por pudor mas pensa comprido. Anne: precisa, irônica, contábil, controlada, frase longa e afiada, ressentimento que se disfarça de lógica.
-6. **Menos choro, mais consequência.** Quando chorarem, que seja raro e custe.
-7. Primeira pessoa, presente. Cenas separadas por `---`.
+1. **Parágrafos de tamanho médio**, alternados com frases curtas soltas que batem como soco ("Ele cuidou." / "Que conte."). Nada de paredes de texto.
+2. **Diálogo em cena**, com travessão, cercado de ação, corpo e objeto. Falas podem ser longas ou curtas, mas nunca trocas de uma palavra em sequência (pingue-pongue).
+3. **Concreto e contável**: números, cheiros, passos, objetos, mãos, feridas. Contar é o tique das duas quando têm medo, e deve aparecer como traço de personagem, não como muleta.
+4. **Frio na barriga**: tensão física entre Emily e Anne em toda cena em que estão juntas; o desejo vem antes do ato; brigas com consequência.
+5. **Primeira pessoa, presente**; flashback em pretérito dentro da cena. Separar cenas com `---`.
+6. **Vozes**: Emily, marítima, seca, autoirônica, culpada, "Os bardos vão adorar". Anne, precisa, contábil, orgulhosa, irônica, raiva fria.
+7. **Tamanho**: cada capítulo entre 5.500 e 7.000 palavras, com 4 a 6 cenas. Expandir com cenas novas que tenham conflito, não com enchimento.

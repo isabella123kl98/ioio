@@ -52,3 +52,6 @@ Epílogo — A primeira carta
 - Frota: 12 navios; lestrigões deixam 1 navio e 12 homens; Cila leva 6; ilha do Sol mata os outros.
 - Anne e Nísia: uma noite, 6º ano de ausência.
 - *Agapi*: Emily diz no cap. 29 (inteira); Anne no cap. 30 (num ataque de raiva).
+- Noite Anne–Nísia (canônico): sexta primavera, depois que um mercador de Corinto disse que os 12 cascos de proa vermelha afundaram ao largo de Malea; Anne vai a pé, descalça, até a "casa de pedra do fim da ilha" (casa de Nísia em Ítaca). Timóteo tinha 6. Corrigir A4 e A7 na reescrita (hoje dizem Same/barco/funeral).
+- Última noite antes da partida: Emily diz "se eu não voltar em três anos, case de novo"; Anne a põe para fora do quarto; Emily dorme na escada com a espada. De manhã: "Vá logo, Emily. Antes que eu peça para você ficar."
+- Esquéria: em cap. 3 Emily omite a passagem pelos feácios ("Há uma parte que eu não conto"); A8 revela.
