@@ -24,7 +24,7 @@ Eu acordava de madrugada com o coração aos saltos e a mão direita esticada no
 
 Eu, que tinha passado a vida sem precisar de ninguém, tinha agora um pedaço de gente que morria se eu errasse uma vez.
 
-Errei muitas.
+Errei muitas. Errei mais do que acertei, e contei os erros todos, um por um, numa tabuinha que eu escondia embaixo do colchão.
 
 Deixei ele cair da cama uma noite, e ele chorou tanto que fiquei duas horas sentada no chão com ele no colo, chorando junto, pedindo perdão a um bebê que não entendia a língua. Dei leite demais. Depois de menos. Esqueci de trocar. Esqueci o nome da erva que a parteira receitou para cólica.
 
