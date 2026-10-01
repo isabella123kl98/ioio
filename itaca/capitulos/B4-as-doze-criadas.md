@@ -2,44 +2,680 @@
 
 *Anne*
 
-Antes do amanhecer eu já decidi o que fazer com elas, e depois passo três horas fingindo que não.
+Quando o sol nasce, eu já decidi o que fazer com elas. E depois passo três horas fingindo que não.
 
-É a minha maneira. Sei o que quero desde a madrugada, quando desço do quarto com a lamparina apagada e os olhos secos e atravesso o pátio ainda cinzento, mas sei também que uma decisão tomada depressa não convence ninguém, nem quem a toma, e por isso fico junto ao poço, de mãos cruzadas, olhando as pedras lavadas, e deixo o tempo passar como quem espera o pão levedar. Doze mulheres. Doze nomes que sei de cor, na ordem em que Euricleia os disse, com a voz quebrada, atrás da porta do meu quarto: Melanto, a primeira; depois Clímene, Aglaia, Hermíone, Dorcas, Tecla, e outras seis. Algumas, criadas desde meninas. Outras, trazidas depois da partida de Emily, nos anos mais duros, quando o palácio tinha mais bocas do que mãos. Tecla, de dezesseis anos, chegara havia dois meses. Aglaia, de cinquenta, fora a ama de leite do meu filho. Doze mulheres que dormiram com o inimigo.
+É o meu jeito. Sei o que quero desde a janela, desde o sopro, desde a lamparina apagada. Mas sei também que uma decisão tomada depressa não convence ninguém. Nem quem toma. Por isso desço ao pátio e fico junto ao poço, de braços cruzados, olhando as pedras lavadas, deixando o tempo passar como quem espera o pão crescer.
 
-Quase digo *traíram.* A palavra me sobe à boca e eu a engulo, porque é a palavra que Emily usaria, a que os poetas usariam, a que o pai de Antínoo usaria se estivesse aqui, e eu sei exatamente o que é a traição: uma coisa feita com os olhos abertos, por escolha, a alguém que confia. E ao pensar nas doze não vejo escolha em nenhum rosto. Vejo medo, fome, cansaço. Vejo mulheres sozinhas numa casa cheia de homens armados fazendo o que fazem as mulheres sozinhas, sobreviver. Mas vejo também outra coisa, que me incomoda mais: um alívio nelas, quando riam das minhas desgraças, um prazer pequeno, mesquinho, humano, de quem depois de muito tempo de miséria descobre que há alguém mais miserável. Eu fui esse alguém, durante dez anos. Essa é a parte que tenho de resolver.
+O pátio cheira a cal. Nas frestas entre as pedras, onde a areia não chegou, ainda há uma linha escura. Não olho para ela.
+
+Doze mulheres.
+
+Doze nomes. Sei de cor, na ordem em que Euricleia disse ontem, com a voz quebrada, do outro lado da minha porta.
+
+Melanto, primeiro. Depois Clímene. Aglaia. Hermíone. Dorcas. Tecla. E outras seis.
+
+Algumas criadas desde meninas nesta casa. Outras trazidas depois da partida da Emily, nos anos mais duros, quando o palácio tinha mais bocas do que mãos. Tecla, de dezesseis, chegou há dois meses. Aglaia, de cinquenta, foi a ama de leite do meu filho quando o meu secou de susto, no segundo mês.
+
+Doze mulheres que dormiram com o inimigo.
+
+Quase penso *traíram.* A palavra sobe e eu engulo. É a palavra que a Emily usaria. Que os poetas usariam. Que o pai do Antínoo vai usar, quando vier buscar o corpo do filho.
+
+Eu sei o que é traição. Sei exatamente. É uma coisa feita de olhos abertos, por escolha, contra alguém que confia.
+
+Eu sei porque eu fiz. Na casa de pedra, no fim da ilha, numa noite de primavera.
+
+E quando penso nas doze, não vejo escolha em nenhum rosto. Vejo medo. Fome. Cansaço. Vejo mulheres sozinhas numa casa cheia de homens armados, fazendo o que fazem as mulheres sozinhas.
+
+Sobrevivendo.
+
+Mas vejo também outra coisa. Que me incomoda mais. Um alívio nelas, quando riam das minhas desgraças. Um prazer pequeno, mesquinho, humano, de quem, depois de muito tempo de miséria, descobre que tem alguém mais miserável.
+
+Eu fui esse alguém. Durante dez anos.
+
+Essa é a parte que eu preciso resolver.
 
 ---
 
-Mando reuni-las no pátio ao meio-dia. Escolho o lugar: o canteiro do portão, onde há dez anos uma mulher plantou doze oliveiras que ninguém regou, mortas agora, reduzidas a tocos retorcidos cobertos de casca de fruta e poeira. Mandei limpar a área, trazer doze bancos de madeira simples dispostos em semicírculo, e mandei que ninguém, nem criado, nem guarda, nem Euricleia, assistisse, e que as portas fossem fechadas. Sento-me numa cadeira de frente para elas, de vestido cinza de lã, o mais simples que tenho, sem véu, sem broche, sem coroa, o cabelo num coque baixo. Não quero parecer rainha. Quero parecer uma mulher. Elas chegam em fila, de cabeça baixa, descalças, devagar, como quem anda sobre vidro. Algumas choram baixinho, outras tremem, e Tecla, a de dezesseis anos, caminha com os olhos no chão e a boca apertada, e vejo no pescoço dela a marca arroxeada de um dedo. Sentam-se. Ninguém fala. Sinto à minha esquerda, na sombra da muralha, uma presença que não vejo e que sei quem é; pedi que não viesse, e sei que está ali, de braços cruzados, olhando. Não me viro.
+A Nísia vai embora antes do meio-dia.
 
-"Sei por que estão aqui", digo, e a minha voz, calma, ecoa nas pedras. "Sabem o que aconteceu ontem. Sabem o que dizem de vocês. Sabem o que a minha esposa, Emily, rainha de Ítaca, queria fazer. Eu a impedi." Hermíone levanta os olhos. Tem trinta anos, o rosto marcado de varíola, os olhos pretos, a boca fina, e me olha com uma expressão que não consigo ler. Pergunta por quê, e eu respondo que não sou assim, e ela diz, seca, que devia ser, que devia nos matar, que é o que fazem, o que os poetas fizeram com todas as mulheres de todas as casas: quem dorme com o inimigo morre. Digo que os poetas são homens. Ela diz que eu sou rainha. Sinto subir no peito uma coisa dura e quente e pergunto se ela quer morrer, e ela diz que não, que não pede, que apenas diz o que vai acontecer: hoje, amanhã, daqui a um ano, as pessoas lembram, vão dizer no mercado que a rainha poupou doze putas, que uma casa onde as criadas dormem com os pretendentes não merece respeito. "Eu direi o contrário", respondo. "Que uma casa onde as criadas sobrevivem é uma casa que aprendeu alguma coisa." Ela me olha em silêncio e depois desvia os olhos. "Falem", digo. "Uma por uma."
+Eu a vejo do portão. Ela não sobe ao meu quarto para se despedir; sabe que eu não abriria. Desce a estrada do porto com a capa no braço e um menino de Same carregando o baú atrás.
+
+No meio da descida, para.
+
+Vira. Olha o palácio. Olha o portão, onde eu estou parada com a mão no ferro.
+
+Não acena. Não sorri. Só olha.
+
+Depois ergue a mão até a trança. Puxa a ponta para a frente. E com dois dedos, devagar, desfaz o fio de ouro que prende a conta de âmbar.
+
+Segura a conta na palma, um instante.
+
+E deixa cair no mato da beira da estrada.
+
+Não pega de volta. Vira as costas e continua descendo, com o menino e o baú atrás, até sumir na curva das oliveiras.
+
+Fico com a mão no ferro do portão até o ferro ficar quente.
+
+Mais tarde, ao entardecer, vou mandar um menino procurar no mato. Ele vai voltar com as mãos arranhadas e nada. Ou vou eu mesma, de noite, com uma tocha, de joelhos no mato, como uma idiota.
+
+Ou não vou.
+
+Ainda não sei.
 
 ---
 
-Falam. Não é fácil, nem limpo; cada história vem com o seu peso, a sua vergonha, a sua raiva, e eu escuto sem interromper, sem julgar, sem tentar consertar, durante quase três horas. As mulheres falam baixo, hesitando, tropeçando nas palavras. Algumas choram. Clímene ri um riso quebrado, desolado, que dá medo. Dorcas, que tem a minha idade, fala tão calma, tão fria, que parece contar a vida de uma estranha. Ouço que uma foi levada à força na primeira noite, aos catorze anos, por três homens, e que depois nunca mais teve coragem de dizer não, e com o tempo aprendeu a escolher, entre eles, o menos cruel, e a deitar-se com ele antes que outro a pegasse. Ouço que outra se entregou por vontade a um rapaz de Zacinto, bonito e gentil, que lhe prometeu casamento, e que quando ele morreu ontem, com uma flecha no peito, ela chorou a noite inteira escondida na despensa. Ouço que uma terceira vendeu informações, me espiou, repetiu o que eu dizia a Euricleia, ao conselho, às visitas, por dinheiro para enterrar a mãe. Ouço que Tecla foi vendida ao Antínoo pela própria tia, e ele a recebeu como um presente e a manteve na cama dois meses, e ela subia todas as manhãs ao telhado para vomitar. Ouço que Aglaia, a mais velha, a ama do meu filho, não fez nada, viu tudo, soube de tudo e calou, e todas as noites, ao fechar a porta do quarto, orava pedindo perdão sem saber a quem. Ouço, em doze vozes, a mesma coisa em doze tons: a solidão, o medo, a vergonha, o cansaço, o hábito, o alívio, a culpa.
+Mando reuni-las no pátio ao meio-dia.
 
-E eu, sentada, com as mãos no colo, sinto uma coisa mudar dentro de mim, pouco a pouco. Não é perdão; não posso perdoar o que foi feito contra mim. É um reconhecimento doloroso, quase físico, de que aquelas doze mulheres e eu somos a mesma coisa. Doze lamparinas, cada uma acesa durante dez anos no seu canto, por razões diferentes.
+Escolho o lugar: o canteiro do portão, onde, há dez anos, uma mulher plantou doze mudas de oliveira que ninguém regou. Estão mortas. Secas. Reduzidas a tocos retorcidos cobertos de casca de fruta e de poeira. Uma delas, eu sei porque contei, ainda tem duas folhas verdes num galho do tamanho de um dedo.
 
-Quando a última termina, o sol começa a descer. Fico em silêncio por um longo tempo. O pátio está imóvel, uma abelha zumbe, ao longe, na cozinha, uma panela cai, o vento traz cheiro de mar. "Agora vou dizer o que decidi." Doze rostos se levantam. "Vocês cometeram erros. Alguns graves. Alguns que não posso perdoar. Uma me espionou. Duas riram de mim. Uma se apaixonou por um homem que queria me humilhar. Todas fizeram coisas que eu não faria. Mas todas, sem exceção, estavam sozinhas. Eu também estava. Só que eu tinha um filho, um nome, uma casa, e acima de tudo uma razão para não ceder: era a esposa de alguém que ainda podia voltar. Vocês só tinham o corpo, e o usaram para sobreviver. Eu poderia ter feito o mesmo. Não fiz. Mas não por ser melhor. Por ter tido mais sorte." Tecla solta um soluço. Hermíone murmura que então eu as perdoo, e eu digo que não: que não vou puni-las, não por ter perdoado, mas por não ter o direito.
+Mandei limpar a área. Mandei trazer doze bancos de madeira simples, dispostos em semicírculo. Mandei que ninguém assistisse. Nem criado, nem guarda, nem Euricleia. Que as portas fossem fechadas.
 
-Explico. Todas ficarão no palácio por mais um mês, trabalhando como sempre, com comida, abrigo, proteção; ninguém as tocará, ninguém as ofenderá, ninguém lhes dirá uma palavra, e quem o fizer responderá a mim. Ao fim do mês, cada uma decidirá. Quem quiser ficar, ficará como criada paga, com salário, folga, quarto próprio e o direito, que nenhuma teve até hoje, de dizer não. Quem quiser partir, partirá com uma bolsa de prata suficiente para um ano e uma carta minha para uma mulher de Same chamada Nísia, que tem casa grande, jardim enorme e necessidade permanente de mãos, e dará trabalho, teto e respeito, não por favor, por contrato. Quem quiser outra coisa, dirá, e verei o que posso fazer. Há uma única condição: antes de escolher, todas passarão uma semana no salão, limpando. Hermíone franze a testa: limpando o quê? "O sangue." O pátio prende a respiração. Digo depressa que não é castigo, é memória: aquele salão é delas tanto quanto meu, foi onde viveram e sofreram, e quero que o lavem com as próprias mãos, para saberem o que foi e para saberem que acabou. Dorcas levanta a cabeça devagar e diz que aceita. Outra aceita, e uma terceira, e uma a uma as doze aceitam, algumas chorando, outras de cabeça erguida, e Tecla, que não diz nada, assente com os olhos fixos nos meus, e uma lágrima desce silenciosa pela bochecha. "Obrigada." "Não agradeça. Não fiz um favor. Fiz o mínimo."
+Sento numa cadeira de frente para elas.
+
+Vestido cinza de lã, o mais simples que eu tenho. Sem véu. Sem broche. Sem coroa. O cabelo num coque baixo, preso com um grampo só. Não quero parecer rainha. Quero parecer uma mulher.
+
+Elas chegam em fila. Cabeça baixa. Descalças. Devagar, como quem anda sobre vidro quebrado.
+
+Algumas choram baixinho. Outras tremem. A Tecla, a de dezesseis, vem com os olhos no chão e a boca apertada. No pescoço dela, a marca arroxeada de um dedo. Do polegar. De quem segura uma moça pelo pescoço para ela não se mexer.
+
+Sentam. Ninguém fala.
+
+Sinto à minha esquerda, na sombra da muralha, uma presença que eu não vejo.
+
+Sei quem é.
+
+Pedi que não viesse. Mandei dizer pela ama. E sei que ela está ali, encostada na pedra, de braços cruzados, olhando. Sinto o olhar dela na minha nuca como se sente o sol.
+
+Não me viro.
 
 ---
 
-Quando elas se levantam e saem em fila, de cabeça baixa, uma fica. Melanto. Sentada no banco, de mãos cruzadas, o rosto pálido, esperando que as outras saiam, e quando o pátio fica vazio levanta-se, vem até mim e se ajoelha na terra diante da cadeira. Mando que se levante e ela diz que não merece, e eu repito, e ela se levanta e fica de pé, os braços caídos, os olhos baixos. "Eu contava tudo ao Antínoo. O que a senhora dizia. Contava da lamparina. Ele ria." Digo que sei. "Eu ria também." O silêncio que se segue é comprido, e olho aquela menina de dezoito anos, de trança preta, de olhos assustados, e pergunto por quê. "Porque era mais fácil." "Que o quê?" "Que chorar." Vejo a marca no pescoço dela, a curva da clavícula, a trança desfeita; vejo a menina que chegou aos doze anos com um xale rasgado, faminta, que Euricleia lavou e vestiu e alimentou, e a mulher que aos catorze aprendeu o que é ser tocada sem querer. Digo, devagar: "Sabe o que pensei a primeira vez que ouvi o Antínoo rir da lamparina? Que eu era uma tola, que acender uma luz para uma mulher que nunca ia voltar era a coisa mais ridícula que uma pessoa podia fazer. Mas depois pensei outra coisa: que o ridículo é só o nome que dão às coisas que a gente faz por amor, quando quem olha não ama." Ela me olha, atônita, e pergunta se ainda acendo. Acendo. Mesmo agora. Por quê? "Porque aprendi uma coisa. A gente não acende a lamparina para quem não vem. Acende para quem já chegou, e ainda não sabe que pode entrar."
+— Vocês sabem por que estão aqui — digo.
 
-A moça fica imóvel, com os olhos cheios de lágrimas, sem saber o que fazer com aquela frase. Diz, num sussurro, que quer ficar. Pergunta se pode, e como criada, e eu digo que como o que quiser, e ela diz que queria aprender o que eu faço, contar, escrever, ler os papiros, que queria ser útil, não como criada: como a senhora. Penso numa menina de dezesseis anos num navio, com um véu torto; penso em quanto tempo levei para aprender o que sei, e na solidão, e em Euricleia, que me ensinou. Digo que leva tempo, que é difícil, que vai doer, e ela responde, a cada um, que tem tempo, que aguenta, que já dói. Sorrio, levanto-me e estendo a mão, e ela a olha, hesitante, e a aperta com os dedos trêmulos. "Comece amanhã, na sala do conselho, às seis. E quando enterrarem o Antínoo, você vai à cova. Vai dizer o que precisa dizer. Não por ele. Por você." Ela assente sem palavras e sai do pátio de cabeça erguida, os ombros retos, e fico olhando até a porta se fechar.
+A minha voz, calma, bate nas pedras e volta.
+
+— Sabem o que aconteceu ontem. Sabem o que dizem de vocês. Sabem o que a minha esposa, Emily, rainha de Ítaca, queria fazer.
+
+Pausa.
+
+— Eu a impedi.
+
+A Hermíone levanta os olhos.
+
+Tem trinta anos. O rosto marcado de varíola, os olhos pretos, a boca fina. Me olha com uma expressão que eu não consigo ler.
+
+— Por quê? — pergunta.
+
+— Porque eu não sou assim.
+
+— Mas devia ser.
+
+— Como?
+
+— Devia nos matar. — A voz dela é seca como pão de três dias. — É o que fazem. É o que os poetas fizeram com todas as mulheres de todas as casas. Quem dorme com o inimigo morre.
+
+— Os poetas são homens.
+
+— E a senhora é rainha.
+
+Sinto subir no peito uma coisa dura e quente.
+
+— Você quer morrer, Hermíone?
+
+— Não.
+
+— Então por que está me pedindo?
+
+— Eu não estou pedindo. — Ela dá de ombros. — Estou dizendo o que vai acontecer. Hoje, amanhã, daqui a um ano. As pessoas lembram. Vão dizer no mercado que a rainha de Ítaca poupou doze putas. Que uma casa onde as criadas dormem com os pretendentes não merece respeito.
+
+— Eles vão dizer.
+
+— E a senhora?
+
+— Eu vou dizer o contrário.
+
+— O quê?
+
+— Que uma casa onde as criadas sobrevivem é uma casa que aprendeu alguma coisa.
+
+Ela me olha em silêncio. Depois desvia.
+
+— Falem — digo. — Uma por uma.
 
 ---
 
-Não me viro quando ouço os passos. Sei quem é pela cadência, pela hesitação, pelo peso: ela vem devagar, da sombra da muralha, arrastando a perna ferida, e para a três passos atrás de mim, e fica ali em silêncio por um longo momento, e sinto a respiração dela, curta, cuidadosa, o cheiro de linho e de sabão. Digo que assistiu, que pedi que não, e ela diz que sabe; que precisava saber que eu consigo. "O quê?" "Governar. Sem mim." Olho as oliveiras mortas, as pedras lavadas, o céu cor de cobre, e digo que é o que faço há dez anos e que não preciso de aprovação. "Eu sei", diz ela, dando um passo. "Mas queria que soubesse que você fez uma coisa que eu nunca saberia fazer. Perdoar sem esquecer."
+Falam.
 
-Viro-me. Está de pé, a um passo, de cabeça baixa, as mãos cruzadas à frente como criada, o rosto marcado, os olhos vermelhos, e há nela uma coisa que não vi na noite do alpendre: uma humildade verdadeira, sem teatro, sem nada pedindo. Digo que não perdoei. Ainda não. Ela diz que mas comecei, e que é mais do que merecia, e que podia ter enforcado as doze e não enforcou, porque eu a impedi, e que precisa agradecer. "Então agradeça fazendo uma coisa. Limpe o salão comigo." O rosto dela muda, num espanto rápido e depois numa coisa quente, trêmula. Agora? Com as criadas? "Com todas. Você, Emily. Com um balde. De joelhos. Como elas." O canto da boca dela se mexe. "Sim, senhora." "Não me chame de senhora." "Sim, rainha." "Nem de rainha." Ela pergunta como, então, e penso, e o vento sopra, e uma folha seca cai no meu ombro, e olho aquela mulher suja, ferida, de cabelo curto, olhos claros, uma cicatriz nova no queixo. "Pelo nome. Como chamava na segunda semana." Ela diz, baixinho, como quem prova uma palavra antiga: "Anne." Peço de novo. "Anne." Sinto subir da garganta aos olhos uma coisa que não quero deixar sair, e digo: "Vamos limpar."
+Não é fácil. Nem limpo. Cada história vem com o seu peso, a sua vergonha, a sua raiva. E eu escuto sem interromper, sem julgar, sem tentar consertar, durante quase três horas.
 
-Atravesso o pátio e ela vem atrás, a um passo. Entramos no salão, onde doze mulheres de joelhos esfregam as pedras com areia e água, em silêncio, o cheiro de ferro ainda forte, a luz das janelas altas dourando o pó. Pego um balde e uma escova e me ajoelho ao lado de Hermíone, que levanta a cabeça, surpresa. Emily, atrás de mim, hesita um momento, depois pega outro balde e se ajoelha ao lado de Tecla. Esfregamos. Durante horas, sem palavras, as quinze, com os joelhos na pedra, as mãos na água, as costas curvadas, os braços ardendo, e quando a noite cai e uma criada traz as tochas o chão está limpo. Não há mais mancha; só um tom de pedra mais claro, mais liso, onde a esfregação foi mais forte, uma marca quase invisível que nunca vai sumir de todo. Fico de pé no meio do salão, com os braços doloridos, olhando as pedras. Digo que está bom, e Hermíone, secando o suor com a manga, concorda, e mando que vão, e elas saem uma a uma, e cada uma, ao passar, me olha, e vejo nos olhos delas uma coisa nova: não gratidão, não medo, uma cumplicidade silenciosa, de quem dividiu uma tarefa.
+O sol anda no céu. A sombra da muralha anda no chão. Atravessa o canteiro morto, os bancos, os meus pés.
 
-Quando a última sai, ficamos as duas no salão vazio, sob as tochas. Emily diz, baixinho, que sou boa em fazer as pessoas mudarem. Digo que não faço nada, só escuto. "É o que eu digo", responde. "Você devia aprender." "Estou tentando." Sorrio, e ela sorri também, um sorriso pequeno, cansado, verdadeiro. Digo que vá dormir. Ela pergunta onde. Penso na porta do salão, na escada, no corredor, no estábulo no fundo do pátio, na cama do quarto do menino. "No quarto do Timóteo. Por enquanto." Ela assente sem protesto. "Boa noite, Anne." "Boa noite, Emily."
+As mulheres falam baixo, hesitando, tropeçando nas palavras. Algumas choram. A Clímene ri, um riso quebrado, desolado, que dá medo. A Dorcas, que tem a minha idade, fala tão calma, tão fria, que parece contar a vida de uma estranha.
 
-Sai. Fico sozinha no salão, olhando o chão limpo, com as mãos vermelhas e as costas em fogo, pensando nas doze mulheres, em Melanto, que quer aprender a ler, e numa frase que disse sem pensar e que só agora, no silêncio, ouço direito: *a gente não acende a lamparina para quem não vem. Acende para quem já chegou, e ainda não sabe que pode entrar.* Subo ao quarto. Encontro a lamparina apagada no gancho. Encho-a de azeite, corto o pavio, sem pressa.
+Ouço que uma delas foi levada à força na primeira noite, aos catorze anos, por três homens. Que depois nunca mais teve coragem de dizer não. Que com o tempo aprendeu a escolher, entre eles, o menos cruel. E a se deitar com ele antes que outro a pegasse.
 
-Não acendo. Ainda não. Mas, pela primeira vez, sei para quem.
+Ouço que outra se deu por vontade a um rapaz de Zacinto, bonito e gentil, que prometeu casamento. Que ela acreditou. E que, quando ele morreu ontem, com uma flecha no peito, ela chorou a noite inteira escondida na despensa, com a cara num saco de farinha, para ninguém ouvir.
+
+Ouço que uma terceira vendeu informação. Me espiou. Repetiu o que eu dizia à Euricleia, ao conselho, às visitas. Por dinheiro. Para enterrar a mãe.
+
+Ouço que a Tecla foi vendida ao Antínoo pela própria tia. Que ele a recebeu como presente. Que a manteve na cama dele dois meses. E que ela subia ao telhado todas as manhãs para vomitar, e voltava, e ninguém perguntava por quê.
+
+Ouço que a Aglaia, a mais velha, a ama do meu filho, não fez nada. Viu tudo. Soube de tudo. E calou. E todas as noites, ao fechar a porta do quarto, rezava pedindo perdão sem saber a quem.
+
+Ouço, em doze vozes, a mesma coisa em doze tons.
+
+A solidão. O medo. A vergonha. O cansaço. O hábito. O alívio. A culpa.
+
+E eu, sentada, com as mãos no colo, sinto uma coisa mudar dentro de mim. Pouco a pouco. Como o sol andando na pedra.
+
+Não é perdão. Eu não posso perdoar o que foi feito contra mim.
+
+É um reconhecimento. Doído. Quase físico.
+
+Aquelas doze mulheres e eu somos a mesma coisa.
+
+Doze lamparinas. Cada uma acesa por dez anos no seu canto, por razões diferentes, para alguém que não vinha.
+
+---
+
+Quando a última termina, o sol já começa a descer.
+
+Fico calada muito tempo. O pátio está imóvel. Uma abelha zumbe em volta do toco de oliveira que ainda tem duas folhas. Longe, na cozinha, uma panela cai.
+
+— Agora eu vou dizer o que decidi.
+
+Doze rostos se levantam.
+
+— Vocês cometeram erros. Alguns graves. Alguns que eu não posso perdoar. Uma de vocês me espionou. Duas riram de mim na minha cara. Uma se apaixonou por um homem que queria me humilhar. Todas fizeram coisas que eu não faria.
+
+Pausa.
+
+— Mas todas, sem exceção, estavam sozinhas. — Olho cada uma. — Eu também estava.
+
+A Tecla solta um soluço.
+
+— Só que eu tinha um filho. Um nome. Uma casa. E acima de tudo uma razão para não ceder: eu era a esposa de alguém que ainda podia voltar. Vocês, não. Vocês só tinham o corpo. E usaram para sobreviver.
+
+Respiro.
+
+— Eu podia ter feito o mesmo. — A minha voz não treme. Eu não deixo. — Não fiz. Não porque eu seja melhor. Porque eu tive mais sorte.
+
+E sinto, na sombra da muralha, a presença à minha esquerda ficar completamente imóvel.
+
+Eu fiz. Uma vez. Uma noite. Ela não sabe. Ou sabe e não sabe, como eu soube dela durante três dias.
+
+Mas eu disse em voz alta, na frente de doze mulheres, que não fiz.
+
+E agora a mentira está ali, no pátio, entre o canteiro morto e a muralha, e eu sei que ela vai ter que ser paga um dia. Com juros.
+
+A Hermíone me olha, com os olhos pretos arregalados.
+
+— A senhora está dizendo que nos perdoa — murmura.
+
+— Não.
+
+— Então...
+
+— Estou dizendo que não vou castigar vocês. Não porque perdoei. Porque não tenho o direito.
+
+---
+
+Explico.
+
+Todas vão ficar no palácio mais um mês, trabalhando como sempre, com comida, abrigo, proteção. Durante esse mês, ninguém vai tocar nelas. Ninguém vai ofender. Ninguém vai dizer uma palavra. Quem fizer isso, responde a mim.
+
+No fim do mês, cada uma decide.
+
+Quem quiser ficar, fica. Como criada paga. Com salário. Com folga. Com um quarto próprio. Com o direito, que nenhuma teve até hoje, de dizer não.
+
+Quem quiser ir, vai. Com uma bolsa de prata que dá para um ano. E com uma carta minha, para uma mulher de Same chamada Nísia, que tem uma casa grande, um jardim enorme e precisa sempre de mãos. Ela vai dar trabalho, teto e respeito. Não por favor. Por contrato.
+
+Escrevo a carta mais tarde. Leva três tentativas. Na primeira eu escrevo *obrigada.* Na segunda, *desculpa.* Na terceira, só os termos do contrato, e a minha assinatura, e mais nada.
+
+Quem quiser outra coisa, diz. Eu vejo o que posso fazer.
+
+Ninguém fala.
+
+— Há uma condição só — digo. — Todas vocês, sem exceção, antes de escolher, vão passar uma semana no salão. Limpando.
+
+A Hermíone franze a testa.
+
+— Limpando o quê?
+
+— O sangue.
+
+O pátio inteiro prende a respiração.
+
+— Não como castigo — digo, depressa. — Como memória. Aquele salão é de vocês tanto quanto meu. Foi lá que vocês viveram e sofreram. Eu quero que vocês lavem com as próprias mãos. Para saber o que foi. E para saber que acabou.
+
+Silêncio.
+
+A Dorcas, a da minha idade, de rosto liso e olhos secos, levanta a cabeça devagar.
+
+— Eu aceito.
+
+— Eu também — diz outra.
+
+— Eu.
+
+Uma por uma, as doze aceitam. Algumas chorando. Outras de cabeça erguida. A Tecla não diz nada. Só assente, com os olhos fixos nos meus. E uma lágrima desce, silenciosa, pela bochecha, por cima da marca do dedo no pescoço.
+
+— Obrigada — murmura.
+
+— Não agradece.
+
+— Mas...
+
+— Não agradece. — Sorrio, triste. — Eu não fiz um favor. Eu fiz o mínimo.
+
+---
+
+Quando elas levantam e saem em fila, de cabeça baixa, uma fica.
+
+Melanto.
+
+Sentada no banco, de mãos cruzadas, o rosto pálido, esperando as outras saírem. Quando o pátio esvazia, ela levanta devagar, vem até mim e se ajoelha na terra, na frente da cadeira.
+
+— Senhora.
+
+— Levanta.
+
+— Não.
+
+— Melanto.
+
+— Eu não mereço.
+
+— Levanta.
+
+Ela levanta. Fica de pé, com os braços caídos e os olhos no chão.
+
+— Eu preciso dizer uma coisa.
+
+— Diz.
+
+— Eu contava tudo ao Antínoo. O que a senhora dizia. — Ela engole. — Contava da lamparina.
+
+— Eu sei.
+
+— Ele ria.
+
+— Eu sei.
+
+— E eu ria também.
+
+O silêncio que vem depois é comprido.
+
+Olho para ela. Aquela menina de dezoito anos, de trança preta, de olhos assustados. A que chegou aos doze com um xale rasgado e fome nos olhos, que a Euricleia lavou, vestiu e alimentou. A que aos catorze aprendeu o que é ser tocada sem querer.
+
+— Por quê? — pergunto.
+
+— Porque era mais fácil.
+
+— Que o quê?
+
+— Que chorar.
+
+Fico calada.
+
+Vejo a marca no pescoço dela, debaixo da gola. Igual à da Tecla. Vejo a curva da clavícula. A trança desfeita.
+
+— Sabe o que eu pensei — digo, devagar — a primeira vez que soube que o Antínoo ria da lamparina?
+
+— Não, senhora.
+
+— Que eu era uma tola. Que acender uma luz para uma mulher que nunca ia voltar era a coisa mais ridícula que uma pessoa podia fazer.
+
+Respiro.
+
+— Mas depois pensei outra coisa. Que o ridículo é só o nome que dão às coisas que a gente faz por amor, quando quem está olhando não ama ninguém.
+
+Ela me olha, espantada.
+
+— A senhora ainda acende?
+
+Penso na janela escura. No sopro. No bronze quente nas palmas. No vulto no fundo do pátio levantando a cabeça.
+
+— Apaguei hoje de manhã — digo.
+
+— Por quê?
+
+— Porque aprendi uma coisa. — E é só quando digo que eu aprendo. — A gente não acende a lamparina para quem não vem. A gente acende para quem já chegou e ainda não sabe que pode entrar.
+
+A moça fica imóvel, com os olhos cheios d'água, sem saber o que fazer com a frase.
+
+Eu também não sei.
+
+Eu disse que apaguei. E acabei de dizer para que serve acender.
+
+---
+
+— Eu quero ficar — sussurra Melanto, por fim.
+
+— Eu sei.
+
+— Posso?
+
+— Pode.
+
+— Como criada?
+
+— Como o que você quiser.
+
+— Eu queria aprender. — Ela levanta os olhos. — O que a senhora faz. Contar. Escrever. Ler os papiros. Eu queria ser útil.
+
+— Você é.
+
+— Não como criada.
+
+— Então como o quê?
+
+— Como a senhora.
+
+Olho para ela. Penso numa menina de dezesseis anos, num navio, com um véu torto. Penso em quanto tempo levei para aprender o que sei. Penso na solidão. Penso na Euricleia, que me ensinou tudo sem ensinar nada.
+
+— Isso leva tempo — digo.
+
+— Eu tenho.
+
+— É difícil.
+
+— Eu aguento.
+
+— Vai doer.
+
+— Já dói.
+
+Sorrio. Levanto devagar e estendo a mão. Ela olha a mão, hesitando. Depois, com os dedos tremendo, aperta.
+
+— Começa amanhã. Na sala do conselho. Ao amanhecer. Não se atrasa.
+
+— Não atraso.
+
+— E, Melanto.
+
+— Sim?
+
+— Quando enterrarem o Antínoo, você vai à cova.
+
+O rosto dela se contrai.
+
+— Eu...
+
+— Vai. — Aperto a mão dela. — E vai dizer o que precisa dizer. Não por ele. Por você.
+
+Ela assente sem palavras. Larga a minha mão. E sai do pátio de cabeça erguida, com os ombros retos.
+
+Fico olhando até a porta fechar.
+
+---
+
+Não me viro quando ouço os passos.
+
+Sei quem é. Pela cadência. Pela hesitação. Pelo peso. Ela vem devagar, da sombra da muralha, arrastando a perna ferida, e para a três passos atrás de mim.
+
+Fica ali em silêncio por um longo momento.
+
+Sinto a respiração dela, curta, cuidadosa. Sinto o cheiro de linho e de sabão. Sinto o calor dela nas minhas costas, a três passos, como se sente uma fogueira acesa num quarto ao lado.
+
+— Você assistiu — digo.
+
+— Assisti.
+
+— Pedi que não.
+
+— Eu sei.
+
+— Por quê?
+
+— Porque eu precisava saber.
+
+— O quê?
+
+— Que você consegue.
+
+— O quê?
+
+— Governar. — A voz dela é baixa, rouca. — Sem mim.
+
+Fico calada. Olho as oliveiras mortas. As pedras lavadas. O céu cor de cobre.
+
+— É o que eu faço há dez anos — digo.
+
+— Eu sei.
+
+— Não preciso de aprovação.
+
+— Eu sei. — Ela dá um passo. — Mas queria que você soubesse. Que você fez uma coisa que eu nunca ia saber fazer.
+
+— O quê?
+
+— Perdoar sem esquecer.
+
+E a outra coisa que ela não diz, que fica pendurada entre nós como fruta madura que ninguém colhe: *você disse que nunca fez.*
+
+Ela ouviu. Eu sei que ouviu. *Eu podia ter feito o mesmo. Não fiz.*
+
+E não pergunta.
+
+---
+
+Me viro.
+
+Ela está de pé, a um passo, de cabeça baixa, com as mãos cruzadas na frente do corpo, como uma criada. O rosto marcado. Os olhos vermelhos. A marca dos meus dedos ainda na bochecha, amarelando.
+
+Mas há nela uma coisa que eu não vi ontem, no alpendre. Uma humildade de verdade. Sem teatro. Sem nada pedindo.
+
+— Eu não perdoei — digo.
+
+— Não?
+
+— Ainda não.
+
+— Mas começou.
+
+— Talvez.
+
+— É mais do que eu merecia.
+
+— Eu sei.
+
+— Eu ia enforcar as doze.
+
+— Ia.
+
+— Não enforquei.
+
+— Porque eu impedi.
+
+— Porque você me impediu. — Ela levanta os olhos. — Eu preciso agradecer.
+
+— Não precisa.
+
+— Preciso.
+
+— Então agradece fazendo uma coisa.
+
+— O quê?
+
+— Limpa o salão comigo.
+
+O rosto dela muda. Uma expressão rápida, de espanto. E depois uma coisa quente, trêmula, que ela tenta esconder e não consegue.
+
+— Agora?
+
+— Agora.
+
+— Com as criadas?
+
+— Com todas.
+
+— Eu...
+
+— Você, Emily. — Sorrio de lado. — Com um balde. De joelhos. Como elas.
+
+Ela me olha, atônita, um longo momento.
+
+E depois, devagar, o canto da boca dela se mexe.
+
+— Sim, senhora.
+
+— Não me chama de senhora.
+
+— Sim, rainha.
+
+— Nem de rainha.
+
+— Então como?
+
+Penso.
+
+O vento sopra. Uma folha seca cai no meu ombro. Olho aquela mulher de pé, suja, ferida, de cabelo curto, de olhos claros, com uma cicatriz nova no queixo e a marca da minha mão no rosto.
+
+— Pelo nome — digo. — Como você me chamava na segunda semana.
+
+— Na segunda semana eu não te chamava de nada. Eu tinha medo de você.
+
+— Na terceira, então.
+
+Ela engole.
+
+— Anne — diz.
+
+Baixinho. Como quem prova uma palavra antiga e não sabe se ainda está boa.
+
+— Isso.
+
+— Anne.
+
+— De novo.
+
+— Anne.
+
+Uma coisa me sobe da garganta aos olhos. Uma coisa que eu não quero deixar sair.
+
+— Vamos — digo.
+
+— Para onde?
+
+— Limpar.
+
+---
+
+Atravesso o pátio. Ela vem atrás, a um passo.
+
+Entramos no salão, onde doze mulheres, de joelhos, esfregam as pedras com areia e água, em silêncio. O cheiro de ferro ainda é forte. A luz das janelas altas doura a poeira no ar.
+
+Pego um balde. Uma escova. Me ajoelho ao lado da Hermíone, que levanta a cabeça, espantada.
+
+A Emily, atrás de mim, hesita um momento.
+
+Depois pega outro balde e se ajoelha ao lado da Tecla.
+
+Esfregamos.
+
+Horas. Sem palavra. As catorze, de joelhos na pedra, com as mãos na água e as costas curvadas e os braços ardendo. A água dos baldes fica rosa, e depois marrom, e a gente troca, e fica rosa de novo.
+
+Não olho para ela.
+
+Mas sei onde ela está o tempo inteiro. Sei pelo barulho da escova dela, que é diferente das outras: mais forte, mais curto, de quem esfrega convés de navio. Sei pelo cheiro. Sei porque, quando ela muda de lugar, o meu corpo inteiro muda de posição para continuar sabendo.
+
+Uma vez, as nossas mãos vão buscar água no mesmo balde.
+
+Os dedos dela encostam nos meus, debaixo da água rosa.
+
+Ninguém tira a mão.
+
+Um segundo. Dois. A água morna. Os dedos dela ásperos, em carne viva, encostados nos meus. Ninguém olha. As doze esfregam. A luz dourada desce pela parede.
+
+Três.
+
+Tiro a mão. Devagar.
+
+E esfrego mais forte.
+
+---
+
+Quando a noite cai e uma criada traz as tochas, o chão está limpo.
+
+Não há mais mancha. Só um tom de pedra mais claro, mais liso, onde a escova foi mais forte. Uma marca quase invisível que nunca vai sumir de todo.
+
+Fico de pé no meio do salão com os braços doendo, olhando as pedras.
+
+— Está bom — digo.
+
+— Está — diz a Hermíone, do meu lado, secando o suor com a manga.
+
+— Podem ir.
+
+Saem, uma por uma. Cada uma, ao passar, me olha. E eu vejo nos olhos delas uma coisa nova. Não é gratidão. Não é medo. É uma cumplicidade calada, de quem dividiu uma tarefa feia.
+
+Quando a última sai, ficamos as duas no salão vazio, debaixo das tochas.
+
+— Você é boa nisso — diz a Emily, baixinho.
+
+— Em quê?
+
+— Em fazer as pessoas mudarem.
+
+— Eu não faço nada. Só escuto.
+
+— É o que eu estou dizendo.
+
+— Você devia aprender.
+
+— Estou tentando.
+
+Sorrio. Ela sorri também. Um sorriso pequeno, cansado, verdadeiro.
+
+E fica um silêncio. Diferente dos outros. Não é o silêncio do pátio, nem o do alpendre, nem o da porta. É um silêncio de duas mulheres sozinhas num salão à noite, com as mãos vermelhas de esfregar, a quatro passos uma da outra, e nenhuma das duas sabendo o que fazer com os quatro passos.
+
+— Vai dormir — digo. — Está escuro.
+
+— Onde?
+
+Penso. Olho a porta do salão. A escada. O corredor. O estábulo no fundo do pátio. A cama do quarto do menino.
+
+A minha cama.
+
+— No quarto do Timóteo — digo. — Por enquanto.
+
+Ela assente. Sem protestar.
+
+— Boa noite, Anne.
+
+— Boa noite, Emily.
+
+Sai.
+
+---
+
+Fico sozinha no salão, olhando o chão limpo, com as mãos vermelhas e as costas em fogo.
+
+Penso nas doze mulheres. Na Melanto, que quer aprender a ler. Numa conta de âmbar caída no mato da estrada do porto.
+
+E numa frase que eu disse sem pensar e que só agora, no silêncio, escuto direito:
+
+*A gente não acende a lamparina para quem não vem. A gente acende para quem já chegou e ainda não sabe que pode entrar.*
+
+Subo ao quarto.
+
+A lamparina está no gancho. Apagada. Fria.
+
+Encho de azeite. Corto o pavio. Sem pressa. Com as mãos que ainda cheiram a sabão e a pedra molhada e, por baixo, se eu levar ao rosto, a outra coisa. A coisa do balde.
+
+Levo ao rosto.
+
+Não acendo.
+
+Ainda não.
+
+Mas, pela primeira vez em dez anos, eu sei para quem.
+
+E sei que ela está a dois andares de distância, num colchão estreito, com os pés pendurados para fora, no quarto do nosso filho, acordada, olhando a minha janela.
+
+Que olhe.
+
+Que espere uma noite.
+
+Eu esperei três mil e seiscentas.
