@@ -25,6 +25,34 @@ Revisar os capítulos de `Itaca-faltam-revisar.md` no mesmo padrão dos já revi
 7. **Variedade:** não reciclar gestos e callbacks. Evitar "quarenta e um degraus", "duas cabras na ponte", "riso com a mão na boca", "trigésimo / trigésimo nono" (o cap. 32, "A pergunta", ainda usa esse último).
 8. **Entrega:** arquivo .md, com a contagem de palavras de cada capítulo e opções de direção no fim.
 
+## Regra extra de diálogo (a mais importante agora)
+- Nenhuma fala de diálogo com menos de 12 palavras, a não ser um "soco" proposital. No máximo 3 desses por capítulo.
+- Cada fala tem de ter corpo: uma provocação, um detalhe, um desvio, uma imagem. Nunca só "Sim.", "Eu sei.", "Por quê?", "Não.".
+- Isso vale para os capítulos que faltam e também para os já revisados (arquivo `Itaca-revisados-ate-cap31.md`), que ainda têm falas curtas soltas.
+
+**Falas curtas (até 12 palavras) / total de falas nos já revisados.** Nomes pelos títulos do arquivo de revisados:
+
+| Capítulo | Curtas / total |
+|---|---|
+| Febre | 30 / 95 |
+| Quarenta navios | 26 / 92 |
+| O ano de Circe | 21 / 60 |
+| Os pés | 20 / 50 |
+| Cedro | 20 / 73 |
+| As pereiras | 20 / 84 |
+| A cama de oliveira | 18 / 65 |
+| A pocilga | 17 / 57 |
+| O arco | 16 / 64 |
+| As doze criadas | 16 / 62 |
+| O peso da água | 15 / 38 |
+| A casa de pedra | 15 / 46 |
+| A lavoura de sal | 15 / 74 |
+| Ninguém | 14 / 65 |
+| O ventre do cavalo | 14 / 27 |
+| O que eu fiz quando você estava morta | 14 / 58 |
+
+Os demais revisados têm entre 7 e 13 falas curtas. Corrigir na ordem da tabela, só alongando as falas, sem mexer no resto do texto.
+
 ## Situação de cada capítulo que falta
 - **30. O forno de pão** (3.990): precisa de cerca de 1.100 palavras com cena nova de desejo ou tensão, e de diálogos refeitos.
 - **Epílogo, A primeira carta** (3.985): precisa de cerca de 1.100 palavras.
