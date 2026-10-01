@@ -2,58 +2,368 @@
 
 *Anne*
 
-Na véspera do concurso, deitada de lado, com a lamparina acesa e o tronco da oliveira às minhas costas, eu conto os anos.
+Volto da porta dela, deito de lado com a lamparina acesa e o tronco da oliveira nas costas, e conto os anos.
 
-Não é o que devia fazer. Devia dormir, porque amanhã o dia será comprido; devia planejar, porque há cento e oito homens a humilhar e uma mulher a confrontar; devia descansar, porque a minha cara amanhã tem de ser de pedra. Mas o corpo, quando não consegue parar, faz contas, e a conta que me vem nesta noite não é a dos porcos nem a dos sacos de cevada. É a dos anos. Dez. Um por um, como quem passa o dedo numa linha de rosário, e a cada conta uma coisa que doeu.
+Não é o que eu devia fazer. Devia dormir, porque amanhã o dia é comprido. Devia planejar, porque há cento e oito homens para humilhar e uma mulher para encurralar. Devia descansar, porque amanhã a minha cara tem que ser de pedra o dia inteiro, e pedra cansada racha.
 
----
+Mas o corpo, quando não consegue parar, faz contas. E a conta que me vem esta noite não é a dos porcos nem a dos sacos de cevada.
 
-O primeiro foi de gelo, e não de frio, de pavor. Eu acordava de madrugada com o coração aos pulos e a mão direita esticada sobre o lençol, procurando um corpo que não estava lá, e levantava sem pensar e ia ao berço, e ficava olhando um menino de três meses dormir, tão pequeno, tão vermelho, tão inteiramente dependente de mim que o medo me dobrava ao meio. Eu, que passara a vida sem precisar de ninguém, tinha agora um pedaço de gente que morria se eu errasse uma vez só, e errei muitas. Deixei-o cair da cama, e ele chorou tanto que fiquei duas horas sentada no chão com ele no colo, chorando junto, pedindo perdão a um bebê que não entendia a língua. Dei-lhe leite demais, depois de menos. Esqueci de trocá-lo. Esqueci o nome da erva que a parteira me receitara para as cólicas. Euricleia, que criara Emily e mais uma dúzia de meninos da ilha, aparecia ao meu lado de avental, tirava a criança dos meus braços sem dizer uma palavra, examinava-a de alto a baixo e a devolvia, com a sentença de sempre: o menino estava ótimo, e quem estava uma lástima era eu.
+É a dos anos.
 
-Dormia duas horas por noite. Ao amanhecer descia à sala do conselho, onde os anciãos me esperavam com os papiros e as queixas, e eu, com vinte e sete anos e um filho nos braços, olhava para eles sabendo que governava um reino que ninguém me ensinara a governar. Emily partira deixando ordens escritas numa folha de pergaminho, que guardei numa caixa e nunca mais abri. Laertes, o pai dela, recusara o trono, dizendo que seu tempo passara, e se recolhera ao sítio com um jumento e uma enxada. O conselho me olhava com a mistura de respeito e desconfiança que se reserva às estrangeiras, e eu aprendi: a ler os registros de impostos e conferir as contagens do porto, a arbitrar uma disputa de terras entre dois irmãos que não se falavam havia vinte anos, a reconhecer o mentiroso pelo jeito como cruza as pernas. Aprendi que um rei não é quem decide, é quem escuta tanto que a decisão acaba se fazendo sozinha. Aprendi, sobretudo, a dizer *não sei* sem que parecesse fraqueza, e a primeira vez que consegui, diante de duzentos homens, com a voz firme e as mãos úmidas, um velho pescador me olhou, assentiu devagar e disse: "Então vamos descobrir." E descobrimos.
+Dez. Um por um. Como quem passa o dedo numa fileira de contas. E em cada conta, uma coisa que doeu.
 
----
-
-No segundo, chegaram as notícias de Troia. Um mercador fenício entrou no porto numa manhã de outono, e na taverna, diante de marinheiros, contou que a cidade caíra, que os gregos tinham vencido com um truque, um cavalo de madeira, que Troia ardera três noites e que os reis estavam voltando. Euricleia me trouxe a notícia no pátio, onde eu pendurava roupa com o Timóteo, de um ano, agarrado à minha saia. Soltei o lençol. Fiquei parada, com as mãos abertas, vendo-o voar, branco, pelo ar, até cair numa poça, e não chorei, porque não tinha como: o corpo todo se enchera de uma coisa leve e brilhante, como um balão de ar quente.
-
-Ela ia voltar. Mandei pintar os batentes de azul, que Emily sempre quisera e que eu, por teimosia, nunca deixara. Mandei lavar as paredes, trocar os lençóis, encher de flores os vasos. Ensinei ao Timóteo uma palavra, apontando a miniatura de marfim que ela deixara, e todas as manhãs a repeti com ele, mãe, mãe, mãe, e ele repetia rindo, sem saber. Esperei um mês, dois, o inverno inteiro, e vi voltarem os navios dos outros reis, Menelau com o ouro e a esposa infiel, Nestor, o velho, Diomedes calado como pedra, e fui ao cais a cada chegada, com o menino no colo, estudando o rosto de cada soldado que descia da prancha, à procura de uma cara, de uma cicatriz, de um queixo. Nenhuma. Na primavera um marujo de Diomedes, rapaz magro e pálido de vinte anos, me procurou no palácio com um rolo de pergaminho e as mãos trêmulas. Abri. Estava em branco. Ele disse, olhando o chão, que a rainha Emily nunca mandara nada; que depois da queda de Troia ficara calada, nunca mais escrevera; que ele a vira uma noite na tenda, sentada diante de um papiro com a pena na mão durante horas sem escrever uma letra, e que ao amanhecer ela jogara a folha fora, e ele a apanhara, achando que a senhora devia ter alguma coisa de Troia, qualquer coisa.
-
-Olhei aquele papel amassado, guardado por um estranho, com a dobra de dois anos, e dei ao rapaz uma moeda de prata, e quando ele saiu sentei-me no chão do quarto e chorei pela primeira vez em quase dois anos. Não era tristeza. Era uma raiva tão pura, tão sem mistura, que me assustou, uma raiva que me perguntava por que ela não escrevia, por que não voltava, por que não dizia ao menos que estava viva. Guardei a folha em branco na caixa, junto com o pergaminho de ordens, e nunca a joguei fora.
+As lágrimas da porta ainda estão secando no meu rosto. Deixo secar. Começo.
 
 ---
 
-No terceiro, vieram os primeiros pretendentes: dois filhos de nobres de Same, rapazes de vinte e poucos anos, bonitos, corteses, com presentes, uma ânfora de óleo, um tecido de Tiro, um broche de prata, que jantaram à minha mesa, contaram histórias e, ao fim, com um tato que quase me comoveu, sugeriram que depois de três anos sem notícias talvez fosse prudente pensar no futuro. Recusei com educação e firmeza. Voltaram em dois meses com mais dois amigos. No ano seguinte eram dez, no outro, vinte, e a cortesia de família dos primeiros foi sendo substituída pela ânsia de gente mais jovem, mais rica, mais faminta, vinda de Dulíquio, de Zacinto, de ilhas cujos nomes eu nem sabia, que comiam à minha mesa, dormiam nas minhas camas, conversavam comigo à noite enquanto eu, de costas retas, olhava o fogo sem abrir a boca. Não sei em que dia a cortesia morreu. Sei que numa manhã desci ao salão e encontrei uma mesa de homens bêbados, cantando, e um deles na cadeira da rainha, com os pés numa almofada bordada, que me saudou com um gesto largo e um sorriso que não escondia nada e perguntou se a majestade dormira bem. Fui à cozinha. Sentei-me com as mãos espalmadas sobre a mesa, olhando a madeira, até Euricleia me trazer uma caneca de leite quente, e bebi, e voltei ao salão de cabeça erguida e mandei o homem sair da cadeira. Ele saiu. Mas riu. Foi o começo.
+O primeiro foi de gelo.
 
-A mortalha foi ideia de Euricleia, e foi a melhor que tivemos. Uma noite, depois de um jantar em que um rapaz de dezoito anos tentara me beijar à força no corredor, subi para o quarto e chorei de raiva, e a velha, que me seguira, sentou-se na beira da cama, pegou o meu cabelo e o desembaraçou devagar, como fazia com Emily, e disse que eu precisava ganhar tempo com uma desculpa que eles respeitassem. Olhei o tear que a minha sogra deixara no canto, e a ideia chegou inteira, e eu a disse em voz alta, um fio de cada vez: o sudário de Laertes, o costume que obriga uma mulher da casa a tecer a mortalha do rei antes que ele morra; eu diria que precisava terminá-lo, que só depois disso escolheria marido; eles esperariam o tempo que eu levasse, e se descobrissem, bem, achariam apenas que eu era lenta. Começamos no dia seguinte. Uma peça enorme de lã branca com bainha de fios dourados, que eu tecia de dia, à vista de todos, sentada no salão, com a lançadeira indo e vindo sob os olhos curiosos dos pretendentes, e que à noite, sozinha, à luz de uma vela, eu desfazia ponto por ponto, com a paciência teimosa de quem sabe que um dia há de chegar ao fim.
+Não de frio. De pavor.
 
-Fiz isso por três anos. Três anos de dedos sangrando, de olhos ardendo, de costas dobradas, de uma rotina tão perfeita que em certo ponto deixei de sentir. Sentada ao tear, pensava que era assim que se vivia: constrói-se, desfaz-se, constrói-se de novo, e a coisa toda é uma forma de esperar. Era uma bela metáfora e eu a odiava.
+Eu acordava de madrugada com o coração aos saltos e a mão direita esticada no lençol, procurando um corpo que não estava. Levantava sem pensar e ia ao berço, e ficava olhando um menino de três meses dormir. Tão pequeno. Tão vermelho. Tão inteiramente dependente de mim que o medo me dobrava ao meio.
+
+Eu, que tinha passado a vida sem precisar de ninguém, tinha agora um pedaço de gente que morria se eu errasse uma vez.
+
+Errei muitas.
+
+Deixei ele cair da cama uma noite, e ele chorou tanto que fiquei duas horas sentada no chão com ele no colo, chorando junto, pedindo perdão a um bebê que não entendia a língua. Dei leite demais. Depois de menos. Esqueci de trocar. Esqueci o nome da erva que a parteira receitou para cólica.
+
+Euricleia aparecia do meu lado, de avental, com as mãos enrugadas, e tirava o menino dos meus braços sem dizer nada. Examinava de cima a baixo. Devolvia.
+
+— Ele está ótimo, menina. Quem está uma lástima é você.
+
+Eu dormia duas horas por noite. Ao amanhecer descia à sala do conselho, onde os anciãos me esperavam com os papiros e as queixas, e eu, com vinte e sete anos e um filho no braço, olhava para eles sabendo que governava um reino que ninguém me ensinou a governar.
+
+A Emily tinha deixado ordens escritas numa folha de pergaminho. Guardei numa caixa. Não abri. Abrir seria aceitar que ela tinha ido.
+
+O velho Laertes recusou o trono. Disse que o tempo dele tinha passado e se recolheu ao sítio com um jumento e uma enxada.
+
+E eu aprendi.
+
+A ler os registros de imposto. A conferir as contagens do porto. A arbitrar uma briga de terra entre dois irmãos que não se falavam havia vinte anos por causa de uma cabra. A reconhecer o mentiroso pelo jeito como ele cruza as pernas.
+
+Aprendi que um rei não é quem decide. É quem escuta tanto que a decisão acaba se fazendo sozinha.
+
+E aprendi, mais do que tudo, a dizer *não sei* sem que parecesse fraqueza.
+
+A primeira vez que eu disse, na frente de duzentos homens na assembleia do porto, com a voz firme e as mãos suando dentro das mangas, um velho pescador me olhou, assentiu devagar, e disse:
+
+— Então vamos descobrir, rainha.
+
+E descobrimos.
 
 ---
 
-Nísia entrou na minha vida no quarto ano, num dia de outono, quando um navio de Same atracou e dele desembarcou, sem escolta, uma mulher de túnica azul-clara com uma carta de comércio. Pediu audiência não ao conselho nem aos pretendentes, mas à rainha, e eu a recebi na sala pequena do lado norte, com o fogo aceso, e ela sentou-se na cadeira indicada sem pedir licença e sem fingir que o fazia por cortesia. Tinha trinta e dois anos, uma trança pesada e castanha sobre o ombro, olhos cor de mel, serenos, que não se desviavam, mãos finas de unhas curtas e nenhuma joia. Era viúva de um comerciante de óleo, morto de febre dois anos antes, que lhe deixara uma casa grande, um jardim e uma frota de sete navios, e vinha tratar de um contrato de azeite.
+O segundo foi de esperança. E esperança é pior que gelo.
 
-Tratamos durante uma hora, em voz baixa, de preços e prazos. Ela era inteligente, direta, sem subterfúgios, com um modo de me olhar nos olhos sem pressa que me desconcertava, e quando terminamos, por reflexo, convidei-a para jantar. Ela sorriu e recusou: a sala de jantar estava cheia de homens que queriam casar comigo, disse, e ela não queria atrapalhar. O golpe me pegou desprevenida e senti o rosto arder. Perguntei se ela sabia, e ela respondeu que em Same todo mundo sabia, que diziam que a rainha de Ítaca era uma mulher corajosa e os pretendentes uns porcos, e que concordava com as duas coisas. Ri, uma risada curta e inesperada, a primeira em semanas, e vi o sorriso dela se alargar, e tive pela primeira vez em quatro anos a sensação de ter sido vista. Disse que voltasse. Ela voltou no mês seguinte, e no outro, e no outro.
+Um mercador fenício entrou no porto numa manhã de outono e contou na taverna que Troia tinha caído. Que os gregos ganharam com um truque, um cavalo de madeira. Que a cidade ardeu três noites. Que os reis estavam voltando.
 
-A amizade veio por acúmulo e não por um momento: as cartas de comércio que se alongavam, os jantares que terminavam à meia-noite, as conversas junto ao fogo sobre tudo e sobre nada. Ela me contou de um marido que bebia e de um jardim que a salvara. Eu lhe contei do tear e dos pretendentes. Nunca lhe contei de Emily, e ela nunca perguntou, e isso, mais do que qualquer palavra, foi a forma de ela ser minha amiga. No segundo inverno de visitas ela trouxe uma caixa de madeira, e dentro dela, enrolado em pano, um pote de unguento de cheiro doce e ácido. Era para as minhas mãos, disse; vira que as tinha em carne viva. Olhei as palmas cortadas pelo fio, endurecidas pelo tear, e eu nem notara. Ela abriu o pote e pegou a minha mão, pedindo licença só depois, e passou o unguento devagar nos nós dos dedos, nas palmas, nos pulsos, com dedos firmes e mornos, e o cheiro de ervas subiu, e eu fechei os olhos e senti uma coisa quente subir pela garganta e percebi com um susto que estava chorando. Pedi desculpas. Ela me mandou calar, baixinho, sem levantar os olhos, e disse que sabia. Atou as minhas mãos em tiras de linho e deixou-as repousar entre as suas por muito tempo, enquanto o fogo estalava e o vento batia nos postigos, e eu, de olhos fechados, sentindo o calor daquelas palmas, pensei: *isto é uma coisa que eu não posso ter.* E pensei também, com um desejo que me deu vergonha: *mas quero.*
+Euricleia me trouxe a notícia no pátio, onde eu estendia roupa com o Timóteo, de um ano, agarrado na minha saia.
+
+Soltei o lençol.
+
+Fiquei parada, com as mãos abertas, vendo o pano voar, branco, pelo ar, até cair numa poça de lama. Não chorei. Não tinha como. O corpo inteiro tinha se enchido de uma coisa leve e brilhante, como um balão de bexiga de porco que as crianças enchem nas festas.
+
+Ela ia voltar.
+
+Mandei pintar os batentes de azul. Ela sempre quis, e eu, por teimosia, nunca deixei. Mandei lavar as paredes, trocar os lençóis, encher de flor os vasos. Ensinei ao Timóteo uma palavra, apontando a miniatura de marfim que ela deixou pendurada na parede.
+
+— Mãe. Mãe. Mãe.
+
+Ele repetia rindo, babando, sem saber.
+
+Esperei um mês. Dois. O inverno inteiro.
+
+Vi voltarem os navios dos outros reis. Menelau com o ouro e a esposa infiel. Nestor, o velho. Diomedes, calado como pedra. Fui ao cais em cada chegada, com o menino no colo, estudando a cara de cada soldado que descia da prancha. Procurando uma testa. Uma cicatriz no queixo. Um jeito de andar.
+
+Nenhuma.
+
+Na primavera, um marujo de Diomedes me procurou no palácio. Um rapaz magro de vinte anos, pálido, com as mãos tremendo e um rolo de pergaminho.
+
+Abri.
+
+Estava em branco.
+
+— Ela não mandou nada, senhora — disse ele, olhando o chão. — Depois da queda ela ficou calada. Nunca mais escreveu. Eu vi ela uma noite na tenda, sentada na frente de um papiro, com a pena na mão, horas, sem escrever uma letra. De madrugada ela jogou a folha fora. Eu peguei. Achei que a senhora devia ter alguma coisa. De Troia. Qualquer coisa.
+
+Dei ao rapaz uma moeda de prata.
+
+Quando ele saiu, sentei no chão do quarto com aquele papel amassado nas mãos, com a dobra de dois anos, guardado por um estranho, e chorei pela primeira vez desde a partida dela.
+
+Não era tristeza. Era uma raiva tão pura, tão sem mistura, que me assustou.
+
+*Por que não escreve. Por que não volta. Por que não diz, ao menos, que está viva.*
+
+Guardei a folha em branco na caixa, junto com o pergaminho de ordens. Nunca joguei fora.
+
+Está lá até hoje. Debaixo do berço. Ao lado da taça.
 
 ---
 
-A notícia da morte de Anticleia chegou no sexto inverno, numa manhã de geada. Eu sabia que estava doente. A sogra, que sempre fora seca como um galho, definhara nos últimos meses até virar uma coisa de ossos e olhos enormes, deitada numa cama estreita com a pele cor de cera, e eu a visitava todas as tardes, sentava-me à beira do leito e lia para ela cartas que Emily nunca escrevera. Inventava. Foi por acaso na primeira vez: ela perguntou, com a voz fraca, se havia notícias, e eu, que não tinha nenhuma, abri uma gaveta, peguei um papiro qualquer e fingi lê-lo, e disse que Emily escrevera, que estava bem, que a guerra terminaria logo, e a velha sorriu de olhos fechados. Continuei dia após dia, por dois anos, com cartas de quatro, de oito, de dez linhas, cheias de pequenas mentiras plausíveis, de lugares que eu nunca vira, de uma batalha, de uma ilha, de um rei cego, de um cavalo branco que Emily teria comprado, de uma saudade que ela mandava. Anticleia sabia. Eu sei que sabia, porque tinha os olhos de quem já viu tudo, mas nunca disse nada, só pedia todos os dias que eu lesse de novo.
+O terceiro foi o ano dos pretendentes. E o ano em que a mãe dela morreu.
 
-Na última tarde, com a mão fria entre as minhas, ela me olhou e perguntou, num sussurro, se Emily não escrevia. Fiquei calada. Ela disse que não precisava responder e agradeceu, com uma sombra de sorriso, por eu mentir tão bem; disse que eu fora a melhor esposa que a filha poderia ter e me fez jurar que lhe diria isso quando ela voltasse. Jurei. Ela fechou os olhos e morreu de madrugada, sem ruído, como se apagasse uma vela, e fui eu quem a encontrou, e fiquei ao lado da cama, segurando aquela mão, até o dia clarear. Não chorei. Achava que não tinha o direito: a mulher perdera o marido, o filho e o mundo e morrera de saudade, e eu, que a enganara por dois anos, tinha a obrigação de ser forte. No funeral Laertes apareceu, de túnica suja, o cabelo branco em desordem, o rosto coberto de lágrimas, e ficou parado à porta da capela olhando o caixão sem entrar. Quando me viu, aproximou-se apoiado no cajado e disse, com a voz rouca, que eu a cuidara, e que a filha dele devia estar ali, e não estava, e que por isso estava eu; e quando respondi que era a esposa dela, ele pousou na minha espádua a mão pesada e seca e disse que eu era mais do que isso, era a filha que Anticleia merecia e não tivera. Então chorei, na frente de todos, sem poder evitar, no ombro de um velho que cheirava a terra e a pera, e ele me deixou chorar sem dizer mais nada.
+Começou devagar. Dois rapazes de Same, de vinte e poucos anos, bonitos, educados, com presentes: uma ânfora de óleo, um pano de Tiro, um broche de prata. Jantaram na minha mesa. Contaram histórias. E no fim do jantar, com um tato que quase me comoveu, sugeriram que, depois de três anos sem notícia, talvez fosse prudente pensar no futuro.
 
-Foi naquela noite que fui à casa de Nísia. Não planejei. Voltei do cemitério com a terra ainda debaixo das unhas, mandei embora as criadas, andei três horas pelo palácio fingindo que não andava em direção a nada, e à meia-noite estava no cais, entrando num barco, remando sozinha até Same com os braços ardendo, porque o corpo precisava de uma coisa que a cabeça se recusava a nomear. Ela abriu a porta de roupão, com a trança desfeita, e me olhou e não perguntou nada. Disse apenas que eu estava gelada e me puxou para dentro, e na sala morna cheirando a ervas me tirou o manto molhado, e me abraçou, e eu, que não era abraçada havia seis anos, desabei. Chorei até soluçar, até a boca dela estar no meu cabelo, depois na minha testa, depois no canto dos meus olhos, e quando o beijo chegou à minha boca já não havia pergunta nenhuma a fazer. Foi lento, e atento, e quente. As mãos dela, as mesmas mãos que me ungiram as palmas, conheciam o caminho do pescoço, das costelas, da curva das costas, e eu me deixei despir como quem se deixa lavar, e quando a boca dela desceu e demorou e a minha respiração quebrou eu disse o nome errado, uma vez, baixo, no escuro, um nome que não era o dela. Ela parou. Segurou-me o rosto com as duas mãos, e olhou nos meus olhos, e entendeu tudo, e não se afastou. "Eu sei", disse. "Pode dizer quantas vezes precisar." E eu fiquei com aquela frase e com o corpo inteiro tremendo, entre o prazer e a culpa, e me abandonei ao resto da noite sabendo que ia me arrepender a vida toda, e que não ia parar.
+Recusei. Com educação. Com firmeza.
 
-Voltei antes do amanhecer, de remo nos braços e vergonha na boca. Nunca mais voltou a acontecer, e nunca falamos do assunto, e Nísia continuou a visitar-me no mês seguinte, e no outro, como se nada, e a amizade, em vez de morrer, tornou-se mais funda, e mais difícil, porque agora cada um sabia o que o outro era capaz de sentir sem poder.
+Voltaram em dois meses. Com mais dois amigos.
+
+Enquanto isso, a sogra definhava.
+
+Anticleia sempre foi seca como galho de inverno. Naquele ano ficou mais seca. Até virar uma coisa de osso e de olho, deitada numa cama estreita na ala oeste, com a pele cor de cera e as mãos cruzadas no peito como se já estivesse ensaiando.
+
+Eu a visitava toda tarde. Sentava na beira da cama.
+
+E lia cartas que a Emily nunca escreveu.
+
+Começou por acaso. Ela me perguntou, com a voz fraca, se havia notícias. E eu, que não tinha nenhuma, abri uma gaveta, peguei um papiro qualquer, uma lista de impostos de Dulíquio, e fingi ler.
+
+— A Emily escreveu, mãe. Diz que está bem. Que a guerra vai terminar logo. Que mandou fazer um broche novo para mim, com uma coruja.
+
+A velha sorriu, de olhos fechados.
+
+Continuei. Todo dia. Durante quase três anos, desde o fim do primeiro, quando ela começou a adoecer. Cartas de quatro linhas. De oito. De dez. Cheias de mentiras pequenas e plausíveis. Lugares que eu nunca vi. Uma batalha na praia. Uma ilha com cabras azuis. Um rei cego que deu a ela uma lira. Um cavalo branco que ela comprou e chamou de Teimoso.
+
+Inventei uma Emily inteira. Uma que escrevia toda semana. Que perguntava do menino, do pai, da horta. Que mandava saudade.
+
+Às vezes eu me pegava acreditando.
+
+Anticleia sabia. Eu sei que sabia. Tinha os olhos de quem já viu tudo. Mas nunca disse nada. Só pedia, todo dia, que eu lesse de novo.
+
+Na última tarde, com a mão fria entre as minhas, ela me olhou e sussurrou:
+
+— A Emily não escreve, não é?
+
+Fiquei calada.
+
+— Não precisa responder. — Uma sombra de sorriso. — Obrigada. Por mentir tão bem.
+
+— Eu...
+
+— Você é uma boa esposa para ela. A melhor que ela podia ter. — A voz falhou. — Diga isso a ela quando voltar.
+
+— Eu digo.
+
+— Jura.
+
+— Juro.
+
+Ela fechou os olhos. Morreu de madrugada, sem barulho, como quem apaga uma vela com os dedos.
+
+Fui eu quem achou. Fiquei sentada do lado da cama segurando aquela mão até o dia clarear. Não chorei. Achava que não tinha direito. Aquela mulher tinha perdido o filho para a guerra e o mundo para a espera, e tinha morrido de saudade, e eu tinha enganado ela por três anos. Eu tinha obrigação de ser forte.
+
+No funeral o velho Laertes apareceu. Túnica suja. Cabelo branco em pé. Rosto molhado. Ficou parado na porta da capela olhando o caixão sem entrar.
+
+Quando me viu, veio, apoiado no cajado.
+
+— Você cuidou dela.
+
+— Cuidei.
+
+— A minha filha devia estar aqui. — A voz dele era um rasgo. — Não está. Então está você por ela.
+
+— Eu sou a esposa dela.
+
+— É mais do que isso. — Pôs a mão na minha espádua, pesada e seca como um galho. — Você é a filha que a Anticleia merecia e não teve.
+
+Aí chorei. Na frente de todo mundo. No ombro de um velho que cheirava a terra e a pera, que me deixou chorar sem dizer mais nada.
+
+Naquela noite, depois que o povo foi embora, ele e eu a tiramos da capela enrolada num lençol e levamos até o sítio dele, numa carroça, à luz de uma tocha, e a enterramos debaixo de uma figueira que ela tinha plantado no dia do casamento. Ele com uma pá. Eu com as mãos. Porque ela tinha pedido. Porque não queria capela.
+
+Quando terminamos, ficamos sentados do lado da terra fresca até o amanhecer. Ele não chorou. Eu também não. Já tínhamos chorado o que dava.
+
+Nunca contei isso a ninguém. Ninguém perguntou.
+
+Muito menos ela.
 
 ---
 
-O sétimo foi de culpa, e o oitavo foi de culpa com o rosto lavado, e o nono foi de silêncio. No nono parei de falar com os pretendentes e comecei a falar com a parede. No nono vi o Timóteo, de oito anos, tomar o lado deles contra mim numa discussão sobre a caça, e levei a mão ao rosto como se tivesse sido esbofeteada. No nono o conselho começou a me propor casamentos a sério, e eu passei a descer ao salão de manhã com a cara de pedra que levaria agora também no dia do concurso, uma máscara que de tanto usar já colava na pele. Foi o ano em que parei de contar as velas no porto. Foi o ano em que, por vingança contra mim mesma, passei a tecer sem desfazer à noite, durante três semanas, só para ver o que acontecia, e acordei na manhã do vigésimo segundo dia com Euricleia ao pé da cama, de olhos arregalados, sussurrando que um dos pretendentes me espiava pelo buraco da fechadura, e que o fio branco da noite estava de pé na luz da janela, inteiro, à vista, uma prova viva da minha fraude. Tive de desmanchar tudo de uma vez, em uma noite, rasgando a lã com os dentes. Foi o ano em que descobri que dá para odiar um objeto.
+No quarto ano, a Nísia.
 
-A noite avança. A lamparina no gancho já queimou metade do azeite. Estou deitada de lado, com os olhos abertos, olhando a sombra da oliveira no teto, e lá embaixo, no quarto dos hóspedes, uma mulher está acordada. Sinto-a como se sente uma corrente de ar, através das paredes, dos corredores, dos andares.
+E no quarto ano, a mortalha.
 
-Dez anos. O primeiro, de gelo. O segundo, de esperança. O terceiro, de pretendentes. O quarto, de Nísia. O quinto, de mortalha. O sexto, de luto e de uma noite que não devia ter existido. O sétimo, de culpa. O oitavo, de culpa com rosto lavado. O nono, de silêncio. O décimo, de hoje. E agora, na véspera de um dia em que tudo pode acabar, uma coisa se arruma em mim com uma lucidez fria, quase cruel: sobrevivi. Não foi mérito. Foi o que havia para fazer. Criei um filho. Segurei um reino. Enganei cento e oito homens. Enterrei uma sogra. Amei por uma noite uma mulher que não era ela, e me arrependi a vida inteira. E durante todo esse tempo, em cada dia, em cada hora, em cada conta, esperei.
+A mortalha foi ideia da Euricleia. Uma noite, depois de um jantar em que um rapaz de dezoito anos tentou me beijar à força no corredor, me prensando contra a parede com o hálito de vinho na minha cara, eu subi ao quarto e chorei de raiva com o rosto no travesseiro. A velha veio atrás. Sentou na beira da cama, pegou o meu cabelo nas mãos e desembaraçou devagar, como fazia com a Emily quando ela era pequena.
 
-Ela chegou. Não como eu imaginava, não como heroína nem como penitente. Chegou de trapos, com cara de outra, os pés em sangue e um calo de espada no indicador, e me olhou como quem olha um fantasma, e eu, que passei dez anos preparando o discurso, o vestido, o olhar, descubro que não sei o que fazer. Levanto-me. Vou à janela. Olho o pátio escuro, o portão, o monte de estrume onde há dois dias um cachorro velho morreu de alegria, a colina, a pedra chata. Respiro fundo, devagar, como quem toma uma decisão difícil. Amanhã a farei escolher, diante de todos, com um arco e doze machados. Sei que é cruel. Sei que é injusto. Sei que, no fundo, é só uma maneira de adiar o momento em que terei de decidir o que fazer com o amor que não me deixa dormir.
+— Você precisa ganhar tempo — disse.
 
-Mas é o que tenho. Por enquanto, basta.
+— Como?
+
+— Com uma desculpa que eles respeitem.
+
+Olhei o tear que a minha sogra deixou no canto do quarto, ainda com um pedaço de pano preso, que ela nunca terminou.
+
+E a ideia veio inteira.
+
+— O sudário — eu disse. — Do Laertes.
+
+— O velho ainda está vivo.
+
+— É o costume. Uma mulher da casa tem que tecer a mortalha do rei antes que ele morra. Eu digo que preciso terminar. Que só depois escolho marido. Eles esperam o tempo que eu levar.
+
+— E se descobrirem?
+
+— Vão achar que eu sou lenta.
+
+Começamos no dia seguinte. Uma peça enorme de lã branca, com barra de fio dourado, que eu tecia de dia, à vista de todos, sentada no salão, com a lançadeira indo e vindo debaixo dos olhos curiosos dos pretendentes.
+
+E que à noite, sozinha, à luz de uma vela, eu desfazia ponto por ponto.
+
+Fiz isso três anos. Três anos de dedos sangrando, olhos ardendo, costas dobradas. De uma rotina tão perfeita que, em certo ponto, deixei de sentir. Sentada no tear, eu pensava que era assim que se vivia. Constrói. Desfaz. Constrói de novo. E a coisa toda é uma forma de esperar.
+
+Era uma bela metáfora. E eu odiava.
+
+---
+
+A Nísia chegou num dia de outono, num navio de Same, de túnica azul-clara, sem escolta, com uma carta de comércio. Pediu audiência não ao conselho, nem aos pretendentes. À rainha.
+
+Recebi na sala pequena do norte. Ela entrou, olhou em volta, sentou na cadeira que eu indiquei sem pedir licença e sem fingir que pedia.
+
+Trinta e dois anos. Uma trança pesada, castanha, caída no ombro. Olhos cor de mel, serenos, que não se desviavam. Mãos finas, unhas curtas, nenhuma joia. Viúva de um comerciante de azeite que morreu de febre e deixou uma casa grande, um jardim e sete navios.
+
+Tratamos de azeite por uma hora, em voz baixa. Ela era inteligente, direta, sem rodeio nenhum, e tinha um jeito de me olhar nos olhos sem pressa que me desconcertava. Como se tivesse todo o tempo do mundo para me olhar e não fosse gastar nenhum à toa.
+
+Quando terminamos, por reflexo, convidei para jantar.
+
+Ela sorriu.
+
+— Não. A sua sala de jantar está cheia de homens que querem casar com você. Não quero atrapalhar.
+
+O golpe me pegou desprevenida. O rosto ardeu.
+
+— Você sabe.
+
+— Em Same todo mundo sabe. — Ela inclinou a cabeça. — Dizem que a rainha de Ítaca é uma mulher corajosa e que os pretendentes são uns porcos. Eu concordo com as duas coisas.
+
+Ri. Uma risada curta, inesperada, a primeira em semanas.
+
+E vi o sorriso dela se alargar. E tive, pela primeira vez em quatro anos, a sensação de ter sido vista. Não como rainha. Não como a esposa da desaparecida. Como uma mulher numa sala, que ri.
+
+— Volte — eu disse, sem pensar.
+
+Ela voltou no mês seguinte. E no outro. E no outro.
+
+---
+
+No quinto ano, as mãos.
+
+Ela chegou no segundo inverno de visitas com uma caixinha de madeira. Dentro, enrolado num pano, um pote de unguento, de cheiro doce e ácido.
+
+— É para as suas mãos. Eu vi que estão em carne viva.
+
+Olhei as palmas. Cortadas pelo fio da lançadeira, endurecidas pelo tear. Eu nem tinha percebido. Fazia meses que eu não olhava para as minhas mãos.
+
+Ela abriu o pote e pegou a minha mão. Pediu licença só depois.
+
+Passou o unguento devagar. Nos nós dos dedos. Nas palmas. Nos pulsos. Com dedos firmes e mornos. O cheiro de erva subiu. Fechei os olhos.
+
+E senti uma coisa quente subir pela garganta. E percebi, com um susto, que estava chorando.
+
+— Desculpe.
+
+— Shh. — Ela não levantou os olhos. — Eu sei.
+
+Amarrou as minhas mãos em tiras de linho e deixou elas descansando entre as dela por muito tempo. O fogo estalava. O vento batia nos postigos.
+
+E eu, de olhos fechados, sentindo o calor daquelas palmas, pensei: *isto é uma coisa que eu não posso ter.*
+
+E pensei também, com um desejo que me deu vergonha: *mas eu quero.*
+
+---
+
+O sexto ano foi o da notícia de Corinto. Doze cascos de proa vermelha ao largo de Malea. A rainha de Ítaca, com toda a certeza, morta.
+
+E da noite que eu já contei. Que eu não vou contar de novo, nem para mim, nem agora, deitada aqui com o tronco nas costas.
+
+Só digo isto: voltei de madrugada pela trilha, cheirando a lavanda, e fiquei olhando a lamparina apagada no gancho. Naquela noite acendi de novo.
+
+Por castigo.
+
+Foi a única noite em dez anos em que ela ficou apagada. A noite em que eu achei que ela estava morta e fui me deitar com outra mulher.
+
+Eu sei. Eu conto tudo. Até isso.
+
+---
+
+O sétimo foi de vergonha.
+
+O mercador de Corinto tinha errado. Os cascos vermelhos eram de outra frota, de outro rei, de outra guerra. Ela estava viva em algum lugar. E eu estava a um ano de distância de uma noite que não devia ter existido.
+
+Não senti alívio. Senti vergonha. Tanta que guardei o espelho de bronze que ela me deu numa gaveta, virado para baixo, e não olhei para ele durante meses. Não queria ver a mulher que ele mostrava.
+
+A Nísia voltou. Eu a recebi na sala pequena. Não toquei nela. Não olhei nos olhos. Ela me olhou sem pedir nada, e eu percebi que ela sabia. Que sabia que eu sabia. E que sabia que não ia acontecer de novo.
+
+Isso foi pior.
+
+---
+
+O oitavo foi o ano em que o Timóteo me perguntou por que a lamparina.
+
+Eu disse que era para ajudar a mãe dele a achar o caminho.
+
+Ele pensou. Tinha sete anos e a mania de pensar antes de responder, que é dela, não minha.
+
+— E se ela não quiser achar?
+
+Não soube responder.
+
+Foi também o ano em que uma criada me denunciou. Não sei qual. Até hoje não sei. Desconfio de todas e de nenhuma. Uma noite eu estava desfazendo o pano à luz da vela, e a porta se abriu, e eram quatro deles, com o Antínoo na frente, sorrindo, olhando os fios soltos no chão como quem olha uma prova.
+
+Arrancaram o tear do quarto. Quebraram o pente em duas metades. Me obrigaram a terminar a mortalha em quarenta dias, com dois guardas na porta.
+
+Terminei em trinta e nove. Fiz questão.
+
+A mortalha ficou linda. Entreguei a eles na porta do salão, de cabeça erguida, e o Antínoo passou os dedos no pano e disse que eu tinha mãos de deusa.
+
+Daquele dia em diante, eu não tive mais desculpa nenhuma.
+
+---
+
+O nono foi de silêncio.
+
+Parei de falar com os pretendentes. Comecei a falar com a parede. Vi o Timóteo tomar o lado deles contra mim numa discussão sobre caça, e levei a mão ao rosto como se tivesse levado um tapa. Foi o ano em que o Eumeu deu ao menino um arco, por ordem dela, deixada antes de partir. O ano em que eu, depois de nove anos, abri finalmente o pergaminho de ordens.
+
+Três linhas. *Diga a ele que a mãe o amava mais do que o mar.*
+
+Foi o ano em que parei de contar as velas no porto.
+
+E o décimo.
+
+O décimo é este.
+
+---
+
+A lamparina, no gancho, já queimou metade do azeite.
+
+Estou deitada de lado, de olhos abertos, olhando a sombra da oliveira no teto. E lá embaixo, no quarto de hóspedes, uma mulher está acordada. Eu sinto. Como se sente uma corrente de ar através das paredes, dos corredores, dos andares.
+
+Dez anos.
+
+O primeiro, de gelo. O segundo, de esperança. O terceiro, de pretendentes e de luto. O quarto, de Nísia e de tear. O quinto, de mãos. O sexto, de uma noite. O sétimo, de vergonha. O oitavo, de pergunta. O nono, de silêncio. O décimo, de hoje.
+
+E agora, na véspera de um dia em que tudo pode acabar, uma coisa se arruma dentro de mim com uma lucidez fria, quase cruel.
+
+Eu sobrevivi.
+
+Não foi mérito. Foi o que havia para fazer. Criei um filho. Segurei um reino. Enganei cento e oito homens por três anos com um pano. Enterrei uma sogra com as mãos. Li cartas que não existiam. Me deitei uma noite com uma mulher que não era ela, e me arrependi a vida inteira.
+
+E durante esse tempo todo, em cada dia, em cada hora, em cada conta, eu esperei.
+
+Ela chegou.
+
+Não do jeito que eu imaginava. Nem heroína nem penitente. Chegou de trapo, com cara de outra, com os pés em sangue e um calo de espada no indicador. Chegou e ensinou o meu filho a mirar. Chegou e chorou atrás de uma porta.
+
+E eu, que passei dez anos preparando o discurso, o vestido, o olhar, descubro que não sei o que fazer.
+
+Levanto. Vou à janela. Olho o pátio escuro. O portão. O monte de estrume onde, há três dias, um cachorro velho morreu com o rabo mexendo. A colina. A pedra chata.
+
+Respiro fundo, devagar, como quem toma uma decisão difícil que já tomou.
+
+Amanhã ela vai ter que escolher. Na frente de todos. Com um arco e doze machados.
+
+Sei que é cruel. Sei que é injusto. Sei que, no fundo, é só uma maneira de adiar o momento em que eu vou ter que decidir o que fazer com o amor que não me deixa dormir.
+
+Mas é o que eu tenho.
+
+Por enquanto, basta.
+
+E se não bastar, eu conto de novo.

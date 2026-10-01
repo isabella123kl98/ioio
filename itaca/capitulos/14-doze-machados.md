@@ -4,40 +4,486 @@
 
 O dia do concurso amanhece limpo, sem uma nuvem, como se o céu tivesse sido lavado de propósito para a humilhação pública.
 
-Acordo antes do sol e já sei que não vou conseguir comer. Desço ao pátio enquanto os pretendentes ainda dormem e encontro, na luz cinzenta e fria, os escravos fincando os machados na terra: doze, em linha, a um passo um do outro, os cabos de carvalho enterrados até a metade, as lâminas viradas para o céu, e em cada cabo uma argola de ferro, larga como um pulso, a um palmo do chão. Foi Eumeu quem mandou alinhá-las, com uma linha esticada e um prumo, franzindo a testa, praguejando em voz baixa. Quando me vê, tira o gorro e pergunta se está certo, e olho a fileira, doze argolas pequenas, redondas, alinhadas como os elos de uma corrente, e imagino uma flecha atravessando-as, uma a uma, sem tocar, e nenhum olho humano parece capaz de sustentar aquela imagem por mais de um segundo. Ele me diz, com a franqueza dos velhos, que é impossível, que ninguém na ilha conseguiria, nem o finado rei Laertes no tempo dele, e pergunta por quê. Olho para Eumeu, um homem de sessenta anos curvado pelo trabalho, que perdeu os porcos, a casa, os amigos, e continua descendo todas as manhãs ao palácio com o tributo que não deveria pagar, que dez anos atrás me olhou nos olhos e disse que esperaria comigo se eu deixasse. Respondo que alguém precisa fazer isso, e que talvez não seja impossível. Deixo-o ali, com o gorro na mão, e subo ao depósito de armas para buscar o arco.
+Acordo antes do sol e já sei que não vou conseguir comer. Fico deitada mais um pouco, de olhos abertos, com o sonho ainda grudado no corpo. Uma flecha. Doze argolas. Uma mulher de cabelo branco sorrindo do outro lado do pátio.
 
-O arsenal fica no fundo da ala leste, atrás de uma porta baixa, num aposento de pedra escura, frio, cheirando a ferro e a sebo. Há muito tempo ninguém entra ali, e as teias pendem do teto como cortinas. Na parede do fundo, em suportes de madeira, estão as armas de Emily, lanças de freixo, escudos de bronze, espadas curtas, um capacete de crina vermelha, e, no centro, pendurado por duas argolas, o arco: maior do que eu recordava, quase dois metros, teixo e chifre de cabra-montesa colados em camadas, a empunhadura forrada de couro escuro, gasto pela mão dela, uma curva graciosa e poderosa como a de um animal adormecido. A corda, de tendão de boi, está frouxa, pendendo de uma ponta; ao lado, numa aljava de couro curtido, uma dúzia de flechas de ponta de bronze, intactas. Estendo a mão e toco a madeira, fria, áspera, e sinto sob a palma uma vibração tão fina que poderia ser o meu pulso. Fecho os dedos na empunhadura, no lugar onde os dedos dela se fechavam, e o couro cede um pouco, amoldado à forma da mão que o usou durante anos. Tiro-o da parede; pesa mais do que lembro. Apoio-o no ombro e tento, por reflexo, dobrar a ponta, e o arco não cede um dedo, como se a madeira tivesse decidido que aquele gesto não lhe dizia respeito. *Tudo bem*, murmuro. *Não é para mim.* Pego a aljava e saio.
+Batem na porta.
+
+Não é Euricleia. Euricleia bate três vezes, devagar. Isto é uma batida só, rápida, e depois a porta já se abre antes que eu responda.
+
+O Timóteo.
+
+Está descalço, com a túnica de dormir suja de terra nos joelhos, o cabelo em pé, e segura alguma coisa nas duas mãos, contra o peito, como quem segura um passarinho.
+
+Uma flecha.
+
+— Mãe.
+
+Sento na cama.
+
+Ele atravessa o quarto e para do lado da oliveira, e não chega mais perto. Olha para mim com o olho bom e o outro já quase aberto, e no rosto dele há uma coisa que eu nunca vi. Não é medo. Não é alegria. É uma coisa que não decidiu ainda o que vai ser.
+
+— A velha — diz. — A velha do porqueiro.
+
+— O que tem ela?
+
+— Ela atirou esta. No alpendre. Agora, antes do sol. — Ele estende a flecha. — Acertou no meio. Um palmo à direita. Igual a mim.
+
+Pego a flecha. Ainda tem lascas de palha do alvo presas na ponta.
+
+— Ela tem uma coruja, mãe.
+
+Não me mexo.
+
+— No dedo. Debaixo do pano. — A voz dele sobe, fina, de menino. — Uma coruja de ouro. Com o olho de pedra. Eu vi. O pano escorregou e eu vi.
+
+O quarto fica muito quieto. Lá fora, um galo. Lá embaixo, o barulho de pás na terra: Eumeu e os escravos cavando o pátio para os machados.
+
+— Eu sei — digo.
+
+Ele pisca.
+
+— Você sabe?
+
+— Eu sei, pardal.
+
+— Desde quando?
+
+Penso em mentir. Penso em dizer *desde agora*. Penso na Anticleia, nas cartas que eu inventei por três anos, nas mentiras pequenas e bonitas que eu sei fazer melhor do que ninguém nesta casa.
+
+— Desde o primeiro dia — digo.
+
+O rosto dele muda.
+
+Devagar. Primeiro os olhos. Depois a boca. Depois o queixo, que é o meu, empinando, endurecendo.
+
+— Você sabia. — Ele dá um passo para trás. — Você sabia que ela estava aqui. Na nossa casa. E deixou o Antínoo bater nela. E mandou lavar os pés dela como se ela fosse criada. E não me disse nada.
+
+— Timóteo.
+
+— Você deixou ela dormir naquele quarto do fundo, sozinha, chorando. Eu ouvi ela chorando, mãe! — Ele está gritando agora, num sussurro, que é a pior maneira de gritar. — Eu passei pela porta dela de noite e ouvi! E você sabia!
+
+— Eu precisava ter certeza.
+
+— Você *tinha* certeza!
+
+Ele tem razão. Eu tinha. Tinha desde o palmo à direita. Desde o osso do queixo. Desde a cicatriz.
+
+— Senta aqui — digo.
+
+— Não.
+
+— Senta, Timóteo.
+
+Ele não senta. Fica de pé, a três passos, com os punhos fechados, tremendo, e as lágrimas descendo sem que ele faça nada para segurar. Dez anos. Esperou dez anos uma mãe que eu jurei que vinha. E a mãe veio. E eu escondi dele.
+
+— Escuta — digo, e a minha voz sai mais baixa do que eu queria. — Ela não disse quem é. Ela podia ter dito, no primeiro dia, no salão, na frente de todo mundo. Não disse. Podia ter dito para mim, junto ao fogo. Não disse. Podia ter dito ontem, com os pés na bacia, com a ama gritando o nome dela. Não disse. — Respiro. — Você entende? Ela escolheu não dizer. Eu não sei por quê. Medo. Vergonha. Plano. Eu não sei. Mas ela escolheu. E eu decidi deixar ela escolher a hora.
+
+— Isso é crueldade.
+
+— É. — Não desvio os olhos. — É sim.
+
+Ele fica parado. O peito sobe e desce.
+
+— Ela vai morrer — diz, por fim. — Se eles descobrirem. São cento e oito.
+
+— Eu sei contar.
+
+— Então por quê?
+
+Não tenho resposta que caiba num menino de dez anos. Não tenho resposta que caiba em mim.
+
+— Hoje ao meio-dia — digo. — No pátio. Fica do meu lado. Não sai do meu lado. E não diz nada a ninguém. A ninguém, Timóteo. Nem à Euricleia, nem ao Eumeu, nem aos meninos do estábulo. Até ela decidir.
+
+Ele me olha muito tempo.
+
+Depois vira as costas e sai sem dizer se sim.
+
+A flecha fica na minha mão. Passo o dedo na pena, que é de ganso, cinza, cortada torta, do jeito que o Eumeu corta.
+
+E me dou conta de que a última vez que o meu filho saiu deste quarto sem me responder foi aos seis anos, no dia em que eu disse que a mãe dele não ia voltar amanhã.
 
 ---
 
-O pátio, ao meio-dia, está cheio como um anfiteatro. Os pretendentes chegam aos poucos, ainda meio bêbados, rindo e empurrando-se, e se acomodam em semicírculo em volta dos machados, em bancos, em barris, no chão; alguns trouxeram vinho e pão e queijo, como para um festival, outros vieram com amigos, apostando; um grupo de rapazes de Zacinto fez uma lista de ordem num pedaço de papiro e discute quem vai primeiro; Antínoo, sentado num banco alto, de pernas cruzadas, sorri para os vizinhos com o ar de quem assiste a um espetáculo já ganho. Sento-me no estrado improvisado, à sombra de um toldo de lona, numa cadeira de espaldar alto, com o Timóteo à minha direita, de pé, segurando o arco curto contra o peito, e Nísia à minha esquerda, num banco baixo, com as mãos cruzadas no colo; Euricleia está atrás de mim com um leque; Melanto serve água; Eumeu e o vaqueiro Filécio, um homem alto, de ombros largos, que chegou ao palácio naquela manhã com uma vaca para o tributo, fecham as portas do pátio e as trancam por dentro sem dizer nada. E no fundo, junto à parede, sentada no chão, com as costas apoiadas na pedra e o cajado nos joelhos, está a mendiga. Não olha para mim. Olha os machados, com o rosto impassível e a postura encurvada, mas eu vejo o modo como os dedos se fecham e se abrem, repetidamente, sobre a madeira, como quem mede distâncias.
+Desço ao pátio enquanto os pretendentes ainda dormem.
 
-Anuncio as regras em voz baixa mas clara: cada um tentará armar o arco, de pé, sem ajuda, sem ferramenta; quem conseguir atirará uma flecha por todas as argolas, e se a flecha tocar qualquer uma o candidato é desclassificado; quem vencer será meu marido; quem perder sairá desta casa ao fim do dia e não voltará. Um murmúrio corre pelo pátio. Antínoo para de sorrir; vejo no rosto dele, por um instante, o cálculo que atravessa a máscara: percebeu a armadilha, mas já é tarde, duzentos olhos, os de cento e oito homens e de todos os criados, estão sobre ele. *Começaremos pelo mais jovem*, diz, com um sorriso de quem fez a melhor escolha. *Por que não o menino de Dulíquio?*
+Na luz cinza e fria, os escravos estão fincando os machados na terra. Doze, em linha, a um passo um do outro. Os cabos de carvalho enterrados até a metade, as lâminas viradas para o céu, e em cada cabo uma argola de ferro, larga como um pulso, a um palmo do chão.
 
-Vejo-os falhar, um a um, e é o espetáculo mais doloroso e mais satisfatório da minha vida. O menino de Dulíquio, de dezessete anos, corado, nervoso, pega o arco com as duas mãos, apoia a ponta no chão, e puxa, e a corda não sobe um dedo; tenta de novo, vermelho, suando, ri sem graça e passa o arco a outro. O segundo, um rapaz de Same, forçudo, de ombros de ferreiro, aperta os dentes, e o arco se dobra meio palmo, e ele solta um grunhido e o relaxa com o rosto púrpura. O terceiro tenta apoiar o joelho; o quarto, untar a corda com gordura; o quinto pede que lhe aqueçam o arco ao fogo. Todos fracassam. O pátio, a princípio barulhento, vai se calando, as risadas minguam, e conforme o arco passa de mão em mão, cada vez mais pesado, mais obstinado, mais zombeteiro, a tensão cresce. Fico sentada, imóvel, com as mãos cruzadas e o rosto de pedra, e sinto o olhar da mendiga do outro lado do pátio; não preciso me virar; sei que está fixo em mim, como uma mão pousada no ombro, e que ela conta, e tenta decifrar o que faço, por que faço. À direita o Timóteo fica cada vez mais tenso, o arco curto dele vibra contra o peito, e cada vez que um homem falha solta um pequeno suspiro, quase um soluço; pego a mão dele, sem olhar, e a aperto, e ele não a retira. Pergunta, num sussurro, por que estou fazendo isso, e eu digo que porque preciso saber, e ele não insiste. À esquerda, Nísia se inclina para mim, quando um rapaz de Zacinto se aproxima do arco com ar decidido, e diz, com a voz mais baixa que já ouvi: *Anne. Olhe o rosto dela. Ela está sorrindo.* Levanto os olhos, sem querer. E vejo: no fundo do pátio, junto à parede, a mulher de cabelos brancos, encurvada, de trapos, olhando para os machados, tem nos lábios a sombra de um sorriso, mínimo, torto, cansado, sem nenhum traço de humor, o sorriso de quem ouviu uma piada que só ela entende; o sorriso de quem, pela primeira vez em muito tempo, está se sentindo em casa. Desvio o olhar, com o pulso batendo na garganta.
+Foi o Eumeu quem mandou alinhar, com uma linha esticada e um prumo, franzindo a testa, praguejando baixinho. Quando me vê, tira o gorro.
 
-Chega a vez de Nísia às três da tarde. O sol já desceu, a sombra dos machados se alongou no chão, restam uns trinta homens, e os outros, derrotados, estão encostados nas paredes, bebendo, fazendo piadas amargas. Ela se levanta do banco ao meu lado, alisa a túnica azul-clara e diz, com um sorriso mais triste do que todos que já lhe vi, que sabe que não vai conseguir, mas que quer tentar uma vez, para eu a ver tentar. Vai ao centro do pátio, sob o olhar curioso dos homens, e estende as mãos ao rapaz de Zacinto, que lhe entrega o arco sem protestar, atônito; apoia a ponta no chão, tira a corda da extremidade, respira fundo, coloca o pé sobre a madeira como vi outros fazerem, e puxa. O arco não deixa de se mover: dobra meio palmo, um palmo, e eu prendo a respiração, sem querer; ela, de olhos fechados, com o rosto contraído, tem veias saltando no pescoço e uma gota de suor escorrendo pela têmpora, os braços tremem, um tremor fino, profundo, de quem está no limite; a corda sobe mais um dedo; e para. Nísia solta o ar, e o arco relaxa em suas mãos, e ela o deposita no chão com cuidado, como quem põe um animal para dormir, limpa a testa com a manga, e não parece decepcionada: parece aliviada. Volta ao banco ao meu lado, e ficamos caladas, lado a lado, olhando o pátio. *Eu queria que você soubesse que eu tentei*, diz, baixinho. *Não por mim. Por você. Para provar que eu não era só uma mulher que espera.* Fecho os olhos; sinto uma coisa arder atrás dos cílios. Digo que ela nunca foi só isso. Ela aperta a minha mão por um instante, rápido, discreto, e solta; é a primeira vez que me toca em três dias, e eu, sem saber por quê, sinto o olhar da mendiga me queimar as costas como um ferro.
+— Está certo, senhora?
 
-Antínoo é o último, e falha. Não de modo desonroso: levanta-se com aquela segurança de sempre, de quem foi adiando o momento até ter certeza de que todos já desistiram, e pega o arco com um gesto teatral, tira a túnica de cima, mostra os ombros largos, o peito liso, os músculos treinados, apoia a ponta no chão, engancha a corda, e puxa. O arco se dobra, um palmo, dois, o pátio inteiro prende a respiração, e Antínoo, com os dentes cerrados e o rosto vermelho, faz uma força tão grande que as veias do pescoço estufam, e a corda sobe, e sobe, e eu, sentada, com o coração aos pulos, penso: *ele vai conseguir.* A corda chega à metade do caminho, e ele solta, com um grito, e o arco se endireita de um golpe, vibrando, e Antínoo cai de joelhos, ofegante, suando. Olha o arco caído à sua frente como quem olha uma mulher que o rejeitou, e levanta o rosto, e vejo nele uma coisa que nunca vi: medo, um medo frio, pequeno, reptiliano. Porque ele sabe que ninguém vai conseguir, que o concurso foi uma armadilha, e que a armadilha está fechada, e que ele é o rato. Diz, rouco, que a rainha lhes pregou uma peça, que o arco é de um gigante, que uma mulher o armava, a esposa morta, talvez. Anuncia que fica encerrado, que amanhã tentam de novo, com o arco aquecido, ou uma corda nova. Levanto-me e digo que não haverá amanhã, que o concurso termina hoje, que quem não conseguiu sai desta casa ao pôr do sol, que anunciei a regra e todos concordaram; gritam, do fundo, que não concordaram com nada, e respondo que concordaram com o silêncio. Um murmúrio cresce, agitado, cento e oito homens se levantam, cochichando, vejo as mãos deslizarem para os cintos, onde não há espadas, porque as mandei guardar na entrada, vejo os olhares correrem para as portas trancadas, vejo Antínoo recuar um passo, o maxilar tenso. *Anne*, diz, baixo, *você está cometendo um erro. Nós somos cento e oito.* Digo que sei contar.
+Olho a fileira. Doze argolas pequenas, redondas, alinhadas como elos de uma corrente. Imagino uma flecha atravessando uma por uma, sem tocar. Nenhum olho consegue sustentar a imagem por mais de um segundo.
+
+— É impossível — diz ele, com a franqueza dos velhos. — Ninguém nesta ilha consegue. Nem o rei Laertes no tempo dele. Por que a senhora inventou isso?
+
+Olho para o Eumeu. Um homem de sessenta anos curvado pelo trabalho, que perdeu os porcos, os amigos, a mulher, e continua descendo todas as manhãs com o tributo que não devia pagar. Que dez anos atrás me olhou nos olhos, no cais, com o menino no meu colo, e disse que esperava comigo se eu deixasse.
+
+Ele está com as mãos sujas de terra até o pulso. E, por baixo da terra, nos nós dos dedos, arranhões frescos. De madeira. De carregar peso.
+
+— Alguém precisa fazer isso — digo. — E talvez não seja impossível.
+
+Ele baixa os olhos para as próprias mãos. E esconde.
 
 ---
 
-É nesse momento que a mendiga se levanta. Devagar, sem pressa, apoiando-se no cajado, com a coluna curva e os trapos pendendo dos ombros, dá um passo à frente, e outro; os homens se voltam, franzindo a testa, sem entender; ela atravessa o pátio com a lentidão de uma velha que não tem pressa porque já viu tudo, e para a um passo do arco, caído no chão junto aos pés de Antínoo. Diz, com uma voz rouca, baixa, que não é a de uma mendiga: *senhora rainha, posso tentar?* O pátio explode em gargalhadas, aliviadas, cruéis. Antínoo ri, mas o riso não chega aos olhos; diz que nem pensar, uma mendiga em concurso de nobres seria uma ofensa. Sinto a mão do Timóteo apertar a minha, o olhar de Nísia em mim, e, por cima de tudo, os olhos da mendiga, turvos, cobertos de névoa, cinzentos, fixos nos meus, esperando. Fico um longo momento em silêncio. Não é uma decisão: já foi tomada, há muito tempo, numa noite, à porta de um quarto de hóspedes. É apenas o momento de pronunciá-la.
+O arsenal fica no fundo da ala leste, atrás de uma porta baixa que range. Eu vim aqui duas noites atrás. Abracei o arco no escuro como uma idiota.
 
-— Deixem-na tentar — digo. — É um concurso aberto. Eu disse: quem conseguir. Ou acha que uma velha o envergonha mais do que você mesmo?
+Abro a porta.
 
-O pátio se cala. Antínoo aperta os lábios e dá um passo atrás. A mendiga se abaixa, devagar, com esforço, e apanha o arco do chão. Segura-o com as duas mãos, examinando-o, virando-o, passando os dedos pela madeira, pelos chifres, pela empunhadura gasta, com um carinho que não é de quem toca um objeto, mas de quem reconhece uma velha amiga. Alguns riem. Alguém assobia. Ela não ouve. Fecha os olhos e encosta a testa na curva do arco, por um instante, como quem reza. Depois, sem pressa, apoia a ponta no pé, dobra o joelho, e puxa.
+E paro.
 
-Vejo a corda subir. Não como nos outros, num esforço visível, doloroso, de músculos trêmulos: sobe como quem ergue uma cortina, lisa, contínua, inevitável. O arco se dobra em arco perfeito, e a mendiga, curvada, velha, de trapos, o dobra como se fosse um galho novo, e a corda se encaixa no entalhe com um estalo seco, limpo, que atravessa o pátio como um tiro. O riso morre em todo o pátio de uma só vez. Ela levanta a cabeça, e não parece mais velha. Eu juro. Não sei o que acontece, se é a luz do sol, o ângulo, a postura, mas por um instante a curva das costas se endireita, os ombros se abrem, e a mulher de cabelos brancos e rugas profundas parece outra coisa: alta, rija, dura, uma lança erguida contra o céu. Vejo, por baixo dos trapos, uma linha de ombro, uma linha de braço, uma forma que eu conheço tão bem quanto a minha. Pega uma flecha, encaixa-a, levanta o arco. Não olha para os machados.
+As paredes estão vazias.
+
+As lanças que ficavam em pé contra a parede como uma floresta morta: não estão. Os escudos empilhados: não estão. As espadas curtas nos suportes, o capacete de crina vermelha, as aljavas penduradas: nada. Só os ganchos, nus, e as marcas mais claras na pedra onde as armas ficaram encostadas por dez anos, como sombras de coisas que foram embora.
+
+No chão, rastros. Na poeira grossa, pegadas. Duas de adulto, uma de sandália gasta, outra descalça, de pé torto. E uma menor. De criança. Descalça.
+
+E no fundo, sozinho, no suporte de madeira que ela esculpiu, o arco.
+
+Só o arco.
+
+E a aljava com as doze flechas de bronze, encostada embaixo, arrumada, como quem arruma um presente.
+
+Fico na porta com a mão no batente.
+
+Alguém tirou as armas daqui esta noite. Alguém que sabia que ao meio-dia cento e oito homens iam se juntar no pátio desarmados, porque eu mandei que deixassem as espadas na entrada, e que, quando a coisa começasse, a primeira coisa que fariam seria correr para cá.
+
+Alguém que pensou nisso antes de mim.
+
+Alguém que deixou só o arco. Para mim. Para eu carregar com as minhas próprias mãos até o pátio e entregar.
+
+Rio. Não sei por quê. Um riso curto, sem som, no escuro do depósito, com o peito doendo.
+
+Ela está um passo na minha frente.
+
+Sempre esteve. Desde o molhe. Desde *você é alta*.
+
+Poderia voltar ao salão agora e mandar procurar as armas. Mandar o Antínoo e os amigos dele revistarem o porão, o estábulo, a pocilga. Poderia acabar com tudo, salvar cento e oito vidas, e a dela, e entregar a casa ao melhor dos piores.
+
+Entro.
+
+Tiro o arco do suporte. Pesa mais do que eu lembro. Ponho no ombro e tento, por reflexo, dobrar a ponta, e ele não cede um dedo, como se a madeira tivesse decidido que aquele gesto não tem nada a ver comigo.
+
+— Tudo bem — murmuro. — Não é para mim.
+
+Pego a aljava. E saio, sem olhar as paredes vazias.
+
+---
+
+O pátio, ao meio-dia, está cheio como um anfiteatro.
+
+Os pretendentes chegam aos poucos, ainda meio bêbados, rindo, se empurrando, e se acomodam em semicírculo em volta dos machados. Em bancos, em barris, no chão. Alguns trouxeram vinho, pão e queijo, como para uma festa. Outros vieram com amigos, apostando. Um grupo de rapazes de Zacinto fez uma lista de ordem num pedaço de papiro e discute quem vai primeiro. O Antínoo, sentado num banco alto, de pernas cruzadas, sorri para os vizinhos com o ar de quem assiste a um espetáculo já ganho.
+
+Sento no estrado improvisado, à sombra de um toldo de lona, numa cadeira de espaldar alto.
+
+O Timóteo veio. Está de pé à minha direita, segurando o arco curto contra o peito. Não olha para mim. Mas veio. E quando eu estendo a mão, sem olhar, ele demora um instante, e depois põe a dele dentro.
+
+A Nísia está à minha esquerda, num banco baixo, com as mãos cruzadas no colo. Euricleia atrás de mim, com um leque. A Melanto serve água, de olhos no chão.
+
+O Eumeu e o vaqueiro Filécio, um homem alto, de ombros largos, que chegou de manhã com uma vaca para o tributo e não foi embora, fecham as portas do pátio. E trancam. Por dentro. Sem dizer nada.
+
+Ninguém repara. Ninguém além de mim.
+
+E no fundo, junto ao muro, sentada no chão, com as costas na pedra e o cajado nos joelhos, a mendiga.
+
+Não olha para mim. Olha os machados, com o rosto impassível e a postura curva. Mas eu vejo os dedos dela se fecharem e se abrirem sobre a madeira do cajado, de novo e de novo, como quem mede distância.
+
+---
+
+Anuncio as regras em voz baixa, mas clara.
+
+Cada um vai tentar armar o arco, de pé, sem ajuda, sem ferramenta. Quem conseguir, vai atirar uma flecha pelas doze argolas. Se a flecha tocar qualquer uma, está desclassificado. Quem vencer, será meu marido. Quem perder, sai desta casa ao pôr do sol e não volta.
+
+Um murmúrio corre pelo pátio.
+
+O Antínoo para de sorrir. Vejo no rosto dele, por um instante, o cálculo atravessando a máscara. Percebeu a armadilha. Mas é tarde. Duzentos olhos estão em cima dele, os de cento e oito homens e os de todos os criados.
+
+— Começamos pelo mais novo — diz ele, com um sorriso de quem fez a melhor escolha. — Por que não o menino de Dulíquio?
+
+---
+
+Vejo eles falharem um por um, e é o espetáculo mais doloroso e mais gostoso da minha vida.
+
+O menino de Dulíquio, de dezessete anos, vermelho, nervoso, pega o arco com as duas mãos, apoia a ponta no chão e puxa. A corda não sobe um dedo. Tenta de novo, suando, ri sem graça e passa o arco adiante.
+
+O segundo, um rapaz de Same, forte, de ombros de ferreiro, aperta os dentes, e o arco dobra meio palmo, e ele solta um grunhido e larga com a cara roxa.
+
+O terceiro tenta apoiar o joelho. O quarto pede gordura para untar a corda. O quinto manda esquentar o arco no fogo, e esquentam, e ele falha quente.
+
+Todos falham.
+
+O pátio, barulhento no começo, vai se calando. As risadas vão rareando. E conforme o arco passa de mão em mão, cada vez mais pesado, mais teimoso, mais debochado, a tensão cresce como água numa bacia.
+
+Fico sentada, imóvel, de mãos cruzadas e rosto de pedra.
+
+E sinto o olhar da mendiga do outro lado do pátio. Não preciso virar. Sei que está em mim. Como uma mão pousada no ombro. Ela conta. Tenta decifrar o que eu faço, por que eu faço. Sabe que fui eu quem carregou o arco. Sabe que eu vi as paredes vazias. Sabe que eu sei.
+
+E não sabe o que eu vou fazer.
+
+Pela primeira vez em vinte anos, ela não sabe o que eu vou fazer.
+
+É uma sensação que me sobe pela barriga como vinho quente.
+
+À minha direita, o Timóteo fica cada vez mais tenso. O arco curto dele vibra contra o peito. Cada vez que um homem falha, ele solta um suspiro pequeno, quase um soluço. Aperto a mão dele. Ele não tira.
+
+— Por que você está fazendo isso? — sussurra.
+
+— Porque eu preciso saber.
+
+— Saber o quê?
+
+Não respondo.
+
+Saber se ela levanta. Saber se ela me escolhe na frente de todos ou se escolhe o disfarce mais um dia. Saber se dez anos de lamparina valeram um passo no meio de um pátio.
+
+À esquerda, a Nísia se inclina para mim, quando um rapaz de Zacinto se aproxima do arco com ar decidido.
+
+— Anne — diz, com a voz mais baixa que eu já ouvi nela. — Olha a cara dela. Ela está sorrindo.
+
+Levanto os olhos. Sem querer.
+
+E vejo.
+
+No fundo do pátio, junto ao muro, a mulher de cabelo branco, curva, de trapo, olhando os machados, tem nos lábios a sombra de um sorriso. Mínimo. Torto. Cansado. Sem nenhum humor. O sorriso de quem ouviu uma piada que só ela entende.
+
+O sorriso de quem, pela primeira vez em muito tempo, se sente em casa.
+
+Desvio o olhar. Com o pulso batendo na garganta.
+
+---
+
+A vez da Nísia chega às três da tarde.
+
+O sol já desceu. A sombra dos machados se esticou no chão. Restam uns trinta homens, e os outros, derrotados, estão encostados nas paredes bebendo, fazendo piada amarga.
+
+Ela se levanta do banco ao meu lado e alisa a túnica azul-clara.
+
+— Eu sei que não vou conseguir — diz, com um sorriso mais triste do que todos os que eu já vi nela. — Mas quero tentar uma vez. Para você me ver tentando.
+
+Vai ao centro do pátio, debaixo do olhar curioso dos homens, e estende as mãos para o rapaz de Zacinto, que entrega o arco sem protestar, de boca aberta.
+
+Ela apoia a ponta no chão. Põe o pé sobre a madeira, como viu os outros fazerem. Respira fundo. Puxa.
+
+O arco se mexe.
+
+Dobra meio palmo. Um palmo.
+
+Eu prendo a respiração. Sem querer.
+
+Ela está de olhos fechados, com o rosto contraído, as veias saltando no pescoço, uma gota de suor descendo pela têmpora. Os braços tremem. Um tremor fino, fundo, de quem está no limite do que tem.
+
+A corda sobe mais um dedo.
+
+E para.
+
+A Nísia solta o ar. O arco relaxa nas mãos dela. Ela o põe no chão com cuidado, como quem põe um animal para dormir. Limpa a testa com a manga.
+
+Não parece decepcionada. Parece aliviada.
+
+Volta ao banco do meu lado. Ficamos caladas, lado a lado, olhando o pátio.
+
+— Eu queria que você soubesse que eu tentei — diz, baixinho. — Não por mim. Por você. Para provar que eu não era só uma mulher que espera.
+
+Fecho os olhos. Uma coisa arde atrás dos cílios.
+
+— Você nunca foi só isso.
+
+Ela aperta a minha mão um instante. Rápido. Discreto. E solta.
+
+E eu sinto, do outro lado do pátio, o olhar da mendiga me queimar as costas como ferro em brasa.
+
+Não me viro. Deixo queimar.
+
+Que ela sinta. Uma vez. Um pouco do que eu senti dez anos, imaginando a cama da ninfa.
+
+É mesquinho. Eu sei. E é gostoso. E me odeio pelo gosto.
+
+---
+
+O Antínoo é o último. E falha.
+
+Não de um jeito desonroso. Ele se levanta com aquela segurança de sempre, de quem foi adiando o momento até ter certeza de que todos desistiram. Pega o arco com um gesto de teatro. Tira a túnica de cima e mostra os ombros largos, o peito liso, os músculos treinados no ginásio de Same. Apoia a ponta no chão. Engancha a corda.
+
+E puxa.
+
+O arco dobra. Um palmo. Dois.
+
+O pátio inteiro prende a respiração.
+
+O Antínoo, com os dentes cerrados e a cara vermelha, faz tanta força que as veias do pescoço incham como cordas. E a corda sobe. E sobe. E eu, sentada, com o coração saltando, penso, num pânico frio:
+
+*Ele vai conseguir.*
+
+A corda chega à metade do caminho.
+
+E ele solta. Com um grito.
+
+O arco se endireita de uma vez, vibrando como um sino, e o Antínoo cai de joelhos, ofegante, encharcado de suor.
+
+Olha o arco caído na frente dele como quem olha uma mulher que o rejeitou. Depois levanta o rosto. E eu vejo nele uma coisa que nunca vi. Medo. Um medo frio, pequeno, de réptil.
+
+Porque ele sabe que ninguém vai conseguir. Que o concurso foi uma armadilha. Que a armadilha fechou. E que ele é o rato.
+
+— A rainha nos pregou uma peça — diz, rouco, se levantando. — O arco é de gigante. Nenhum homem vivo arma isso. Só a esposa morta, talvez. — Vira para os outros. — Fica encerrado por hoje. Amanhã a gente tenta de novo. Com o arco aquecido. Com uma corda nova.
+
+Levanto.
+
+— Não vai ter amanhã. O concurso termina hoje. Quem não conseguiu sai desta casa ao pôr do sol. Eu anunciei a regra, e todos concordaram.
+
+— Ninguém concordou com nada! — grita alguém do fundo.
+
+— Concordaram com o silêncio.
+
+O murmúrio cresce. Agitado. Cento e oito homens se levantam, cochichando. Vejo as mãos escorregarem para os cintos, onde não há espadas, porque eu mandei deixar na entrada. Vejo os olhos correrem para as portas trancadas. Vejo três rapazes de Dulíquio saírem de lado, disfarçando, em direção à porta baixa da ala leste.
+
+O arsenal.
+
+Vazio.
+
+Vejo o Antínoo recuar um passo, com o maxilar duro.
+
+— Anne — diz ele, baixo. — Você está cometendo um erro. Nós somos cento e oito.
+
+— Eu sei contar.
+
+---
+
+É nesse momento que a mendiga se levanta.
+
+Devagar. Sem pressa. Apoiada no cajado, com a coluna curva e os trapos pendurados nos ombros.
+
+Dá um passo à frente. Outro.
+
+Os homens viram a cabeça, franzindo a testa, sem entender. Ela atravessa o pátio com a lentidão de uma velha que não tem pressa porque já viu tudo, e para a um passo do arco, caído no chão perto dos pés do Antínoo.
+
+— Senhora rainha — diz.
+
+A voz é rouca. Baixa. E não é de mendiga.
+
+— Posso tentar?
+
+O pátio explode em gargalhada. Aliviada. Cruel. A gargalhada de cento e oito homens que, por um instante, esqueceram que estavam com medo.
+
+O Antínoo ri também, mas o riso não chega aos olhos.
+
+— Nem pensar. Uma mendiga num concurso de nobres? Isso é uma ofensa à rainha.
+
+Sinto a mão do Timóteo apertar a minha até doer. Sinto o olhar da Nísia em mim.
+
+E por cima de tudo, os olhos da mendiga. Turvos. Cobertos de névoa. Cinzentos. Fixos nos meus.
+
+Esperando.
+
+Fico um longo momento em silêncio.
+
+Não é uma decisão. Já foi tomada. Há muito tempo. Numa noite, numa porta de quarto de hóspedes, com a minha palma na madeira. Hoje de manhã, numas paredes vazias.
+
+É só o momento de dizer.
+
+— Deixem ela tentar — digo. — É um concurso aberto. Eu disse: quem conseguir. — Olho para o Antínoo. — Ou você acha que uma velha te envergonha mais do que você mesmo já se envergonhou?
+
+O pátio se cala.
+
+O Antínoo aperta os lábios e dá um passo para trás.
+
+---
+
+A mendiga se abaixa. Devagar. Com esforço. E pega o arco do chão.
+
+Segura com as duas mãos. Examina. Vira. Passa os dedos pela madeira, pelos chifres, pela empunhadura gasta. Com um carinho que não é de quem toca um objeto. É de quem reconhece uma velha amiga.
+
+Alguém ri. Alguém assobia.
+
+Ela não ouve.
+
+Fecha os olhos. Encosta a testa na curva do arco, um instante, como quem reza.
+
+E eu sei, eu sei com a pele, que ela está sentindo o cheiro. O cheiro que eu senti duas noites atrás, no escuro do depósito, de nariz na madeira. Que ela está sentindo o meu cheiro ali, misturado ao dela, e que sabe que eu estive lá.
+
+Depois, sem pressa, ela apoia a ponta no pé. Dobra o joelho. E puxa.
+
+---
+
+A corda sobe.
+
+Não como nos outros, num esforço visível, doído, de músculo tremendo. Sobe como quem levanta uma cortina. Lisa. Contínua. Inevitável.
+
+O arco se dobra numa curva perfeita. E a mendiga, curva, velha, de trapo, dobra o arco como se fosse um galho novo, e a corda se encaixa no entalhe com um estalo seco e limpo que atravessa o pátio como uma chicotada.
+
+O riso morre no pátio inteiro de uma vez.
+
+Ela levanta a cabeça.
+
+E não parece mais velha.
+
+Eu juro. Não sei o que acontece. Se é a luz, o ângulo, a postura. Mas por um instante a curva das costas se endireita. Os ombros se abrem. E a mulher de cabelo branco e rugas fundas parece outra coisa. Alta. Rija. Dura. Uma lança levantada contra o céu.
+
+Vejo, por baixo dos trapos, uma linha de ombro, uma linha de braço, uma forma que eu conheço tão bem quanto a minha. Que eu conheço de noite, no escuro, com as mãos.
+
+Ela pega uma flecha da aljava. Encaixa. Levanta o arco.
+
+Não olha para os machados.
 
 Olha para mim.
 
-Por um segundo, só um, por cima de doze argolas de ferro e de cem cabeças imóveis, os nossos olhos se encontram. E eu vejo, finalmente, sem disfarce, sem neblina, sem a menor sombra de dúvida, o rosto da mulher que amei durante vinte anos. Não o de velha: o verdadeiro, o que tem uma cicatriz pequena no queixo e uma linha de sal seco no canto da boca e uma pergunta nos olhos que eu nunca soube responder. *Posso?*, pergunta, sem som, só com os lábios. E eu, sentada na cadeira alta, com o filho dela pela mão, com a mulher que dormiu uma noite comigo ao lado, com cento e oito homens que a querem morta ao redor, abro a boca, e, pela primeira vez em dez anos, digo a palavra que me queima na língua.
+---
+
+Por um segundo, um só, por cima de doze argolas de ferro e de cem cabeças imóveis, os nossos olhos se encontram.
+
+E eu vejo, finalmente, sem disfarce, sem névoa, sem a menor sombra de dúvida, o rosto da mulher que eu amei durante vinte anos.
+
+Não o de velha. O verdadeiro. Com a cicatriz pequena no queixo. Com a linha de sal seco no canto da boca. Com uma pergunta nos olhos que eu nunca soube responder.
+
+*Posso?*, pergunta ela. Sem som. Só com os lábios.
+
+E eu, sentada na cadeira alta, com o filho dela pela mão, com a mulher que dormiu uma noite comigo do lado, com cento e oito homens que a querem morta em volta, abro a boca.
+
+E pela primeira vez em dez anos digo a palavra que me queima a língua.
 
 — Sim.
 
-A flecha voa. Atravessa a primeira argola, a segunda, a terceira, rápida, reta, sem tocar ferro, com um assobio fino que corta o ar como uma faca de seda. A quarta, a quinta, a sexta. Ninguém respira. A sétima, a oitava. O Timóteo solta um som sufocado. A nona, a décima, a décima primeira. A décima segunda. A flecha sai do outro lado e se crava no muro de pedra, num estalo, vibrando. Por um segundo, o pátio inteiro é só silêncio. Depois a mulher de cabelos brancos baixa o arco devagar, solta a respiração e, sem pressa, com os mesmos movimentos tranquilos de quem abre uma porta, pega uma segunda flecha da aljava a seus pés, encaixa-a na corda e se volta, lentamente, para Antínoo.
+---
 
-— Agora — diz, com uma voz que já não é de velha, nem de mendiga, nem de ninguém, mas a voz rouca, grave, familiar, que eu ouvia nos meus sonhos —, vou escolher outro alvo.
+A flecha voa.
 
-O sorriso de Antínoo desaparece. Ele abre a boca. E é só então, tarde demais, quando vejo cair dos ombros dela o último pedaço de trapo, revelando por baixo uma cicatriz de lança nas costelas, que eu entendo, com uma clareza fria e total, exatamente o que fiz. Eu a armei. Dei-lhe o arco, e o palco, e o momento. Pus nas mãos da mulher que mais ama e mais odeia o poder de matar cento e oito homens diante do filho e da minha convidada. E agora, sentada na cadeira alta, a um passo da catástrofe que eu mesma montei, não sinto medo, nem triunfo, nem arrependimento. Sinto só, com uma clareza vertiginosa, que a minha mulher voltou para casa. E que vai haver sangue.
+Atravessa a primeira argola. A segunda. A terceira. Rápida, reta, sem tocar o ferro, com um assobio fino que corta o ar como faca de seda.
+
+A quarta. A quinta. A sexta.
+
+Ninguém respira.
+
+A sétima. A oitava.
+
+O Timóteo solta um som sufocado.
+
+A nona. A décima. A décima primeira.
+
+A décima segunda.
+
+A flecha sai do outro lado e crava no muro de pedra com um estalo, vibrando.
+
+Por um segundo o pátio inteiro é só silêncio.
+
+Depois a mulher de cabelo branco baixa o arco devagar. Solta o ar. E sem pressa, com os mesmos gestos tranquilos de quem abre uma porta de casa, pega uma segunda flecha da aljava a seus pés. Encaixa na corda.
+
+E se vira, lentamente, para o Antínoo.
+
+— Agora — diz.
+
+Com uma voz que já não é de velha, nem de mendiga, nem de ninguém. A voz rouca, grave, conhecida. A voz que eu ouvia nos sonhos e perdia ao acordar.
+
+— Agora eu vou escolher outro alvo.
+
+O sorriso do Antínoo desaparece. Ele abre a boca.
+
+E é só então, tarde demais, vendo cair dos ombros dela o último trapo, e por baixo uma cicatriz de lança atravessando as costelas, que eu entendo, com uma clareza fria e total, o que eu fiz.
+
+Eu a armei.
+
+Dei a ela o arco. E o palco. E o momento. Carreguei o arco com as minhas mãos. Tranquei as portas com o meu silêncio. Pus nas mãos da mulher que eu mais amo e mais odeio o poder de matar cento e oito homens na frente do filho dela e da minha convidada.
+
+E agora, sentada na cadeira alta, a um passo da catástrofe que eu mesma montei, não sinto medo. Nem triunfo. Nem arrependimento.
+
+Sinto só, com uma clareza que dá vertigem, que a minha mulher voltou para casa.
+
+E que vai haver sangue.

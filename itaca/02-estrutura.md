@@ -59,3 +59,4 @@ Epílogo — A primeira carta
 - Cicatriz do javali: coxa DIREITA, acima do joelho, por fora. A lasca da tempestade: coxa esquerda.
 - Emily usou "Éton" como nome falso diante de Anne (cap. 8).
 - Cap. 7: Emily ensina Timóteo a mirar um palmo à direita; cap. 8: Timóteo conta a Anne.
+- Anticleia morre no TERCEIRO inverno (antes da descida de Emily aos mortos, ano ~4). Anne lia cartas inventadas para ela nos anos 1-3.
