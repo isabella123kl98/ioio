@@ -1,13 +1,10 @@
-# Guia de estilo
+# Guia de estilo (revisão 2)
 
-- **Primeira pessoa, presente**, um único narrador por capítulo, nome em itálico no topo (*Emily* ou *Anne*). Capítulos ímpares: Emily. Pares: Anne (ajustável).
-- **Capítulos longos**: ~5.500–6.500 palavras, cenas separadas por `---`.
-- **Sem diálogo pingue-pongue.** Falas raras, curtas, inseridas em blocos de prosa ou em travessão solto. O peso está no monólogo interior, na ação e no detalhe.
-- **Densidade sensorial**: sal, cheiro, textura, dor física concreta. Corpo sempre presente.
-- **Frases**: parágrafos longos encadeados por vírgulas e "e", cortados por frases curtas de impacto ("Ela deixou a lamparina acesa.").
-- **Contas**: a narradora conta quando tem medo.
-- **Ironia seca** dentro da dor.
-- **Fim de capítulo**: uma imagem e uma promessa, nunca um resumo.
-- **Liberdade com o mito**: estrutura homérica, detalhes reinventados.
-- **Romance**: briga, ciúme e raiva são motor. Nenhuma cena de reconciliação completa antes da parte final.
-- **Sexo**: sugerido, nunca explícito.
+## Regras
+1. **Nada de pingue-pongue.** Diálogo só em falas longas (cada fala com peso, 80–300 palavras), entremeadas de percepção, corpo e memória. A resposta do outro vem depois, às vezes só no olhar ou na ação. Muito discurso indireto livre.
+2. **Densidade.** Parágrafos longos, frases encadeadas, detalhe sensorial concreto, pensamento que se desdobra. Cada cena precisa ter um núcleo que mude algo entre as duas.
+3. **Frio na barriga.** Tensão física e emocional constante entre Emily e Anne, mesmo (e sobretudo) nas brigas: a respiração presa, a distância de um palmo, o calor de um corpo que se aproxima, a mão que quase toca, o silêncio que pesa. O desejo é anterior ao ato. Cenas de sexo: mais atenção, expectativa e entrega do que coreografia; explícitas, mas guiadas pela tensão.
+4. **Sem tiques.** Evitar "o ar me falta", "o coração aos pulos", "riso rouco", "lágrimas sem som", "contar um, dois, três" como muleta. Cada um só quando for insubstituível.
+5. **Vozes distintas.** Emily: concreta, marítima, seca, observa mãos e ofícios, fala curto por pudor mas pensa comprido. Anne: precisa, irônica, contábil, controlada, frase longa e afiada, ressentimento que se disfarça de lógica.
+6. **Menos choro, mais consequência.** Quando chorarem, que seja raro e custe.
+7. Primeira pessoa, presente. Cenas separadas por `---`.
