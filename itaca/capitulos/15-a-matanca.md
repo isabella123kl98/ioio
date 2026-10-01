@@ -468,7 +468,7 @@ Olho a janela alta da ala leste. Pequena. Meio escondida pela sombra da torre. N
 
 Sinto o braço dele apertar a minha perna.
 
-O sol desce sobre o pátio, devagar, cor de cobre, como desceu no dia em que eu parti, quando ela não foi ao cais. Sobre o sangue. Sobre o rosto do Antínoo, que olha o céu sem ver.
+O sol desce sobre o pátio, devagar, cor de cobre, como descia nas tardes do último verão antes de Troia, quando ela me esperava no alpendre fingindo ler. Sobre o sangue. Sobre o rosto do Antínoo, que olha o céu sem ver.
 
 E sinto, pela primeira vez em dez anos, o peso exato do que eu fiz. E do que eu deixei de fazer.
 
