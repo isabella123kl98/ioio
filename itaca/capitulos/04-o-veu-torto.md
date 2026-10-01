@@ -60,7 +60,7 @@ Agarrei pela ponta direita, a do vinco, antes que ele voasse para a água, e pre
 
 É assim que ela me vê pela primeira vez. Com o véu torto, um olho coberto de seda e o outro arregalado, o queixo empinado para esconder o tremor.
 
-Ela está de pé no fim do molhe, sozinha. Os conselheiros ficaram três passos atrás, como se ela tivesse mandado. Está de braços cruzados, vestida de azul-escuro, sem coroa, sem joia, sem nada que dissesse rainha além do jeito de estar parada.
+Ela está de pé no fim do molhe, sozinha. Os conselheiros ficaram três passos atrás, como se ela tivesse mandado. Está de braços cruzados, vestida de azul-escuro, nenhuma coroa, nenhuma joia, nada que dissesse rainha além do jeito de estar parada.
 
 Não é enorme. Não tem braços de ferreiro. É de altura mediana, ombros largos, o rosto queimado de sol e uma linha de sal seco no canto da boca. Os olhos são claros, de quem passa muito tempo olhando o horizonte. Não sorri. Não franze a testa. Só observa, e eu tenho a sensação de estar sendo lida inteira, letra por letra, em menos tempo do que eu levaria para dizer o meu nome.
 
@@ -114,21 +114,19 @@ Fiquei ali um tempo que não sei medir. Olhando. Sem decidir olhar. Sentindo o r
 
 Um carpinteiro velho me viu e cutucou outro. Os dois tiraram o gorro. E ela, lá em cima, percebeu que tinham parado de martelar, e virou a cabeça, e me viu.
 
-Não desceu. Não se cobriu. Ficou lá em cima do casco, com o formão na mão e o suor no rosto, me olhando. E eu, que tinha jurado não dar a ela nada, nem uma palavra, nem um olhar, fiquei parada atrás das tábuas como uma idiota.
+Ficou lá em cima do casco, descoberta, com o formão na mão e o suor no rosto, me olhando. E eu, que tinha jurado não dar a ela nada, nem uma palavra, nem um olhar, fiquei parada atrás das tábuas como uma idiota.
 
-— Precisa de alguma coisa? — perguntou, de lá de cima.
+— Se veio fiscalizar o dote, a madeira é de Corinto e foi paga com o ferro do seu pai — gritou ela lá de cima, sem descer, com o formão parado no ar. — Se veio fugir, o barco ainda não tem fundo, e eu recomendo esperar o próximo.
 
-— Não.
+— Vim ver o porto — eu disse, e a voz saiu mais aguda do que eu queria, de menina que foi pega espiando pela fresta.
 
-— Então veio ver o navio.
+— O porto fica para lá. — Ela apontou com o formão, sem pressa, para o lado oposto ao que eu estava olhando. — Aqui só tem pinho, piche e uma rainha suada. Mas pode ficar, se aguentar o cheiro. Os homens não vão te incomodar.
 
-— Vim ver o porto.
+— Os seus homens não me assustam. Em Esparta eles teriam vergonha de segurar um martelo desse jeito.
 
-— O porto fica para lá. — Ela apontou com o formão, sem pressa. — Aqui é o estaleiro. Mas pode ficar. Os homens não vão te incomodar.
+Ela riu alto, lá de cima, com o pescoço jogado para trás e o suor escorrendo pela garganta até o vão do peito, e eu odiei ter olhado para onde o suor escorria.
 
-— Eu não tenho medo dos seus homens.
-
-— Eu sei. — Ela voltou a encaixar o formão na viga. — Eles é que têm medo de você.
+— Eles têm medo é de você, princesa. — Voltou a encaixar o formão na viga. — Desde que você desceu do barco. O velho Políbio disse que você olhou para ele como quem escolhe onde enfiar a faca.
 
 Deu o golpe seguinte com o maço. A lasca de madeira saltou e caiu na areia aos meus pés.
 
@@ -156,7 +154,7 @@ Só entendi que falava da Emily quando já estava no altar.
 
 Recitei os votos numa língua que não era a minha. Senti a mão dela na minha, firme, calosa, quente, e não olhei para ela. Olhei o ponto entre as sobrancelhas de um sacerdote calvo e contei as rugas da testa dele. Trinta e duas. No fim da cerimônia, a mão dela apertou a minha uma vez, muito de leve, e soltou.
 
-Não sei se foi coragem. Não sei se foi pena.
+Até hoje não decidi se foi coragem ou pena.
 
 No banquete, uma tia dela se levantou bêbada para fazer um brinde grosseiro sobre a noite que nos esperava, com gestos, e o salão inteiro gargalhou, e eu senti o sangue subir até a raiz dos cabelos. A Emily bateu com a taça na mesa. Não gritou. Disse, sem levantar a voz, que já bastava. E o salão inteiro se calou como se tivessem fechado uma porta.
 
@@ -180,17 +178,17 @@ Ela entrou sem o vestido da cerimônia. Só uma túnica branca de dormir, os pé
 
 Olhou o véu no chão. Não disse nada sobre ele.
 
-— Nós não precisamos fazer nada — disse, olhando para a janela, não para mim. — Nem esta noite nem nas outras. Eu posso dormir no chão, ou na sala. Ninguém vai saber. As mulheres vão conferir o lençol de manhã, e eu sei enganar as mulheres. Corto o dedo, se for preciso.
+— Nós não precisamos fazer nada — disse, olhando para a janela, não para mim. — Nem esta noite nem nas outras. Eu posso dormir no chão, ou na sala. Ninguém vai saber. As mulheres vão conferir o lençol de manhã, e enganar velha é coisa que eu faço desde os nove anos. Corto o dedo, se for preciso.
 
 Senti um ódio súbito, quente, sem nome. Não dela. Do tamanho da coisa. Da generosidade.
 
 Levantei da cama, e o chão girou, e eu deixei girar.
 
-— Você acha que eu sou uma criança.
+— Você me trata como uma criança que precisa ser poupada do escuro — eu disse, e a voz tremia de vinho e de raiva. — Corta o dedo, dorme no chão, engana as velhas. Muito nobre. Muito generoso. Eu atravessei o mar para casar, e você atravessou o corredor para fugir.
 
-— Acho que você tem dezesseis anos.
+— Você tem dezesseis anos, Anne. Chorou a cerimônia inteira por dentro, eu vi o seu queixo. Eu não vou...
 
-— E eu acho que você é uma covarde.
+— E você é uma covarde que se esconde atrás da minha idade.
 
 Dessa vez ela me olhou.
 
@@ -200,13 +198,13 @@ Isso me deu mais raiva do que tudo. Eu queria que ela fosse o monstro que eu tin
 
 — Você me comprou — eu disse. — O meu pai, o seu pai e as suas leis me venderam, e você comprou. E agora quer que eu agradeça por você não usar o que comprou.
 
-Ela demorou muito a responder. Quando respondeu, a voz saiu baixa e quebrada, e eu sei que nunca vou esquecer.
+Ela demorou muito a responder. Quando respondeu, a voz saiu baixa e quebrada, e eu nunca esqueci o som.
 
-— Eu não quero que você agradeça nada. — Engoliu. — O que eu quero, e sei que é pedir demais, é que você não me odeie. Só isso. Eu quero tentar.
+— Eu não quero que você agradeça nada. — Engoliu. — Eu quero uma coisa muito mais difícil do que isso, e é pedir demais. Que você não me odeie. Pelo menos não de saída. Me deixa tentar antes de decidir.
 
 E foi só isso que fez o meu rosto cair.
 
-Não os votos. Não a cerimônia. Não a mão calosa. Essa frase, dita por uma mulher de vinte anos que carregava um reino nos ombros e não sabia fazer ninguém gostar dela, com uma jarra de vinho na mesa e os pés descalços no chão frio.
+Os votos não tinham conseguido, nem a cerimônia, nem a mão calosa. Foi essa frase, dita por uma mulher de vinte anos que carregava um reino nos ombros e não sabia fazer ninguém gostar dela, com uma jarra de vinho na mesa e os pés descalços no chão frio.
 
 As lágrimas que a minha mãe me mandou esconder chegaram, e eu não escondi.
 
@@ -216,13 +214,11 @@ Ela não me tocou. Ficou de pé ao lado, sem saber o que fazer com as mãos. Dep
 
 Quando parei, o quarto estava escuro. A vela tinha morrido sem que nenhuma das duas visse.
 
-— Eu não quero dormir sozinha — eu disse, no escuro.
+— Eu não quero dormir sozinha — eu disse, no escuro. — Mas se você encostar um dedo em mim eu grito, e as velhas vão achar que foi de prazer, e você vai passar a vida inteira sendo cumprimentada no cais com piscadela.
 
-— Então eu fico.
+Ouvi ela rir baixo, pelo nariz, do chão.
 
-— Mas também não quero que você me toque.
-
-— Eu sei.
+— Prometo ficar do meu lado da cama como quem fica do lado de lá de uma fronteira em tempo de guerra.
 
 O colchão cedeu. O peso dela ao meu lado, por cima da colcha, vestida, a um braço de distância. Ficamos olhando o teto, sem nos tocar. Eu ouvia ela respirar. Ela me ouvia respirar. Duas pessoas muito educadas, deitadas no escuro, morrendo de vontade de alguma coisa que nenhuma das duas sabia o nome.
 
@@ -242,7 +238,7 @@ Ela se enrijeceu inteira.
 
 Deixei a mão no ombro dela.
 
-Ela cobriu a minha mão com a dela, sem se virar. Ficou assim. E eu senti uma coisa crescer dentro de mim que não era amor, nem desejo, nem pena, mas uma mistura de tudo, sem nome, como a água do mar quando encontra a água do rio e ninguém sabe dizer onde uma termina.
+Ela cobriu a minha mão com a dela, sem se virar. Ficou assim. E eu senti uma coisa crescer dentro de mim que não era amor, nem desejo, nem pena, mas uma mistura das três, sem nome, como a água do mar quando encontra a água do rio e ninguém sabe dizer onde uma termina.
 
 Não tinha palavras. Então fiz o que não sabia dizer.
 
@@ -270,13 +266,9 @@ O beijo dela era lento. Tinha gosto de vinho e de sal. As mãos dela subiram pel
 
 Era a primeira vez que dizia o meu nome. Senti o nome passar da boca dela para a minha como um gole de água.
 
-— Me diga se eu for rápida demais.
+— Se eu for rápida demais, você me diz. Me puxa o cabelo, me morde, qualquer coisa. Eu não sei ler você ainda, e não quero errar a primeira página.
 
-— Não é.
-
-— Diga assim mesmo.
-
-— Cale a boca.
+— Se você continuar falando eu vou ficar velha antes de você chegar na segunda — eu disse, contra a boca dela. — Cala a boca, Emily.
 
 Ela riu, e eu senti o riso vibrar entre nós. Depois não riu mais.
 
@@ -284,7 +276,7 @@ As mãos dela desataram os laços da minha camisola com dedos que tremiam. O tec
 
 Não pediu nada. Esperou.
 
-Depois de um tempo, abri os braços. Não sei por quê. Acho que pelo jeito como ela me olhava no escuro: sem fome, sem posse, com uma espécie de assombro, como quem vê o mar pela primeira vez.
+Depois de um tempo, abri os braços. Não sei por quê. Acho que pelo jeito como ela me olhava no escuro: com uma espécie de assombro, nada de fome nem de posse, como quem vê o mar pela primeira vez.
 
 A boca dela desceu pelo meu pescoço, pelo vão da clavícula, pelo peito. Quando tomou o meu seio, ouvi sair da minha garganta um som que eu não reconheci, e levei a mão à boca para abafar, e ela pegou a minha mão e a afastou, com suavidade.
 
@@ -314,9 +306,9 @@ Fiz que sim sem voz.
 
 Os dedos dela me encontraram, e eu estava molhada, mais do que imaginava, e o rubor me subiu à cara como febre. Ela pareceu saber. Beijou a minha testa.
 
-— Isso é bom — disse. — Quer dizer que está tudo bem.
+— Isso é bom — disse, e a voz dela tinha uma ponta de orgulho que me deu vontade de bater nela. — Quer dizer que o seu corpo gostou de mim antes de você.
 
-Tocou-me devagar, em círculos, e eu mordi o lábio e agarrei o lençol e senti o mundo inteiro se estreitar em volta de um ponto só. Ninguém nunca tinha me tocado assim. Eu nunca tinha me tocado assim. A minha mãe disse que era sofrimento, que era suportar, que era olhar o teto e contar. Não era sofrimento. Era uma coisa que subia, e subia, e não tinha para onde ir. Eu disse o nome dela. Disse de novo. Ela respondeu com o meu, contra o meu pescoço.
+Tocou-me devagar, em círculos, com a ponta molhada de dois dedos, subindo e descendo sem pressa, e quando eu levantei o quadril sem querer ela riu baixinho e não acelerou. Eu mordi o lábio e agarrei o lençol e senti o corpo se estreitar em volta de um ponto só, o calor subindo das coxas para a barriga, a pele do peito arrepiada onde a respiração dela batia. Ninguém nunca tinha me tocado assim. Eu nunca tinha me tocado assim. A minha mãe disse que era sofrimento, que era suportar, que era olhar o teto e contar. Não era sofrimento. Era uma coisa que subia, e subia, e não tinha para onde ir. Eu disse o nome dela. Disse de novo. Ela respondeu com o meu, contra o meu pescoço.
 
 E quando chegou, chegou como onda que não pede licença. Me arrastou, me virou do avesso, me deixou ofegante e tremendo, chorando e rindo ao mesmo tempo, sem saber qual das duas coisas.
 
@@ -324,11 +316,11 @@ Ela me abraçou. Fiquei com a orelha no peito dela, e o coração dela batia rá
 
 — Eu também quero — eu disse, quando consegui falar. — Me ensina.
 
-— Eu não sei se eu sei.
+Ela ficou um tempo quieta, com o queixo no meu cabelo.
 
-— Então a gente aprende.
+— Uma lança aos dezesseis, uma espada aos dezoito, e nunca ninguém me pediu para ensinar isso — disse, afinal, e a voz estava rindo de si mesma. — Acho que a gente vai ter que aprender as duas ao mesmo tempo, princesa. E você vai ser melhor aluna do que eu, que você conta tudo.
 
-Aprendemos devagar. Com erros. Com riso. Com um momento em que eu esbarrei com o cotovelo na cicatriz das costelas e ela me virou de costas no colchão e prendeu os meus pulsos acima da cabeça e me olhou com uma ferocidade que me tirou o ar. A boca dela na minha. Os dentes dela no meu lábio de baixo. A coxa dela entre as minhas pernas. E a minha mão, guiada pela dela, descendo até onde ela queria.
+Aprendemos devagar. Com erros. Com riso. Com um momento em que eu esbarrei com o cotovelo na cicatriz das costelas e ela me virou de costas no colchão e prendeu os meus pulsos acima da cabeça e me olhou com uma ferocidade que me tirou o ar. A boca dela na minha. Os dentes dela no meu lábio de baixo. A coxa dela entre as minhas pernas, firme, pressionando onde eu ainda estava sensível, e eu gemendo sem vergonha nenhuma agora. E a minha mão, guiada pela dela, descendo até onde ela queria, aprendendo com os dedos dela por cima dos meus o ritmo que ela gostava, mais forte do que eu teria ousado, mais rápido, até ela soltar a minha mão e eu continuar sozinha.
 
 Senti-a estremecer contra mim. Ouvi-a dizer o meu nome entre os dentes, numa voz que eu nunca tinha ouvido nela, rouca, rachada. E senti quando ela chegou também, com um gemido baixo contra o meu ombro, o corpo inteiro tenso como corda de arco, e depois mole, desabando por cima de mim, pesada, quente.
 
@@ -340,7 +332,7 @@ A cara dela, dormindo, era outra. Sem a armadura da testa franzida, sem o maxila
 
 Disse a mim mesma que era o vinho. O medo. A circunstância. Que eu estava sozinha e ela tinha sido gentil, e só isso. Que amanhã eu acordaria e voltaria a ser a princesa de Esparta que foi vendida.
 
-Disse tudo isso com muita convicção, olhando o teto.
+Disse isso com muita convicção, olhando o teto.
 
 Mas o braço dela continuava pesando na minha cintura, e eu não tirei.
 
@@ -358,11 +350,9 @@ Não sei o que me deu.
 
 Peguei o travesseiro mais próximo e atirei na cara dela.
 
-— Você me deve uma camisola — eu disse. — Rasgou a minha.
+— Você me deve uma camisola — eu disse. — Rasgou a minha, que a minha mãe bordou, e agora vou ter que explicar a uma mulher de gelo em Esparta o que aconteceu com o bordado.
 
-— Eu não rasguei. Você é que puxou o laço.
-
-— Então me deve um laço.
+— Quem puxou o laço com os dentes foi você, princesa. Eu tenho testemunha. — Ela apontou a marca no próprio ombro. — Esta aqui.
 
 Ela riu. Com o travesseiro no colo e o cabelo em pé, riu um riso que eu ainda não conhecia, aberto, de menina, com a cabeça para trás. As mulheres bateram de novo. E eu ri também, sem conseguir parar, e senti as lágrimas chegando outra vez, e não sabia se eram de riso ou de outra coisa.
 
@@ -388,7 +378,7 @@ Nísia.
 
 O estômago faz um movimento que eu não autorizei.
 
-Ela não pode saber de nada. Ninguém sabe. Ninguém além de mim e do mar sabe o que aconteceu na sexta primavera, na quarta noite da lua nova, na casa de pedra do fim da ilha. Nísia é a única mulher no meio dos cento e oito homens do meu salão. A única que nunca me tocou sem pedir. A única que, em seis anos de visitas, jamais me falou de casamento. Só de esperança.
+Ela não pode saber de nada. Ninguém sabe. Ninguém além de mim e do mar sabe o que aconteceu na sexta primavera, na quarta noite da lua nova, na casa de pedra do fim da ilha. Nísia é a única mulher que entra no meio dos cento e sete homens do meu salão sem baixar os olhos. A única que nunca me tocou sem pedir. A única que, em seis anos de visitas, jamais me falou de casamento. Só de esperança.
 
 Dobro o véu. Ponho a lasca de pinho por cima. Fecho a tampa. Empurro o baú de volta para debaixo da cama, até sentir que encostou na parede.
 
