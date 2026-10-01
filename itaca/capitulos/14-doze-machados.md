@@ -484,6 +484,6 @@ Dei a ela o arco. E o palco. E o momento. Carreguei o arco com as minhas mãos. 
 
 E agora, sentada na cadeira alta, a um passo da catástrofe que eu mesma montei, não sinto medo. Nem triunfo, nem arrependimento.
 
-Sinto só, com uma clareza que dá vertigem, que a minha mulher voltou para casa.
+Sinto só, com uma clareza que dá vertigem, e com um calor que sobe da barriga até a boca como na noite do véu torto, que a minha mulher voltou para casa. Que ela está de pé no meu pátio, de costas retas, com o meu cheiro na mão e o arco dela armado, e que acabou de me chamar de coruja na frente do mundo sem ninguém ouvir.
 
 E que vai haver sangue.
