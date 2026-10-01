@@ -55,3 +55,7 @@ Epílogo — A primeira carta
 - Noite Anne–Nísia (canônico): sexta primavera, depois que um mercador de Corinto disse que os 12 cascos de proa vermelha afundaram ao largo de Malea; Anne vai a pé, descalça, até a "casa de pedra do fim da ilha" (casa de Nísia em Ítaca). Timóteo tinha 6. Corrigir A4 e A7 na reescrita (hoje dizem Same/barco/funeral).
 - Última noite antes da partida: Emily diz "se eu não voltar em três anos, case de novo"; Anne a põe para fora do quarto; Emily dorme na escada com a espada. De manhã: "Vá logo, Emily. Antes que eu peça para você ficar."
 - Esquéria: em cap. 3 Emily omite a passagem pelos feácios ("Há uma parte que eu não conto"); A8 revela.
+- Ordem do mar (canônica): Troia → ciclope → Éolo (odre) → lestrigões (sobra 1 navio, 12 homens) → Circe (1 ano) → mortos/Tirésias → sereias → Cila (sobram 6) → ilha do Sol → Caríbdis → Ogígia (7 anos) → Esquéria → Ítaca. Corrigir B3 ("terceira manhã depois de Eéa" → depois da ilha do ciclope).
+- Cicatriz do javali: coxa DIREITA, acima do joelho, por fora. A lasca da tempestade: coxa esquerda.
+- Emily usou "Éton" como nome falso diante de Anne (cap. 8).
+- Cap. 7: Emily ensina Timóteo a mirar um palmo à direita; cap. 8: Timóteo conta a Anne.
