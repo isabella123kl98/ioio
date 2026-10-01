@@ -4,20 +4,376 @@
 
 — Por que a senhora foi? — pergunta o Timóteo, no segundo dia de caminhada, sem aviso, olhando a estrada.
 
-Estamos subindo a colina que leva ao sítio do meu pai, com o sol nas costas e o cachorro cinzento trotando à frente; acabamos de passar por uma fonte onde bebemos água gelada, e ele carrega o cesto de pão com o cuidado de quem leva um objeto sagrado. Não olha para mim: fala com o caminho, com as pedras, com o ar. Quer saber por que fui para Troia, e diz que eu já contei que foi porque tinha que ir, mas que todo mundo tem que ir e nem todo mundo vai: o Eumeu ficou, o avô ficou, a mãe Anne ficou. Eu era rainha, digo; o avô era rei; o Eumeu, porqueiro; a mãe Anne, mulher; eu também; e a senhora foi. Olho o menino: dez anos, ombros estreitos, cabelo em pé, a testa larga e o queixo dela. Não é uma acusação; é uma curiosidade seca, de quem tenta montar uma peça que não encaixa. Penso em mentir, na versão dos poetas, o juramento dos pretendentes de Helena, a honra, o dever, uma história com começo e fim e um final honroso. Mas não sei mentir ao meu filho.
+Estamos subindo a colina que leva ao sítio do meu pai, com o sol nas costas e o cachorro cinzento trotando na frente. Acabamos de passar por uma fonte onde bebemos água gelada com as mãos em concha, e ele carrega o cesto de pão com o cuidado de quem leva uma coisa sagrada.
 
-Sentamos debaixo de uma oliveira velha, torta, cheia de nós, com o cachorro entre nós, de língua de fora, e as palavras vêm devagar, como água de uma fonte que não corria havia muito: *eu não quis ir.*
+Não olha para mim. Fala com o caminho. Com as pedras. Com o ar.
 
-Era o fim do inverno, e você tinha dois meses e dois dias. Conto do jeito que lembro, e lembro pelo corpo: o cheiro de leite e de lã no quarto, a oliveira crescendo no meio do chão, a cama desfeita com as marcas dos nossos corpos, a mulher sentada na beira do colchão, de camisola, com o cabelo solto e o bebê no colo, dando-lhe o peito; a Anne, de cabeça inclinada, sussurrando alguma coisa baixinho, e você, pequeno, vermelho, enrugado, agarrado ao seio com as duas mãos, fazendo um barulhinho de passarinho. Eu estava parada na porta, com os pés descalços no chão frio, olhando. Fazia nove meses que eu vivia numa espécie de assombro, desde a noite em que, no nono ano de casamento, ela me disse, numa voz que quase não reconheci, que estava grávida; eu, que tinha enfrentado piratas e rebeliões, fiquei sentada no chão do quarto, de mãos trêmulas, sem saber o que fazer, e ela riu, e me chamou de boba, e me pediu que fosse buscar água. Quando você nasceu, berrando, vermelho, do tamanho de um pão grande, e a parteira o pôs nos braços dela, eu vi, pela primeira vez em trinta anos de vida, a coisa que procurava sem saber o nome: um lugar inteiro, sem falta, sem medo, sem pressa. Era isso. Era a casa. Era tudo. E então chegaram os navios.
+— A senhora já disse que foi porque tinha que ir. Mas todo mundo tinha que ir, e nem todo mundo foi. O Eumeu ficou. O avô ficou. A mãe Anne ficou.
 
-Eram três, com velas negras, vindos de Micenas, com os estandartes de Agamêmnon e de Menelau, e desembarcaram vinte homens armados, que subiram a colina do palácio em fila, batendo as lanças no chão; à frente vinha um homem de túnica vermelha, de barba curta e olhos vivos, Palamedes de Náuplia, o mais astuto dos conselheiros do rei. Recebi-os no salão, com a armadura, o elmo, o manto com o broche de ouro, na cadeira alta, com a Anne à minha direita e o meu pai à esquerda. A guerra: uma expedição de mil navios contra Troia, para recuperar Helena, raptada por um príncipe estrangeiro; um juramento feito por todos os pretendentes de outrora; todos os reis e rainhas da Grécia deviam embarcar, dentro de um mês. Agradeci, disse que consideraria, ofereci-lhes vinho, e à noite chamei a Anne ao quarto. Disse que não ia: que o juramento eu jurara aos catorze anos, sem saber o que era um juramento; que Helena era um pretexto, que queriam Troia pelo ouro e pelo porto; que, se eu o quebrasse, haveria guerra contra Ítaca, contra ela, contra o menino, e que por isso precisava de um plano. Ela estava sentada no banco junto à janela, com você dormindo no berço aos pés dela, e me olhou sem expressão; depois, muito devagar, tirou uma mecha de cabelo do rosto e sorriu: *você já tem um. Conheço a sua cara quando está planejando alguma coisa, a de quem vai fazer uma besteira genial.* Sentei-me ao lado dela na beira da cama e contei: eu fingiria loucura, pública, evidente; um rei louco não pode ir à guerra. Ela quis saber que tipo de loucura, e disse que precisava ser convincente, e que ninguém podia saber, só ela; e me olhou com os olhos verdes, enormes, cheios de uma coisa que eu, na época, tomei por cumplicidade, e que hoje sei que era medo. Planejamos durante três dias, a portas fechadas, com o bebê dormindo entre nós; ela era melhor do que eu em detalhes: decidiu o que vestir, como andar, como falar, um chapéu de feltro de camponês, dois animais diferentes atrelados ao arado, um boi e um jumento que não trabalham juntos, para que o desacordo fosse visível de longe, e que eu semeasse, em vez de grão, sal, o mais absurdo dos gestos. *Um rei que semeia sal na praia é um rei perdido. Vão contar a história por séculos.* No terceiro dia pegou a minha cara nas duas mãos e disse que eu não podia rir, que eu rio quando estou nervosa, e que se rir, acabou. Beijou-me a testa, um beijo curto, leve, que me deixou tonta. *Eu confio em você.* Mas o que eu não sabia, e só entendi dez anos depois, era que, enquanto planejava a minha farsa, ela planejava também uma coisa pior: que, se a farsa falhasse, ela teria de me mandar embora.
+— Eu era rainha.
 
-No dia marcado amanheci louca. Levantei-me antes do sol, vesti uma túnica rasgada, enfiei um chapéu de feltro na cabeça e saí à praia de Fórcis, onde me esperavam um boi gordo e um jumento magro, atrelados a um arado que eu mesma montara na véspera; desci de pés descalços, cantando em voz alta uma canção sem letra, com o saco de sal às costas, e atrás de mim, a uma distância segura, os vinte homens de Palamedes me olhavam de braços cruzados. Comecei a arar. Conduzi o boi numa direção e o jumento em outra, e o arado girou sobre si mesmo, cavando um sulco torto e absurdo na areia; atirei sal por cima do ombro, punhados e punhados, que o vento levava em nuvens brancas; gritei, ri, falei com as gaivotas; uma vez, sem planejar, caí de joelhos e abracei o focinho do jumento, chorando, e os homens, atrás, prenderam o riso. Funcionava: via no rosto deles o espanto, a piedade, o constrangimento de quem assiste a uma tragédia que não sabe como interromper. Mas Palamedes, no meio deles, não se moveu; tinha os olhos fixos em mim, estreitos, calculistas. Não acreditava. Senti isso como se sente uma lâmina nas costas, e continuei a arar, com o sal escorrendo pelos dedos, e pensei, com uma clareza fria: *ele sabe.*
+— O avô era rei.
 
-Não sei quem deu o sinal. Só sei que uma voz de mulher gritou, do alto do muro do palácio, e a voz era dela: *Emily!* Virei-me, por instinto, e vi-a, pequena, de vestido claro, parada no muro, com o cabelo solto ao vento, as mãos cruzadas sobre o peito como quem reza e o rosto muito branco. Não entendi o que fazia ali; tínhamos combinado que ficaria dentro, que não assistiria. Então vi o que ela carregava: você, com dois meses, enrolado num xale, apertado contra o peito, e uma das criadas atrás dela, tentando segurá-la pelo braço. Palamedes passou por mim. Não o vi se mover; só senti o ar mudar, e de repente ele estava entre mim e o arado, de joelhos, com as mãos estendidas, e nos braços dele, não sei como, estava você. Nunca soube como: um homem que sobe o muro do palácio de Ítaca, na frente de vinte guardas e de uma rainha, e arranca uma criança dos braços da mãe sem que ninguém o detenha. Talvez a Anne tenha descido correndo e entregado, sem perceber; talvez fosse um feitiço de Atena, que sempre gostou dele. O fato é que ele estava diante de mim, ajoelhado na areia, segurando você, a um passo do sulco torto do arado, onde a lâmina, afiada, esperava. *Louca, rainha?*, disse, com um sorriso frio. *Então não vai se importar se eu puser esta criança no caminho do seu arado.* O mundo parou. Vi a cena inteira num instante: o boi, o jumento, a lâmina de ferro, a praia cheia de sal, o bebê e a minha mão no cabo; o rosto de Palamedes, frio, paciente; a Anne, no muro, gritando um grito que não ouvi, com as mãos na boca; e vi na minha cabeça, como num relâmpago, uma alternativa terrível: se eu continuasse, se mantivesse a farsa até o fim, se deixasse o arado avançar, eu seria considerada louca, e nos deixariam em paz, e a nossa vida seguiria. E você morreria. Ele o colocou no chão, ali, no sulco, no caminho do arado, enrolado no xale, chorando baixinho, as mãozinhas fechadas, tão pequeno que a areia o cobria quase até as orelhas. Não decidi, não pensei: o meu corpo, que passou a vida inteira obedecendo a ordens que eu nem dava, puxou as rédeas do boi com tanta força que o animal tombou de lado e o arado desviou, girou, bateu contra uma pedra e quebrou. Larguei o cabo, ajoelhei-me e peguei você nos braços e apertei-o contra o peito, tão forte que quase o sufoquei, e senti o coração dele batendo, rápido, minúsculo, como o de um pássaro. Ficamos assim, na areia, os dois, cobertos de sal. *Bem*, disse Palamedes, atrás de mim, em voz baixa. *Parece que a rainha recuperou a razão.*
+— O avô era velho.
 
-Não chorei. Ele me deixou em paz, o que foi o pior: não me humilhou, não me ameaçou; levantou-se, sacudiu a areia dos joelhos, mandou os homens voltarem ao navio, e antes de sair parou ao meu lado e disse, olhando-me ajoelhada, com você no colo, que sentia muito. Não era mentira: sentia. Era um homem que fazia o que tinha de fazer e que, por fazê-lo, não gostava de si. Quando perguntei como soubera, sorriu, triste: *a senhora aplaina o sulco. Um louco não se preocupa com a linha reta.* A Anne chegou correndo, descalça, ofegante, e ajoelhou-se diante de mim, e tirou você dos meus braços com mãos trêmulas e o examinou de cima a baixo, cada dedo, cada orelha, chorando e rindo e resmungando palavras sem sentido, e o apertou contra si. E olhou para mim, e disse que eu devia ir. *Eles sabem. Se não for, vão voltar com mais homens, mais navios, vão queimar Ítaca, vão levar o menino. Eu não quero que você morra. Quero que vá, e volte. Só isso.* Olhei-a, olhei você no colo dela, dormindo, com uma bolha de leite no canto da boca, olhei o sal branco espalhado pela areia como neve. E sei que, ali, naquele instante, tomei a decisão que me custou dez anos. Não a de ir: essa já estava tomada desde o instante em que puxei as rédeas do boi. A decisão de aceitar que ela me pedia para ir.
+— O Eumeu era porqueiro. A mãe Anne era mulher. — Ele chuta uma pedra. — A senhora também era mulher. E foi.
+
+Olho o menino. Dez anos. Ombros estreitos. Cabelo em pé. A testa larga e o queixo dela.
+
+Não é acusação. É uma curiosidade seca, de quem está tentando montar uma peça que não encaixa e já tentou de todos os lados.
+
+Penso em mentir. Na versão dos poetas. O juramento dos pretendentes de Helena, a honra, o dever. Uma história com começo, meio e fim, e um final bonito.
+
+Mas eu não sei mentir para o meu filho.
+
+Descobri isso no alpendre, com a coruja escorregando no dedo. Descobri de novo no pátio, quando ele disse *mãe?* e eu não consegui dizer *não.*
+
+— Senta — digo.
+
+Sentamos debaixo de uma oliveira velha, torta, cheia de nós, com o cachorro no meio, de língua de fora. E as palavras vêm devagar, como água de uma fonte que não corria havia muito tempo.
+
+— Eu não quis ir.
 
 ---
 
-O Timóteo me escuta em silêncio, de joelhos abraçados, com os olhos verdes enormes, cheios de água, e quando termino diz, baixinho, que então eu não quis; que fui porque o vi no caminho do arado. Digo que fui porque a mãe dele pediu. Ele diz que fui porque o vi; que então foi por causa dele. Pego a mão dele e digo que foi por causa de Palamedes, que era esperto demais, de Agamêmnon, que era ambicioso demais, de Helena, que era bonita demais, de uma infinidade de coisas, mas não por causa dele, que tinha dois meses. *Mas a senhora me escolheu.* Escolhi. *E ficou fora dez anos.* Fiquei; por minha causa; foi o que eu fiz depois. A guerra foi um acaso; o resto foi escolha minha. Ele me olha, muito tempo, com um olhar de juiz velho demais para o rosto; depois, devagar, como quem engole um gole amargo, assente e pergunta por que não voltei antes. Engulo. Penso na gruta, na cama de madeira, na voz que diz *fica.* Digo que tive medo, medo de que ele me olhasse como está me olhando agora, como se eu fosse uma pessoa. Uma lágrima desce pelo rosto dele, e ele a limpa, brusco, com as costas da mão, e diz que não quer que eu seja só uma pessoa: queria que fosse uma heroína, como no poema; mas não é. *E eu acho que prefiro assim. Heroínas não vêm para o jantar.* Rio, uma risada curta, molhada, que me escapa sem licença, e abro os braços, e ele, depois de um segundo de hesitação, se atira neles, com o rosto enfiado no meu pescoço. Abraço-o, com os dois braços, com todo o corpo, sob a oliveira, com o cachorro dormindo a nossos pés e o sol descendo devagar sobre o vale. Ele pergunta, contra o meu ombro, se o sal ainda está lá, onde semeei; digo que acho que a maré levou; ele diz que então eu nunca poderei voltar a arar, e que pena, porque era uma história bonita; digo que era uma história estúpida; ele diz *as duas coisas.* E eu penso, olhando por cima do ombro dele a estrada que sobe, torta, branca, até o sítio do velho Laertes, que a mulher que me mandou embora me mandou com a mesma mão com que me segurou, e que eu, durante dez anos, acreditei que ela me perdera, quando na verdade ela me soltara. Há uma diferença. Demorei dez anos para aprender.
+Era o fim do inverno, e você tinha dois meses e dois dias.
+
+Conto do jeito que lembro. E eu lembro pelo corpo.
+
+O cheiro de leite e de lã no quarto. A oliveira crescendo no meio do chão. A cama desfeita com a marca dos nossos corpos. E a tua mãe sentada na beira do colchão, de camisola, com o cabelo solto e você no colo, dando o peito. Ela de cabeça inclinada, cochichando alguma coisa. E você, pequeno, vermelho, enrugado, agarrado no seio com as duas mãos, fazendo um barulhinho de passarinho.
+
+Eu parada na porta. Descalça no chão frio. Olhando.
+
+Fazia nove meses que eu vivia numa espécie de espanto. Desde a noite em que ela me disse, com uma voz que eu quase não reconheci, que estava grávida. Eu, que tinha enfrentado pirata e rebelião, fiquei sentada no chão do quarto com as mãos tremendo, sem saber o que fazer com os braços. E ela riu. Me chamou de boba. E pediu um copo d'água.
+
+Quando você nasceu, berrando, vermelho, do tamanho de um pão grande, e a parteira te pôs nos braços dela, eu vi, pela primeira vez em trinta anos de vida, a coisa que eu procurava sem saber o nome.
+
+Um lugar inteiro. Sem falta. Sem medo. Sem pressa.
+
+Era isso. Era a casa. Era tudo.
+
+E aí chegaram os navios.
+
+---
+
+— Quantos? — pergunta o Timóteo.
+
+— Três. De vela preta. De Micenas.
+
+Com os estandartes de Agamêmnon e de Menelau. Desembarcaram vinte homens armados, que subiram a colina do palácio em fila, batendo as lanças no chão a cada passo, para todo mundo ouvir.
+
+Na frente vinha um homem de túnica vermelha, barba curta, olhos vivos. Palamedes de Náuplia. O mais esperto dos conselheiros do rei.
+
+Recebi no salão. De armadura. De elmo. Com o manto preso pelo broche de ouro do cão e do cervo. Na cadeira alta, com a tua mãe à minha direita e o teu avô à esquerda.
+
+A guerra. Uma expedição de mil navios contra Troia, para buscar Helena, levada por um príncipe estrangeiro. Um juramento feito por todos os antigos pretendentes dela. Todos os reis e rainhas da Grécia deviam embarcar. Em um mês.
+
+— A senhora era pretendente de Helena?
+
+— Eu tinha catorze anos. O meu pai me levou a Esparta para ver a festa. Todo mundo jurou. Eu jurei também. Achei que era um jogo.
+
+O Timóteo me olha, incrédulo.
+
+— A senhora foi para uma guerra por causa de um jogo?
+
+— Fui para uma guerra porque os adultos levam os jogos a sério. — Arranco um talo de capim e mastigo. — Você vai descobrir isso.
+
+Agradeci a Palamedes. Disse que ia pensar. Ofereci vinho.
+
+E à noite chamei a tua mãe ao quarto.
+
+---
+
+— Eu disse a ela que não ia.
+
+Que o juramento eu tinha jurado aos catorze anos sem saber o que era juramento. Que Helena era desculpa, que queriam Troia pelo ouro e pelo porto. Que se eu quebrasse a palavra, ia ter guerra contra Ítaca. Contra ela. Contra você. E que por isso eu precisava de um plano.
+
+Ela estava sentada no banco da janela, com você dormindo no berço aos pés dela.
+
+Me olhou sem expressão nenhuma.
+
+Depois, muito devagar, tirou uma mecha de cabelo do rosto. E sorriu.
+
+— Você já tem um plano — disse. — Eu conheço essa tua cara. É a cara de quem vai fazer uma besteira genial.
+
+Sentei do lado dela na beira da cama e contei. Eu ia fingir loucura. Pública. Evidente. Rei louco não vai à guerra.
+
+— E ela concordou? — pergunta o Timóteo.
+
+— Ela fez melhor. Ela planejou comigo.
+
+Três dias, de portas fechadas, com você dormindo no meio de nós duas. Ela era melhor do que eu nos detalhes. Sempre foi. Decidiu o que eu ia vestir. Como andar. Como falar. Um chapéu de feltro de camponês, que ela mesma remendou. Dois bichos diferentes atrelados ao arado, um boi e um jumento, que não trabalham juntos, para o desacerto aparecer de longe. E que eu semeasse sal em vez de grão.
+
+— Um rei que semeia sal na praia é um rei perdido — disse ela. — Vão contar essa história por séculos.
+
+No terceiro dia, ela pegou o meu rosto com as duas mãos.
+
+— Você não pode rir. Você ri quando fica nervosa. Se você rir, acabou.
+
+E me beijou a testa. Um beijo curto. Leve. Que me deixou tonta.
+
+— Eu confio em você.
+
+O que eu não sabia, e só entendi dez anos depois, é que enquanto ela planejava a minha farsa, ela planejava também uma coisa pior.
+
+Que se a farsa falhasse, ela ia ter que me mandar embora.
+
+---
+
+No dia marcado, eu amanheci louca.
+
+Levantei antes do sol. Vesti uma túnica rasgada. Enfiei o chapéu de feltro na cabeça. E desci à praia de Fórcis, onde me esperavam um boi gordo e um jumento magro, atrelados a um arado que eu mesma montei na véspera, torto de propósito.
+
+Desci descalça, cantando alto uma canção sem letra, com um saco de sal nas costas. Atrás de mim, a uma distância segura, os vinte homens de Palamedes me olhavam de braços cruzados.
+
+Comecei a arar.
+
+Puxei o boi para um lado e o jumento para o outro. O arado girou em volta de si mesmo e cavou um sulco torto e sem sentido na areia. Joguei sal por cima do ombro, punhados e punhados, que o vento levava em nuvens brancas. Gritei. Ri. Conversei com as gaivotas. Uma vez, sem planejar, caí de joelhos e abracei o focinho do jumento, chorando, e os homens, atrás, seguraram o riso.
+
+— A senhora chorou de verdade?
+
+— Chorei. Não sei por quê. Acho que pelo jumento.
+
+Funcionava. Eu via no rosto deles o espanto. A pena. O constrangimento de quem assiste a uma tragédia e não sabe como interromper.
+
+Mas Palamedes, no meio deles, não se mexia.
+
+Tinha os olhos fixos em mim. Estreitos. Fazendo conta.
+
+Não acreditava.
+
+Senti isso como se sente uma lâmina nas costas. E continuei arando, com o sal escorrendo pelos dedos, e pensei, com uma clareza fria:
+
+*Ele sabe.*
+
+---
+
+Não sei quem deu o sinal.
+
+Só sei que uma voz de mulher gritou, do alto do muro do palácio. E a voz era dela.
+
+— *Emily!*
+
+Virei, por instinto.
+
+E vi. Pequena, de vestido claro, de pé no muro, com o cabelo solto no vento, o rosto muito branco. A gente tinha combinado que ela ia ficar lá dentro. Que não ia assistir.
+
+Ela não ficou.
+
+E então eu vi o que ela carregava.
+
+Você. Dois meses. Enrolado num xale, apertado contra o peito dela. E uma das criadas atrás, tentando segurar o braço dela.
+
+Palamedes passou por mim.
+
+Não vi ele se mexer. Só senti o ar mudar. E de repente ele estava entre mim e o arado, de joelhos na areia, com as mãos estendidas.
+
+E nos braços dele estava você.
+
+O Timóteo para de respirar do meu lado.
+
+— Como?
+
+— Até hoje eu não sei, meu amor. Um homem que sobe o muro do palácio de Ítaca na frente de vinte guardas e de uma rainha e tira uma criança dos braços da mãe sem ninguém impedir. Talvez a tua mãe tenha descido correndo e ele tenha tomado na escada. Talvez tenha sido feitiço de Atena, que sempre gostou dele. — Engulo. — Eu só sei que ele estava ali. Ajoelhado na areia. Te segurando. A um passo do sulco torto do arado, onde a lâmina esperava, afiada.
+
+— Louca, rainha? — disse Palamedes, com um sorriso frio. — Então não vai se importar se eu puser esta criança no caminho do seu arado.
+
+---
+
+O mundo parou.
+
+Vi a cena inteira num instante. O boi. O jumento. A lâmina de ferro. A praia cheia de sal. O bebê. A minha mão no cabo.
+
+O rosto de Palamedes, frio, paciente.
+
+A tua mãe no muro, gritando um grito que eu não ouvi, com as mãos na boca.
+
+E vi, como um relâmpago dentro da cabeça, uma possibilidade terrível. Se eu continuasse. Se eu mantivesse a farsa até o fim. Se eu deixasse o arado avançar. Eu ia ser considerada louca. E iam nos deixar em paz. E a nossa vida ia continuar.
+
+E você ia morrer.
+
+Ele te colocou no chão. No sulco. No caminho do arado. Enrolado no xale. Chorando baixinho. As mãozinhas fechadas. Tão pequeno que a areia te cobria quase até as orelhas.
+
+Não decidi. Não pensei.
+
+O meu corpo puxou as rédeas do boi com tanta força que o bicho tombou de lado. O arado desviou. Girou. Bateu numa pedra e quebrou ao meio.
+
+Larguei o cabo. Me ajoelhei. Te peguei no colo. E te apertei contra o peito, tão forte que quase te sufoquei. E senti o teu coração batendo, rápido, minúsculo, como o de um passarinho preso na mão.
+
+Ficamos assim. Na areia. Os dois. Cobertos de sal.
+
+— Bem — disse Palamedes atrás de mim, em voz baixa. — Parece que a rainha recuperou a razão.
+
+---
+
+O Timóteo está chorando.
+
+Sem barulho. Com as lágrimas descendo e o queixo duro. Do jeito da mãe dele.
+
+— Ele ia me matar?
+
+— Não sei. — Passo a mão no cabelo dele. — Acho que não. Acho que ele sabia que eu ia parar. Era um homem esperto. Era um homem que fazia o que tinha que fazer e que não gostava de si mesmo por isso.
+
+Palamedes não me humilhou. Isso foi o pior. Levantou, bateu a areia dos joelhos, mandou os homens voltarem ao navio. E antes de ir, parou do meu lado e disse que sentia muito.
+
+Não era mentira. Sentia.
+
+— Como você soube? — perguntei a ele.
+
+Ele sorriu, triste.
+
+— A senhora alisa o sulco. Um louco não se preocupa com a linha reta.
+
+A tua mãe chegou correndo. Descalça. Ofegante. Se ajoelhou na minha frente, tirou você dos meus braços com as mãos tremendo e te examinou de cima a baixo. Cada dedo. Cada orelha. Chorando e rindo e resmungando coisas sem sentido. E te apertou contra ela.
+
+E olhou para mim.
+
+— Você tem que ir.
+
+— Anne...
+
+— Eles sabem. Se você não for, eles voltam com mais homens. Mais navios. Queimam Ítaca. Levam o menino. — A voz dela não tremia. As mãos tremiam. — Eu não quero que você morra. Quero que você vá. E volte. Só isso.
+
+Olhei para ela. Olhei para você no colo dela, dormindo, com uma bolha de leite no canto da boca. Olhei o sal branco espalhado na areia como neve.
+
+E sei que ali, naquele instante, eu tomei a decisão que me custou dez anos.
+
+Não a de ir. Essa já estava tomada desde que eu puxei as rédeas do boi.
+
+A decisão de aceitar que ela me pedia para ir.
+
+---
+
+— E depois? — pergunta o Timóteo, limpando o nariz no braço.
+
+— Depois teve um mês. — Olho a estrada. — Um mês de navios no porto, de contar homens e remos e sacos. E na última noite eu disse a coisa mais idiota que já disse na vida.
+
+— O quê?
+
+— Disse à tua mãe que, se eu não voltasse em três anos, ela devia casar de novo.
+
+O Timóteo arregala os olhos.
+
+— A senhora disse isso?
+
+— Disse.
+
+— Na cama?
+
+— Na cama.
+
+— E ela?
+
+— Me pôs para fora do quarto.
+
+Ele solta uma risada. Curta. Molhada. Assustada de si mesma.
+
+— Sem roupa — acrescento.
+
+Ele ri de novo, mais alto, e cobre a boca com as duas mãos, horrorizado e encantado.
+
+— E a senhora dormiu onde?
+
+— Na escada. No último degrau. Com a espada no colo. A Euricleia me achou de manhã e me deu uma manta e não disse nada, e eu sei que ela contou a história para metade da cozinha antes do almoço.
+
+— E de manhã?
+
+O riso some.
+
+— De manhã eu voltei para me vestir. Ela estava sentada na cama, te dando o peito. Não me olhou. Eu me vesti. Fiquei parada na porta. E ela disse, sem levantar os olhos: *vai logo, Emily. Antes que eu peça para você ficar.*
+
+O Timóteo fica calado.
+
+— E a senhora foi.
+
+— Eu fui.
+
+---
+
+— Então a senhora não quis ir — diz ele, por fim, baixinho. — A senhora foi porque me viu no caminho do arado.
+
+— Eu fui porque a tua mãe pediu.
+
+— A senhora foi porque me viu. — Ele me olha. — Então foi por minha causa.
+
+Pego a mão dele.
+
+— Foi por causa de Palamedes, que era esperto demais. De Agamêmnon, que era ambicioso demais. De Helena, que era bonita demais. De um juramento de menina de catorze anos. De uma porção de coisas. Mas não por sua causa. Você tinha dois meses.
+
+— Mas a senhora me escolheu.
+
+— Escolhi.
+
+— E ficou fora dez anos.
+
+— Fiquei. — Aperto a mão dele. — Por minha causa. Isso foi o que eu fiz depois. A guerra foi um acaso. O resto foi escolha minha.
+
+Ele me olha muito tempo. Com o olhar de juiz velho demais para o rosto.
+
+Depois, devagar, como quem engole um gole amargo, assente.
+
+— Por que a senhora não voltou antes?
+
+Engulo.
+
+Penso na gruta. Na cama de madeira clara. Na voz que dizia *fica.* Na coluna de pedra onde devia haver uma oliveira.
+
+— Eu tive medo — digo.
+
+— De quê?
+
+— De você me olhar como está me olhando agora. Como se eu fosse uma pessoa.
+
+Uma lágrima desce pelo rosto dele, e ele limpa, brusco, com as costas da mão.
+
+— Eu não queria que a senhora fosse só uma pessoa — diz. — Eu queria que a senhora fosse uma heroína. Como no poema.
+
+— Eu sei.
+
+— Mas não é.
+
+— Não sou.
+
+Ele pensa. Mastiga o lábio.
+
+— Acho que eu prefiro assim — diz, por fim. — Heroína não vem para o jantar.
+
+Rio. Uma risada curta, molhada, que me escapa sem pedir licença. E abro os braços.
+
+Ele hesita um segundo.
+
+E se joga. Com o rosto enfiado no meu pescoço.
+
+Abraço com os dois braços. Com o corpo todo. Debaixo da oliveira. Com o cachorro dormindo nos nossos pés e o sol descendo devagar no vale.
+
+---
+
+— O sal ainda está lá? — pergunta ele, contra o meu ombro. — Na praia. Onde a senhora semeou.
+
+— Acho que a maré levou.
+
+— Então a senhora nunca mais vai poder arar.
+
+— Acho que não.
+
+— Que pena. Era uma história bonita.
+
+— Era uma história idiota.
+
+— As duas coisas — diz ele.
+
+E eu fico pensando, olhando por cima do ombro dele a estrada que sobe, torta, branca, até o sítio do velho Laertes, que a mulher que me mandou embora me mandou com a mesma mão com que me segurou.
+
+E que eu, durante dez anos, acreditei que ela tinha me perdido.
+
+Quando, na verdade, ela tinha me soltado.
+
+Há uma diferença.
+
+Levei dez anos para aprender.
+
+E levei mais dez dias, e um tapa, e uma noite contra uma oliveira com a boca dela no meu pescoço e a palavra *outra* escapando da minha, para entender que soltar também é segurar. Que ela me soltou no cais e me segurou na janela, todas as noites, com uma lamparina.
+
+E que agora, pela primeira vez, sou eu que tenho que segurar.
+
+Sem lamparina nenhuma.
