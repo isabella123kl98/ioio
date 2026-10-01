@@ -123,7 +123,7 @@ Leio todas. Em ordem. Uma por uma. Conto-as aqui, como as escrevi, sem mudar uma
 
 *Você está morta. Um mercador de Corinto disse. Doze cascos de proa vermelha, ao largo de Malea. Eu os conhecia. Eram os seus. Não tem como não ser.*
 
-*Fui à casa de pedra. Bati à porta. Ela abriu. Entrei.*
+*Fui a Same, de barco, de madrugada, remando eu mesma. Bati à porta. Ela abriu. Entrei.*
 
 *Não escreverei o que fiz. Você sabe. Ou saberia, se lesse. Só escrevo que fiz, e que me arrependo, e que não me arrependo como devia. Escrevo que, por uma noite, não me senti sozinha. Escrevo que isso é a pior coisa que me aconteceu.*
 
@@ -143,7 +143,7 @@ Leio todas. Em ordem. Uma por uma. Conto-as aqui, como as escrevi, sem mudar uma
 
 *Você está viva.*
 
-*Soube hoje. O mercador mentira. Os cascos vermelhos eram de outra frota. De outro rei. De outra guerra. Você está viva, em algum lugar, não sei onde, e eu estou aqui, a dois anos de distância de uma noite que não devia ter existido.*
+*Soube hoje. O mercador mentira. Os cascos vermelhos eram de outra frota. De outro rei. De outra guerra. Você está viva, em algum lugar, não sei onde, e eu estou aqui, a um ano de distância de uma noite que não devia ter existido.*
 
 *Não senti alívio. Senti vergonha.*
 
@@ -239,132 +239,18 @@ Leio todas. Em ordem. Uma por uma. Conto-as aqui, como as escrevi, sem mudar uma
 
 ---
 
-Termino a última e fico parada, com o papiro na mão, olhando a parede.
+Termino a última e fico parada com o papiro na mão, olhando a parede. O quarto está em silêncio. Lá fora a chuva caiu e cessou, e o pátio brilha, molhado, sob um sol pálido, e por uma fresta vejo uma figura curvada, suja de terra, plantando uma muda de oliveira com as mãos enterradas até os pulsos. Cantarola. A canção de marinheiro, a indecente. Sorri de algum pensamento que não é meu.
 
-O quarto está em silêncio. Lá fora, a chuva caiu, e cessou, e o pátio brilha, molhado, sob um sol pálido. Por uma fresta, vejo uma figura, curvada, suja de terra, plantando uma muda de oliveira. Tem as mãos enterradas até os pulsos. Cantarola. A canção de marinheiro, a indecente. Sorri de algum pensamento.
-
-Olho as cartas.
-
-Dez. Uma por ano. Cada uma com o seu peso, o seu tom, a sua verdade. Uma mulher, em dez atos, desmoronando e se recompondo. Uma mulher que amou, e odiou, e esperou, e traiu, e se arrependeu, e não se arrependeu. Uma mulher que, em nenhuma carta, pediu à outra que fosse embora.
-
-Nem uma.
-
-Noto isso agora, com uma clareza nova. Em dez anos de raiva, de saudade, de ciúme e de medo, eu nunca escrevi, em nenhuma das cartas: *não volte.* Escrevi *volte logo.* Escrevi *venha logo.* Escrevi *se estiver viva, volte.* Escrevi *preciso de você.* Dez vezes, em dez formas, a mesma frase.
-
-Eu a chamei.
-
-Durante dez anos. O tempo todo. Sem perceber. Sem admitir. Por baixo da raiva, da estratégia, do cálculo, da contagem. Uma mulher acendendo uma lamparina, escrevendo uma carta, pintando uma casa, tecendo uma mortalha, e dizendo, em todos os idiomas possíveis, sem nunca dar o endereço: *volte.*
+Dez cartas, uma por ano, cada uma com o seu peso, o seu tom, a sua verdade: uma mulher em dez atos, desmoronando e se recompondo, que amou, odiou, esperou, traiu, se arrependeu e não se arrependeu como devia. E noto agora, com uma clareza nova que me corta, que em nenhuma delas, em dez anos de raiva, de saudade, de ciúme e de medo, escrevi *não volte.* Escrevi *volte logo.* Escrevi *venha logo.* Escrevi *se estiver viva, volte* e *preciso de você*, dez vezes, de dez formas, a mesma frase. Eu a chamei. Durante dez anos, o tempo todo, sem perceber e sem admitir, por baixo da raiva e da estratégia e do cálculo e da contagem, uma mulher acendendo uma lamparina, escrevendo uma carta, pintando uma casa, tecendo uma mortalha, dizendo em todos os idiomas possíveis, sem nunca dar o endereço: *volte.*
 
 E ela voltou.
 
-Dobro as cartas. Amarro-as de novo, com o fio de lã vermelha. Levanto-me, com as pernas dormentes. Olho o quarto. A cama. A oliveira. A janela. O gancho vazio. Penso que, se eu guardar as cartas de novo na caixa, vão ficar ali, no escuro, por mais dez anos, como uma confissão que ninguém lê.
+Amarro as cartas de novo com o fio de lã vermelha. Levanto-me com as pernas dormentes e penso que, se as guardar outra vez na caixa, elas ficarão ali, no escuro, mais dez anos, como uma confissão que ninguém lê, e decido. Desço as escadas devagar, contando, com o maço de papiros na mão, atravesso o corredor, a cozinha, o pátio, e saio ao sol, e a terra molhada cheira a chuva e a oliveira, e ela, de joelhos no canteiro, levanta a cabeça e me vê, e o sorriso dela vacila e depois se desfaz, como o de quem intui uma coisa grande e não sabe o nome. Digo que tenho uma coisa para ela e estendo o maço.
 
-E decido.
+Ela olha as cartas, amarelas, dobradas, amarradas com lã, cheirando a tempo. Olha o meu rosto. Não faz nenhuma das perguntas que eu esperava. Limpa as mãos na túnica, devagar, e as estende, e toma os rolos com uma delicadeza que me comove, como se fossem de vidro. Pergunta apenas se foram escritas para ela, e quando, e eu digo que sim, todos os anos, e vejo nos olhos dela uma coisa que nunca vira, um medo quase reverente. Pergunta se pode ler, e eu digo que quando quiser, e ela, com a voz mais baixa, pergunta se eu vou ficar. Sorrio. Digo que vou.
 
-Desço as escadas, devagar, contando, com o maço de papiros na mão. Atravesso o corredor, a cozinha, o pátio. Saio ao sol. A terra está molhada, cheirando a chuva e a oliveira. Ela, de joelhos no canteiro, levanta a cabeça, e me vê, e o sorriso dela vacila, e depois se desfaz, como o de alguém que intui uma coisa grande e não sabe o nome.
+Ela respira fundo, aperta as cartas contra o peito e senta-se no chão, no meio do canteiro, entre as doze oliveiras novas, com os joelhos dobrados e o maço no colo, e desata o fio de lã devagar, como quem abre uma porta. Desenrola o primeiro papiro. Sento-me ao lado dela sem dizer nada e fico olhando o mar, e ela lê a tarde inteira. Não a interrompo. Olho de vez em quando, de lado, o rosto dela, que muda a cada carta: franze-se, suaviza-se, ri uma vez, no segundo ano, do batente azul, e chora muito, de rosto nas mãos, em silêncio, com os ombros sacudindo. Quando chega à sexta, para, e fica imóvel por muito tempo, sem respirar, sem me olhar, e só a mão esquerda, a que segura o rolo, treme. Depois continua.
 
-— Anne — diz.
+Quando termina a última, o sol já está baixo, o céu cor de laranja, as gaivotas voltando aos rochedos. Ela dobra o papiro com o cuidado de quem fecha os olhos de um morto e põe as dez cartas no colo, uma sobre a outra, e diz, com a voz rouca, que eu nunca escrevi *não volte.* Digo que não. Ela pergunta por quê, e eu respondo a verdade que a tarde inteira me escavou: porque queria que ela voltasse, o tempo todo, e principalmente com raiva. Ela ri, molhada, trêmula, e esfrega o rosto na manga, e depois, sem aviso, estende a mão e toma a minha e a aperta com força contra o peito. Diz que leu todas. Diz que há uma que queria que eu lhe contasse, e eu sei qual, e o ar me falta, e respondo que já contei, e ela diz que não tudo. Começo a falar o nome dela, e ela me corta, com um sorriso triste e doce: não agora. Só queria que eu soubesse que ela leu, e que, mesmo assim, ainda estava ali.
 
-— Tenho uma coisa para você.
-
-— O quê?
-
-Estendo o maço.
-
-Ela o olha. Olha as cartas, amarradas com lã, amareladas, dobradas, cheirando a tempo. Olha o meu rosto. Não pergunta nada. Limpa as mãos na túnica, devagar, e as estende. Toma os rolos com uma delicadeza que me comove, como se fossem feitos de vidro.
-
-— São minhas? — pergunta.
-
-— São suas.
-
-— Você as escreveu?
-
-— Escrevi.
-
-— Para mim?
-
-— Para você.
-
-— Quando?
-
-— Todos os anos.
-
-Ela não responde. Fica parada, com as cartas nas mãos, olhando-as, sem ler. Depois levanta os olhos, e eu vejo neles uma coisa que nunca vira: um medo quase reverente.
-
-— Eu posso ler?
-
-— Pode.
-
-— Agora?
-
-— Quando quiser.
-
-— E você?
-
-— O quê?
-
-— Vai ficar?
-
-Sorrio.
-
-— Vou.
-
-Ela respira fundo. Aperta as cartas contra o peito. E senta-se no chão, no meio do canteiro, entre as doze oliveiras novas, com os joelhos dobrados e o maço na mão. Senta-se, e desata o fio de lã, devagar, como quem abre uma porta. Desenrola o primeiro papiro.
-
-Eu me sento ao lado dela, sem dizer nada, e fico olhando o mar.
-
-Ela lê durante toda a tarde.
-
-Não a interrompo. Não falo. Só olho, de quando em quando, de lado, o rosto dela, que muda a cada carta. Que se franze, que se suaviza, que chora, que ri, que se contorce. Ela chora muito. Chora com o rosto nas mãos, em silêncio, com os ombros sacudindo. Quando chega à sexta, para, e fica imóvel por um longo tempo, olhando o papiro, sem respirar. Não diz nada. Não me olha. Mas a mão esquerda, a que segura o rolo, treme.
-
-Continua.
-
-Quando termina a última, o sol já está baixo. O céu, cor de laranja. As gaivotas voltam para os rochedos. Ela dobra o papiro, devagar, com cuidado, como quem fecha os olhos de um morto. Põe as dez cartas no colo, uma sobre a outra.
-
-— Você nunca escreveu *não volte* — diz, com a voz rouca.
-
-— Não.
-
-— Em nenhuma.
-
-— Não.
-
-— Por quê?
-
-— Porque eu queria que você voltasse.
-
-— O tempo todo?
-
-— O tempo todo.
-
-— Mesmo com raiva?
-
-— Principalmente com raiva.
-
-Ela ri, molhada, trêmula. Esfrega o rosto com a manga. Depois, sem aviso, estende a mão, e toma a minha, e a aperta, com força, contra o peito.
-
-— Eu li todas — diz. — Mas tem uma que eu queria que você me contasse.
-
-— Qual?
-
-— A sexta.
-
-O ar me falta.
-
-— Eu contei.
-
-— Não tudo.
-
-— Emily...
-
-— Não agora. — Ela sorri, e o sorriso é triste e doce. — Só queria que você soubesse que eu li. E que, mesmo assim...
-
-— Mesmo assim?
-
-— Eu ainda estou aqui.
-
-Fico calada. Olho a mão dela, no meu peito, com os dedos calejados, de unhas curtas, e sinto uma coisa estranha, enorme, simples.
-
-— Eu sei — digo.
-
-E ficamos assim, sentadas no canteiro, entre as oliveiras novas, sem falar, vendo o sol se pôr sobre Ítaca, enquanto as cartas, finalmente lidas, repousam no colo dela como um pássaro cansado que, depois de dez anos de voo, encontrou a janela aberta.
+Olho a mão dela sobre o meu peito, os dedos calejados, de unhas curtas, e sinto uma coisa enorme e simples. "Eu sei", digo. E ficamos assim, sentadas no canteiro entre as oliveiras novas, sem falar, vendo o sol se pôr sobre Ítaca, enquanto as cartas, finalmente lidas, repousam no colo dela como um pássaro cansado que, depois de dez anos de voo, encontrou a janela aberta.

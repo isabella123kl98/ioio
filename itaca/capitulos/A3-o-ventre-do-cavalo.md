@@ -34,17 +34,7 @@ Ficamos esperando.
 
 Ninguém falou nos primeiros minutos. Havia em todos aquela solenidade de quem está dentro de um túmulo e sabe. Só o ruído de trinta respirações, o ranger da madeira, o cheiro forte de medo. Senti o joelho de Euríloco nas minhas costas. Senti o ombro de Anticlo roçar o meu. Senti, atrás de mim, num canto, o tremor contido de Neoptólemo, que batia os dentes.
 
-— Fique tranquilo, rapaz — sussurrou Diomedes, sem nenhum calor.
-
-— Eu estou tranquilo.
-
-— Seus dentes fazem barulho.
-
-— Desculpe.
-
-— Fique quieto.
-
-Ouvi o rapaz engolir. Ouvi-o fechar a boca. Ouvi, por longos minutos, apenas o mar.
+Foi Diomedes quem rompeu o silêncio, sem nenhum calor, num sussurro que cortou o escuro como lâmina: mandou o rapaz ficar tranquilo, porque os dentes dele faziam barulho, e Neoptólemo, que tinha dezesseis anos e o sangue de Aquiles e nenhuma serenidade, pediu desculpas e fechou a boca. Ouvi-o engolir. Ouvi, por longos minutos, apenas o mar.
 
 ---
 
@@ -138,17 +128,7 @@ A portinhola se abriu.
 
 Não me lembro de sair. Não me lembro de descer a corda. Só me lembro de que estava no chão, de pé, com a espada na mão e o sangue de um jovem de dezenove anos nas palmas, olhando uma cidade adormecida sob um céu cor de cinza.
 
-— Emily — sussurrou Euríloco, ao meu lado.
-
-— Sim.
-
-— O Anticlo...
-
-— Eu sei.
-
-— Você o...
-
-— Eu sei. — Olhei-o, por cima do ombro. — Não fale disso. Nunca.
+Euríloco chegou ao meu lado e sussurrou o meu nome, e depois o nome de Anticlo, e depois começou uma terceira frase que eu cortei antes que ela existisse. Disse que sabia. Disse que ninguém, nunca, falaria daquilo, e olhei-o por cima do ombro com a espada na mão e o sangue de um garoto nas palmas, e o que lhe pedi com os olhos era mais do que silêncio: era que me deixasse ser, pelo resto da vida, uma pessoa que não tinha feito aquilo.
 
 Ele me olhou. Um olhar comprido, cheio de alguma coisa que não era censura, mas compreensão. Depois assentiu. Nunca falou. Morreu anos depois, no estreito de Cila, sem mencionar uma só vez.
 
