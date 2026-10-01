@@ -100,7 +100,7 @@ E procuro na cara dela a raiva. O ressentimento. A coisa escondida embaixo, a ar
 
 Ela não está olhando para mim. Está olhando para a Anne, no batente. Para a lamparina na mão da Anne.
 
-— Igual à dela. Eu fiz com o bronze do caldeirão velho, aquele que você dizia que deixava gosto na sopa. Lembra? Você achou que eu tinha jogado fora. — Ela olha para mim. — Eu acendia toda noite. Na janela da gruta. Na pedra alta, do lado da porta, onde você nunca ia porque dizia que ventava.
+— Parecida com a dela. Eu não sabia que era parecida até ver a dela no gancho, ontem. Eu fiz com o bronze do caldeirão velho, aquele que você dizia que deixava gosto na sopa. Lembra? Você achou que eu tinha jogado fora. — Ela olha para mim. — Eu acendia toda noite. Na janela da gruta. Na pedra alta, do lado da porta, onde você nunca ia porque dizia que ventava.
 
 E eu lembro.
 

@@ -266,7 +266,7 @@ A conversa não tem ordem. Vai e volta como maré. Às vezes eu pergunto e ela r
 
 Ela me conta que a Emily aprendeu a tecer na ilha. Mal. Que fazia um pano torto que desfiava na primeira lavagem, e tinha orgulho dele, e usava assim mesmo. Que ela cozinhava peixe na brasa melhor que ninguém, com sal grosso e folha de louro. Que passava as tardes na pedra da praia olhando o mar para o lado do leste, e que a ninfa nunca perguntou por que o leste, porque sabia.
 
-E eu conto a ela coisas que ela não sabe. Que a Emily tinha vinte anos e cara de menino quando me tirou do altar. Que deixou o véu torto na minha cabeça a cerimônia inteira e eu só descobri depois, no espelho, e quis morrer. Que eu joguei uma taça de bronze na parede do nosso quarto no segundo ano e amassei a borda e ela guardou a taça amassada no berço do Timóteo, e eu achei a taça faz pouco tempo, dez anos depois, e não sei até hoje por que ela guardou.
+E eu conto a ela coisas que ela não sabe. Que a Emily tinha vinte anos e cara de menino quando me tirou do altar. Que deixou o véu torto na minha cabeça a cerimônia inteira e eu só descobri depois, no espelho, e quis morrer. Que eu joguei uma taça de bronze na cabeça dela aos dezessete anos, no meio de um banquete, por ciúme de uma mulher de Zacinto que ela nem tinha visto, e amassei a taça no crânio dela, e guardei a taça amassada, e ela não sabia que eu tinha guardado até achar no berço do Timóteo, faz poucas semanas.
 
 — Ela contava isso — diz a ninfa. — A da taça. Contava com orgulho. Um orgulho que doía de ver. Ela me contava as coisas que tem vergonha de contar à senhora. Porque a senhora é a única pessoa no mundo de quem ela tem medo de ser julgada. — Ela inclina a cabeça. — E a senhora julga. Um pouco. Muito. É o que faz a senhora tão difícil de amar. E tão fácil.
 
@@ -326,21 +326,33 @@ Eu olho.
 
 É uma lamparina.
 
-De bronze. Pequena. Com a tampa furada em desenho de estrela. Do tamanho da minha mão aberta. Com uma alça curva para pendurar num gancho. E uma mancha de ferrugem na borda, do lado esquerdo, em forma de folha.
+De bronze. Pequena. Com a tampa furada. Do tamanho da minha mão aberta. Com uma alça curva para pendurar num gancho. Os furos da tampa não são estrela, são luas, umas meias-luas tortas, feitas por quem nunca furou metal. O fundo está batido demais, desigual, com marcas de martelo.
 
-É a minha.
+Não é a minha. A minha está no gancho da janela da torre. Eu vi hoje de manhã do prado, lá embaixo, apagada.
 
-Não. Não é. A minha está no gancho da janela da torre. Eu vi hoje de manhã do prado, lá embaixo, apagada. Esta é outra.
-
-Mas é igual. Quase exatamente igual. A mesma forma. O mesmo tamanho. A mesma estrela na tampa. Até a ferrugem.
+Mas é a mesma ideia. A mesma forma. O mesmo tamanho. O mesmo gancho. A mesma coisa feita pelo mesmo motivo, eu sei qual é antes de ela dizer, porque eu sei para que serve uma lamparina de tampa furada pendurada numa janela.
 
 Eu não consigo falar.
 
-— Eu fiz — diz a ninfa, baixinho. — Com o bronze de um caldeirão velho que eu tinha. Demorei um mês. Eu não sei trabalhar metal, eu tive que aprender. — Ela toca a borda com a ponta do dedo. — Ela descreveu a sua para mim uma noite. Dormindo. No terceiro ano. Disse, sem acordar: *ela acende uma luz na janela*. Eu perguntei baixinho, para não acordar, *por quê?* E ela respondeu, dormindo: *para eu achar o caminho*. E depois disse como era. A estrela na tampa. A ferrugem na borda, que a senhora nunca limpou porque dizia que dava sorte.
+— Eu fiz — diz a ninfa, baixinho. — Com o bronze de um caldeirão velho que eu tinha. Demorei um mês. Eu não sei trabalhar metal, eu tive que aprender. — Ela toca a borda com a ponta do dedo. — Ela falou da senhora uma noite. Dormindo. No terceiro ano. Disse, sem acordar: *ela põe uma luz na janela*. Eu perguntei baixinho, para não acordar, *por quê?* E ela respondeu, dormindo: *quando eu saio para o mar. Para eu achar o caminho.*
 
-Eu dizia isso. No primeiro ano. Para ela. Eu tinha esquecido.
+Uma vela.
 
-— E eu fiz uma igual — diz a ninfa. — E acendi. Toda noite. Na janela da gruta. Durante quatro anos.
+Eu punha uma vela na janela. Antes. No primeiro ano, no segundo, em todos os anos antes de Troia, cada vez que ela saía com os barcos de carga para Corinto, para Pilos, para Zacinto. Uma vela de sebo num prato de barro no peitoril. Eu fingia que era para ler. Ela sabia que não era. Nenhuma das duas disse nada, nunca.
+
+E o vento sempre apagava.
+
+— Eu pus uma vela na janela da gruta — diz a ninfa. — O vento apagava. A gruta é aberta para o mar, venta a noite inteira. Eu acendia, apagava. Acendia, apagava. Até que eu pensei: se eu puser o fogo dentro de uma coisa fechada, com furos, a luz sai e o vento não entra. E fiz essa.
+
+Eu fecho os olhos.
+
+*Acendi, apagou. Acendi, apagou. Até que, exausta, tive a ideia de pôr a chama dentro de uma lamparina de bronze de tampa furada.*
+
+No segundo mês depois da partida. Sozinha. Com o bebê no berço. Eu nunca contei a ninguém como começou. Nunca. Nem à Euricleia. A Emily não sabe até hoje. Ela foi embora quando era uma vela, e voltou quando era uma lamparina, e nunca perguntou quando mudou.
+
+E do outro lado do mar, numa gruta, uma mulher que eu nunca tinha visto teve a mesma ideia, pelo mesmo vento, pela mesma mulher.
+
+— E acendi — diz a ninfa. — Toda noite. Na janela da gruta. Durante quatro anos.
 
 — Para ela ver.
 
@@ -348,7 +360,7 @@ Eu dizia isso. No primeiro ano. Para ela. Eu tinha esquecido.
 
 Eu fico parada.
 
-— Para que onde quer que a senhora estivesse — diz ela, devagar — soubesse, de algum jeito, que tinha mais alguém acordada. Do outro lado do mar. Com uma luz igual. Eu não sabia se a senhora estava viva. Não sabia se ela ia voltar para a senhora. Eu só sabia que tinha uma mulher numa torre fazendo uma coisa toda noite que eu também estava fazendo. E eu achei que, se uma de nós ia ficar acordada, que pelo menos a outra soubesse. — A voz dela racha. — Eu queria que uma de nós dormisse tranquila, Anne. Eu sabia que não ia ser eu.
+— Para que onde quer que a senhora estivesse — diz ela, devagar — soubesse, de algum jeito, que tinha mais alguém acordada. Do outro lado do mar. Com uma luz parecida. Eu não sabia se a senhora estava viva. Não sabia se ela ia voltar para a senhora. Eu só sabia que tinha uma mulher numa torre fazendo uma coisa toda noite que eu também estava fazendo. E eu achei que, se uma de nós ia ficar acordada, que pelo menos a outra soubesse. — A voz dela racha. — Eu queria que uma de nós dormisse tranquila, Anne. Eu sabia que não ia ser eu.
 
 ---
 
