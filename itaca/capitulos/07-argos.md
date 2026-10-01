@@ -4,42 +4,380 @@
 
 Descer o morro é mais difícil do que subir, porque agora eu sou uma pessoa que tem de ser vista.
 
-Eumeu vai na frente, com um cesto de queijos nas costas e uma leitoa sob o braço, o tributo do dia, e eu atrás, curvada sobre o cajado, arrastando a perna com um exagero que quase não precisa ser fingido. A manhã está clara, o mar brilha como uma lâmina virada para cima, o vento cheira a sal e a tomilho e a fumaça de lenha, e as cigarras já gritam nos olivais com a pressa de quem sabe que o verão não dura. Cada pedra do caminho me pertence e me expulsa. Conheço os buracos, os nomes das árvores, das famílias que as plantaram, das crianças que já trepei nelas; mas os pés, que saberiam onde pisar, são pés de velha, e tropeçam onde os meus nunca tropeçaram. Eumeu me diz, sem olhar para trás, que quando chegar lá eu não fale, que ele fala, que eu não olhe nos olhos de ninguém, que se me chamarem de alguma coisa eu diga que sim, que se me derem uma casca de pão eu agradeça, que aqueles homens não têm paciência com quem tem fome. Respondo que tenho fome há muito tempo e aprendi a ser educada com ela, e ele ri, curto, por cima do ombro, e eu me surpreendo gostando de ter feito o velho rir.
+O Eumeu vai na frente, com um cesto de queijos nas costas e uma leitoa debaixo do braço, o tributo do dia. Eu vou atrás, curvada sobre o cajado, arrastando a perna com um exagero que quase não precisa ser fingido. A manhã está clara. O mar brilha como uma lâmina virada para cima. O vento cheira a sal, a tomilho e a fumaça de lenha, e as cigarras já gritam nos olivais com a pressa de quem sabe que o verão não dura.
 
-A estrada desce a um vale baixo onde corre um regato entre salgueiros e sobe de novo até a colina do palácio. Conforme nos aproximamos, o som chega: não o da festa da noite, mas o da ressaca dela, vozes arrastadas, gritos esporádicos, panelas na cozinha, uma carroça. Sinto o cheiro antes de ver, fumaça velha, gordura rançosa, vinho que coalhou no chão: o cheiro da casa onde ninguém mais se importa em limpar. Passamos pelo último olival, a curva se abre, e lá está. Quando parti, era uma construção pequena, de pedra clara e telhado vermelho, com um pátio central e duas alas, aberta ao vento, cheirando a pão e a cal fresca; a Anne mandou pintar os batentes de azul no primeiro ano, e eu reclamei, e ela me disse que uma casa que olha para o mar precisa usar as cores do mar. Agora está cinzenta, suja, marcada de fuligem; o azul dos batentes descascou, os canteiros do pátio viraram lama, há um monte de lixo junto à parede leste onde devia ficar a horta, e no telhado da ala oeste uma telha escorregou e ninguém a recolocou, deixando uma janela aberta para a chuva. Uma casa que alguém segura com as duas mãos para não cair. Meus olhos ardem. É o vento, digo a mim mesma. É o sal.
+Cada pedra deste caminho me pertence e me expulsa.
+
+Conheço os buracos. Conheço o nome das árvores e das famílias que as plantaram, e das crianças que já subiram nelas, eu entre as primeiras. Mas os pés que saberiam onde pisar agora são pés de velha, e tropeçam onde os meus nunca tropeçaram.
+
+— Quando a gente chegar lá — diz o Eumeu, sem olhar para trás —, a senhora não fala. Eu falo. Não olha nos olhos de ninguém. Se chamarem a senhora de alguma coisa, a senhora diz que sim. Se derem uma casca de pão, agradece. Aqueles homens não têm paciência com quem tem fome.
+
+— Eu tenho fome há muito tempo — digo. — Aprendi a ser educada com ela.
+
+Ele ri por cima do ombro, um riso curto, e eu me surpreendo gostando de ter feito o velho rir. É uma coisa pequena e quente no meio do peito. Guardo.
+
+A estrada desce até um vale baixo onde corre um regato entre salgueiros, e depois sobe de novo até a colina do palácio. Conforme nos aproximamos, o som chega. Não o da festa de ontem à noite, mas o da ressaca dela. Vozes arrastadas. Um grito aqui e ali. Panelas na cozinha. Uma carroça que range.
+
+O cheiro chega antes da vista: fumaça velha, gordura rançosa, vinho que coalhou no chão. O cheiro de uma casa onde ninguém mais se importa em limpar.
+
+Passamos o último olival. A curva se abre.
+
+E lá está.
+
+Quando eu parti, era uma construção pequena de pedra clara e telhado vermelho, com um pátio no meio e duas alas, aberta ao vento, cheirando a pão e a cal nova. A Anne mandou pintar os batentes de azul no primeiro ano. Eu reclamei. Disse que azul era cor de barco de pescador. Ela disse que uma casa que olha para o mar tem de usar as cores do mar, e que se eu não gostasse podia ir morar no estábulo, que era marrom.
+
+Agora a casa está cinzenta. Suja. Manchada de fuligem até a altura das janelas. O azul dos batentes descascou e virou um desenho de ilhas brancas sobre a madeira escura. Os canteiros do pátio viraram lama. Há um monte de lixo encostado na parede leste, onde ficava a horta. No telhado da ala oeste uma telha escorregou e ninguém a recolocou, e o buraco deixa uma janela aberta para a chuva.
+
+Uma casa que alguém segura com as duas mãos para não cair.
+
+Os meus olhos ardem.
+
+É o vento, digo a mim mesma. É o sal.
 
 ---
 
-Eu o vejo antes do portão. Está deitado em cima do monte de estrume onde os servos jogam o esterco das mulas, com o focinho apoiado nas patas da frente e os olhos abertos, fixos na estrada. O pelo, que era castanho-escuro com uma mancha branca no peito, está cinzento e ralo, com feridas nas costelas onde os carrapatos encontraram a pele, e os ossos saltam sob o couro como varetas de uma tenda. Uma mosca anda pela orelha dele, e ele não a espanta. Paro. Eumeu, dois passos adiante, sente a minha hesitação, se volta, e me diz em voz baixa que não repare, que é o Argos, o melhor cão de caça de Ítaca, que dizem que corria mais que o vento, que foi criado pela própria rainha com leite de cabra num trapo, e que agora ninguém cuida, os rapazes chutam, deixaram ele ali para morrer, mas ele ainda olha a estrada todo dia, de manhã até a noite, esperando.
+Eu o vejo antes do portão.
 
-Dou um passo, outro, e o cajado bate na terra com um ruído seco. O cachorro não levanta a cabeça, mas as duas orelhas, murchas e cheias de moscas, giram devagar na minha direção, como duas conchas que captam um som distante. O nariz úmido treme, uma vez, duas. Ele sabe. Eu vejo saber: o corpo inteiro se contrai num espasmo mínimo, como o de um animal que sonha, a cabeça se levanta um palmo, pesada demais para o pescoço magro, e os olhos, leitosos de catarata, cheios de remela, se fixam na minha cara de velha, e eu vejo neles, por baixo da névoa dos anos, um brilho que conheço e que não deveria existir. O rabo bate, uma vez, na terra. Duas. Fecho os punhos com tanta força que sinto as unhas perfurarem a pele. O trapo que cobre o anel aperta o dedo. Não posso ajoelhar, não posso estender a mão, não posso dizer o nome dele. Há cinco rapazes no pátio olhando para nós, e um deles, vejo de relance, ri. Eumeu franze a testa e murmura que o cão fez festa para mim, que nunca faz festa para ninguém, e eu respondo que os cães gostam dos velhos, que somos parecidos, e a minha voz sai tão firme que me assusta. Passo por ele sem olhar para trás, e sinto o olhar do cachorro me seguindo como uma mão nas costas, com a fidelidade absoluta e estúpida de quem não sabe fingir, e cada passo para longe me custa mais do que o anterior. Quando chego ao portão escuto um som baixo, arrastado, um gemido que não é de dor nem de fome, mas de alguma coisa entre as duas, e não me viro. Entro no pátio com os dentes cerrados, e atrás de mim, no monte de estrume, o velho Argos deixa a cabeça cair de novo nas patas, com um suspiro longo, e fecha os olhos pela primeira vez em dez anos.
+Está deitado em cima do monte de estrume onde os servos jogam o esterco das mulas, com o focinho apoiado nas patas da frente e os olhos abertos, fixos na estrada.
+
+O pelo, que era castanho-escuro com uma mancha branca no peito em forma de lua torta, está cinzento e ralo. Há feridas nas costelas, onde os carrapatos acharam pele, e os ossos saltam debaixo do couro como varetas de uma tenda desmontada. Uma mosca anda pela orelha dele, e ele não espanta.
+
+Paro.
+
+O Eumeu sente a minha hesitação e se vira.
+
+— Não repara — diz, baixo. — É o Argos. O melhor cão de caça que esta ilha já teve. Dizem que corria mais que o vento. Foi a própria rainha quem criou, com leite de cabra num trapo, quando a mãe morreu no parto. — Ele cospe para o lado. — Agora ninguém cuida. Os rapazes chutam. Deixaram ele aí para morrer. Mas ele ainda olha a estrada. Todo dia. Da manhã até a noite. Esperando.
+
+Dou um passo. Outro. O cajado bate na terra com um barulho seco.
+
+O cachorro não levanta a cabeça. Mas as duas orelhas, murchas e cheias de moscas, giram devagar na minha direção, como duas conchas apanhando um som distante. O focinho úmido treme. Uma vez. Duas.
+
+Ele sabe.
+
+Eu vejo saber. O corpo inteiro se contrai num espasmo mínimo, como o de um animal que sonha. A cabeça se levanta um palmo, pesada demais para o pescoço magro. E os olhos, leitosos de catarata, cheios de remela, se fixam na minha cara de velha, e eu vejo neles, por baixo da névoa dos anos, um brilho que conheço e que não devia existir.
+
+O rabo bate na terra. Uma vez.
+
+Duas.
+
+Fecho os punhos com tanta força que as unhas furam a palma. O trapo que esconde o anel aperta o dedo.
+
+Lembro dele do tamanho de um pão. Do tamanho do Timóteo quando eu parti. Lembro da mãe dele morta na palha do estábulo, numa noite de chuva, e de mim, com dezessete anos, sentada no chão com seis filhotes no colo, cinco que morreram antes do amanhecer e um que não quis morrer. Mergulhei um trapo no leite de cabra e dei a ele gota por gota, a noite inteira, e ele mamava no pano com uma fúria que me fez rir e chorar. Dormia na minha cama. A Anne reclamava do pelo no lençol. Depois descobri que, quando eu saía para o porto antes do sol, ele subia para o meu lado do colchão e deitava com a cabeça nos pés dela, e ela fingia que não gostava.
+
+Não posso me ajoelhar. Não posso estender a mão. Não posso dizer o nome dele.
+
+Há cinco rapazes no pátio olhando para nós. Um deles, vejo de relance, ri.
+
+— Ele fez festa para a senhora — murmura o Eumeu, franzindo a testa. — Ele não faz festa para ninguém. Nem para mim.
+
+— Os cachorros gostam dos velhos — digo. — Somos parecidos.
+
+A minha voz sai tão firme que me assusta.
+
+Passo por ele sem olhar para trás.
+
+Sinto o olhar do cachorro me seguindo como uma mão nas costas, com a fidelidade absoluta e burra de quem não sabe fingir, e cada passo para longe custa mais do que o anterior. Conto os passos. Não sei fazer outra coisa. Onze. Doze. Treze.
+
+No portão, escuto um som baixo, arrastado. Um gemido que não é de dor nem de fome. Uma coisa no meio das duas.
+
+Não me viro.
+
+Entro no pátio com os dentes cerrados. Atrás de mim, no monte de estrume, o velho Argos deixa a cabeça cair de novo nas patas, com um suspiro comprido, e fecha os olhos.
+
+Pela primeira vez em dez anos.
+
+Eu só vou saber disso à noite. Pelo Eumeu, que vai me dizer, sem entender o que está dizendo, que o cachorro morreu feliz. Que morreu com o rabo ainda mexendo.
 
 ---
 
-O pátio me recebe como uma boca. Eu esperava o cheiro, o barulho, a sujeira; o que não esperava era a indiferença. Ninguém repara em nós. Os rapazes que brincam de dados no chão levantam os olhos por um segundo, veem um velho porqueiro com um cesto e uma velha mendiga de cajado, e voltam ao jogo. Duas mulheres lavam roupa em tinas de bronze, de cabeça baixa. No canteiro onde plantei as doze oliveiras procuro uma muda, uma folha, qualquer sinal, e há só cascas de fruta e uma jarra quebrada. Procuro, por reflexo, os que vi do morro: o de ombros largos está agachado junto ao poço lavando o rosto, o pequeno de riso alto dorme debaixo de uma carroça de boca aberta, e o alto, de cabelo escuro, não está. Eumeu me leva pelo lado da cozinha, que é a mesma: a mesma mesa comprida de carvalho riscada de facadas, o mesmo forno de pedra, a mesma chaminé enegrecida, o mesmo cheiro de cebola refogada e de pão, até a mesma panela de bronze pendurada no gancho, onde eu, criança, ficava olhando meu reflexo torto. Só as pessoas mudaram: dois rapazes que não conheço cortam carne numa tábua, uma velha descasca cebolas de costas, e uma moça magra de dezoito anos me olha com os olhos assustados de quem já viu demais. Eumeu entrega a leitoa, diz que sou uma parenta, que fiz viagem longa, que preciso de um prato e de um canto, só por hoje, e a moça avisa, baixinho, que o Antínoo disse de manhã que qualquer mendigo que entrasse seria chicoteado, que a casa não é asilo, e que ele está de mau humor porque a rainha mandou cortar o vinho a partir do próximo barril. Eu pergunto o nome dela, e ela hesita: Melanto. Guardo o nome e o rosto, e devia ter reparado na curva do pescoço, no modo como ela olha o salão, não com medo, mas com uma espécie de fome; não reparo. Só reparo na fome dela muito depois, quando já é tarde.
+O pátio me recebe como uma boca.
 
-Sento num banco encostado à parede, num canto, com um pedaço de pão e uma caneca de leite nas mãos, a vinte passos de onde dormi quando criança, a vinte do quarto onde fui feita rainha, a quarenta e um degraus da cama onde a minha mulher dorme sozinha. A porta do salão se abre, e entra um homem que não preciso olhar duas vezes: alto, de ombros largos, cabelo escuro e cacheado caindo na testa, túnica de linho finíssimo bordada de vermelho e aberta até o meio do peito, o queixo forte, os dentes muito brancos, um rosto que foi bonito quando era menino e agora é bonito de um jeito mais duro, mais calculado, uma taça de vinho na direita e um pedaço de pão na esquerda e nos olhos a preguiça satisfeita de quem nunca precisou pedir nada. Serve-se de assado, mastiga com a boca aberta, passa a mão pela cintura de Melanto, que se deixa puxar com um riso forçado ou não, não sei. Antínoo. Olho-o como quem olha uma cobra que dorme. Procuro no rosto dele o menino de catorze anos que carregou o meu escudo com os braços tremendo; não encontro. Esse homem não tem nada do menino, a não ser a maneira de sorrir para as pessoas de quem quer alguma coisa. E então ele levanta os olhos, e me vê.
+Eu esperava o cheiro, o barulho, a sujeira. O que não esperava era a indiferença. Ninguém repara em nós. Os rapazes que jogam dados no chão levantam os olhos por um segundo, veem um porqueiro velho com um cesto e uma mendiga de cajado, e voltam ao jogo. Duas mulheres lavam roupa em tinas de bronze, de cabeça baixa. Um galo atravessa o pátio como se fosse dono.
 
-— Uma parenta do porqueiro — diz Melanto, rápida, mas ele já atravessou a cozinha com passos lentos, arrastando o calcanhar, e para diante de mim, cheirando a vinho e suor e um perfume adocicado de sândalo, e se inclina, apoiando as mãos nos joelhos, o rosto a um palmo do meu. — Do mar? Todo mundo é do mar, nesta ilha. Qual mar?
+Procuro uma muda no canteiro onde plantei as doze oliveiras. Uma folha. Qualquer sinal. Há cascas de fruta e uma jarra quebrada.
+
+Procuro os que vi do morro. O de ombros largos está agachado no poço lavando a cara. O pequeno de riso alto dorme debaixo de uma carroça, de boca aberta. O alto, de cabelo escuro, não está.
+
+O Eumeu me leva pela porta da cozinha.
+
+A cozinha é a mesma.
+
+A mesma mesa comprida de carvalho, riscada de facadas. O mesmo forno de pedra. A mesma chaminé enegrecida. O mesmo cheiro de cebola refogada e pão. Até a mesma panela de bronze pendurada no mesmo gancho, onde eu ficava olhando meu reflexo torto quando era pequena, fazendo caretas até Euricleia me mandar parar.
+
+Só as pessoas mudaram.
+
+Dois rapazes que não conheço cortam carne numa tábua. Uma velha descasca cebola de costas. E uma moça magra, de uns dezoito anos, de trança preta, me olha com os olhos assustados de quem já viu demais.
+
+O Eumeu entrega a leitoa e os queijos e diz que eu sou parenta dele, que fiz viagem longa, que preciso de um prato e de um canto, só por hoje.
+
+— O Antínoo disse hoje de manhã — fala a moça, baixinho, sem tirar os olhos de mim — que qualquer mendigo que entrar leva chicotada. Que a casa não é asilo. Ele está de mau humor. A rainha mandou cortar o vinho a partir do próximo barril.
+
+Quase sorrio. A Anne cortou o vinho.
+
+— Como você se chama? — pergunto.
+
+Ela hesita.
+
+— Melanto.
+
+Guardo o nome e o rosto. Devia ter reparado na curva do pescoço dela. No jeito como olha para a porta do salão, não com medo, mas com uma espécie de fome. Não reparo. Só vou reparar na fome dela muito depois, quando for tarde.
+
+---
+
+Sento num banco encostado na parede, num canto, com um pedaço de pão e uma caneca de leite.
+
+A vinte passos de onde eu dormia quando criança. A vinte do quarto onde fui coroada. A quarenta e um degraus da cama onde a minha mulher dorme sozinha.
+
+A porta do salão se abre, e entra um homem que eu não preciso olhar duas vezes.
+
+Alto. Ombros largos. Cabelo escuro e cacheado caindo na testa. Túnica de linho finíssimo bordada de vermelho, aberta até o meio do peito. O queixo forte, os dentes muito brancos, um rosto que foi bonito quando era menino e agora é bonito de um jeito mais duro, mais calculado. Uma taça de vinho na mão direita, um pedaço de pão na esquerda. E nos olhos a preguiça satisfeita de quem nunca precisou pedir nada.
+
+Ele se serve de assado. Mastiga de boca aberta. Passa a mão pela cintura da Melanto, que se deixa puxar com um riso que pode ser forçado ou não. Não sei. Não sei mais ler as pessoas desta casa.
+
+Antínoo.
+
+Olho para ele como quem olha uma cobra dormindo.
+
+Procuro no rosto dele o menino de catorze anos que carregou o meu escudo até o navio com os braços tremendo. Não encontro. Esse homem não tem nada do menino, a não ser o jeito de sorrir para as pessoas de quem quer alguma coisa.
+
+E ele levanta os olhos e me vê.
+
+— É parenta do porqueiro — diz a Melanto, rápido.
+
+Mas ele já atravessou a cozinha com passos lentos, arrastando um pouco o calcanhar, e para na minha frente. Cheira a vinho, a suor e a um perfume adocicado de sândalo. Se inclina, apoiando as mãos nos joelhos, com o rosto a um palmo do meu.
+
+— Do mar? — pergunta, quando o Eumeu repete a minha mentira. — Todo mundo nesta ilha é do mar. Qual mar?
 
 — O que me cuspiu na praia.
 
-Há uma pausa, e depois ele ri, um riso alto, curto, e se endireita e diz a Melanto que gosta dela, que a velha tem língua, que a deixe ficar e lhe dê o que quiser, que vai diverti-lo até o jantar. E, voltando-se para mim, com um sorriso cheio de dentes, pergunta se sei contar histórias, que ele gosta de histórias de gente do mar, que tiveram um mercador há pouco, que contou uma ótima, sobre uma rainha que dormia com uma ninfa: se conheço essa. O mundo fica muito quieto. Sinto o sangue subir até as orelhas, o trapo no dedo arder como um ferro quente, a mão que segura o cajado apertar tanto que a madeira range. Eu poderia levantar o cajado agora; poderia, num movimento, acertá-lo na têmpora, e ele cairia sem um som, e eu teria matado um dos cento e oito, e os outros cento e sete entrariam pela porta antes de eu terminar de respirar.
+Há uma pausa.
 
-— Conheço uma história parecida — digo, com uma voz calma como a de quem fala do tempo. — Dizem que no fim do mundo há uma ilha onde o tempo é diferente, onde quem chega deixa de envelhecer mas também deixa de lembrar. Que uma rainha, uma vez, passou sete anos nela, sem saber, e quando voltou o mundo inteiro tinha mudado menos o que ela deixou. Dizem que foi recebida por um bando de cães a quem tinha confiado a casa, que tinham comido tudo e bebido tudo, e ainda assim a olhavam com fome. Dizem que ela lembrou, nesse momento, o nome de cada um.
+Depois ele ri. Alto, curto. Se endireita.
 
-O sorriso de Antínoo hesita, só um pouco. Ele me observa em silêncio por um longo instante, e em algum lugar atrás dele uma panela cai, e Melanto prende a respiração. Depois volta a sorrir, mas é outro sorriso, mais apertado, mais consciente: diz que é uma bonita história, quase tanto quanto a deles, e ordena que me levem ao salão, que quer que eu conte aquilo aos outros, que quer ver a cara deles.
+— Gostei dela — diz para a Melanto. — A velha tem língua. Deixa ficar. Dá o que ela quiser. Vai me divertir até o jantar. — E vira para mim de novo, com um sorriso cheio de dentes. — Você sabe contar histórias, velha? Eu gosto de histórias de gente do mar. Tivemos um mercador aqui, faz pouco, que contou uma ótima. Sobre uma rainha que dormia com uma ninfa. — Ele inclina a cabeça. — Conhece essa?
+
+O mundo fica muito quieto.
+
+Sinto o sangue subir até as orelhas. O trapo no dedo arde como ferro quente. A mão que segura o cajado aperta tanto que a madeira range.
+
+Eu podia levantar o cajado agora. Num movimento só. Acertar na têmpora, no ponto mole atrás do olho, onde os ossos são finos como casca de ovo. Ele cairia sem um som. E eu teria matado um dos cento e oito. E os outros cento e sete entrariam por aquela porta antes de eu terminar de respirar.
+
+E depois o menino.
+
+— Conheço uma parecida — digo.
+
+A minha voz sai calma. A voz de quem fala do tempo.
+
+— Dizem que no fim do mundo há uma ilha onde o tempo é diferente. Quem chega lá para de envelhecer, mas também para de lembrar. Dizem que uma rainha, uma vez, passou sete anos nela sem saber. E que quando voltou, o mundo inteiro tinha mudado, menos o que ela deixou. — Olho para ele. Só para ele. — Dizem que foi recebida por um bando de cães a quem tinha confiado a casa. Que tinham comido tudo, bebido tudo, e ainda assim a olhavam com fome. E dizem que ela lembrou, naquele instante, o nome de cada um.
+
+O sorriso do Antínoo hesita.
+
+Só um pouco. Um tremor no canto da boca, como uma vela que pega uma corrente de ar.
+
+Ele me observa em silêncio por um longo instante. Em algum lugar atrás dele uma panela cai. A Melanto prende a respiração.
+
+Depois ele volta a sorrir. Mas é outro sorriso. Mais apertado. Mais acordado.
+
+— Bonita história — diz. — Quase tão bonita quanto a nossa. — Ele se vira. — Levem a velha para o salão. Quero que ela conte isso para os outros. Quero ver a cara deles.
 
 ---
 
-O salão está quase como eu o deixei, e isso é o pior: as tochas, as colunas de madeira pintada, o teto abobadado de vigas escuras, as janelas altas por onde a luz entra em feixes poeirentos, as mesas dispostas em duas fileiras, o fogo central apagado, e ao fundo, no estrado, uma cadeira vazia de espaldar alto, entalhada em oliveira, sob um dossel de pano verde, a cadeira da rainha, coberta de pó. Alguém deixou uma taça sobre o assento. Os pretendentes, espalhados pelos bancos, pelo chão, pelas mesas, conversam, jogam, bebem, dormem. Cento e oito, como eu previa, quase todos jovens, nenhum com mais de quarenta, uns bonitos, outros feios, todos com o ar de animais bem alimentados que esqueceram que a comida pertence a alguém. Quando entro, arrastada por Melanto, alguns levantam a cabeça. Um deles, sentado com os pés em cima da mesa, dá uma gargalhada, e outro grita que Antínoo arranjou uma bruxa, e outro, que ela conhece a história da ninfa, e eu sinto as orelhas queimarem. Sinto a mão da moça no meu cotovelo, fria, tremendo, e, por cima de tudo, uma coisa que não sentia havia anos, nem em Troia, nem em Ogígia: a vergonha de ser olhada. A vergonha que a Anne deve ter sentido naquela noite, sentada naquela cadeira, com cento e oito homens rindo dela.
+O salão está quase como eu deixei, e isso é o pior.
 
-E é então que a vejo.
+As tochas. As colunas de madeira pintada. O teto alto de vigas escuras. As janelas por onde a luz entra em feixes de poeira. As mesas em duas fileiras. O fogo do meio, apagado. E no fundo, no estrado, uma cadeira de espaldar alto entalhada em oliveira, debaixo de um dossel de pano verde.
 
-Está no fundo do salão, na porta da ala leste, parada como se tivesse acabado de chegar, num vestido verde escuro de lã, de mangas compridas, e um véu branco preso por um broche de prata. O cabelo, preso numa trança alta, tem fios brancos que eu não conhecia. Está mais magra do que lembro, mais reta, mais dura, a cabeça erguida, as mãos fechadas ao longo do corpo em punhos discretos, e os olhos fixos em mim; a cicatriz pequena na sobrancelha esquerda, a que ela ganhou numa queda de cavalo aos doze anos, ficou mais funda, mais pálida, mais dela. Trinta e seis anos de vida diante de mim, e nenhum deles a descreve. Ela é outra. Não a mulher que deixei, nem a que imaginei durante dez anos: uma pessoa inteira, diferente, feita de tudo o que eu não estava lá para ver. Tem um vinco fundo entre as sobrancelhas, que não existia. Tem um cansaço que lhe desenha o canto da boca. Tem uma postura de quem aprendeu a segurar uma casa inteira com a coluna. E tem nos olhos uma coisa dura, líquida, vigilante, como a lâmina de uma faca sob a água. Olha para mim sem me reconhecer, claro, olha para uma velha de trapos que Antínoo trouxe para se divertir, e nenhum músculo do rosto dela se move. Mas eu conheço aquela cara melhor do que conheço a minha, e vejo, sob a máscara, o pequeno tremor nas pálpebras, o mesmo que ela tinha quando era obrigada a ouvir alguma besteira cerimonial sem poder responder. Está com raiva. Está com tanta raiva que o salão inteiro devia estar pegando fogo. E o que sinto, parada diante da mulher que amei e traí e deixei e desejei durante dez anos, é uma coisa tão simples e tão devastadora que quase me faz rir: *como ela está linda.* O frio me sobe pela barriga, o mesmo do molhe, o mesmo da primeira noite, e eu tenho que me apoiar no cajado, porque as pernas esqueceram o ofício.
+A cadeira da rainha. Coberta de pó. Alguém deixou uma taça em cima do assento.
 
-Ela atravessa o salão devagar, sem pressa, sem olhar para nenhum deles. Alguns se levantam, os que ainda têm algum resquício de educação; os outros brindam. Passa a dois palmos de mim, e sinto o cheiro dela, o que não mudou, lavanda e sabão e couro, e algo de amargo, como fumaça de azeite queimado, que é novo, e o tecido do vestido roça a minha manga. Ela não para. Sobe ao estrado, senta na cadeira alta, tira a taça que alguém deixou no assento sem olhar, e a deposita no chão, e cruza as mãos no colo, e pergunta, com uma voz que atravessa o salão sem se elevar, quem é essa mulher. Melanto responde, rápida, que é uma parenta do porqueiro. *Eu não perguntei a você.* Os olhos dela pousam em mim. *Quem é você, velha?* Quero dizer meu nome. Esse é o primeiro pensamento, quero gritar, arrancar o trapo do dedo e mostrar a coruja de ouro e dizer, na frente de todos, que sou eu, que voltei, que estou aqui, que a amo. A palavra sobe, a que eu não consegui dizer em dezessete dias de mar, bate nos dentes, e eu a engulo, e ela desce queimando.
+Os pretendentes estão espalhados pelos bancos, pelo chão, pelas mesas. Conversam, jogam, bebem, dormem. Quase todos jovens. Nenhum com mais de quarenta. Uns bonitos, outros feios, todos com a cara de bicho bem alimentado que esqueceu que a comida tem dono.
 
-— Ninguém, rainha — digo, baixinho, curvando a cabeça. — Uma mulher do mar.
+Quando entro, empurrada pela Melanto, alguns levantam a cabeça.
 
-Ela me olha um instante mais. Não sei o que vê, o que procura. Um músculo minúsculo se mexe na face dela, e desaparece. Manda me dar comida e um lugar junto ao fogo, e que ninguém me toque. Antínoo, sorrindo, lembra que a velha ia lhes contar uma história, e ela responde que então que conte à noite, quando puder escutar. Levanta-se; o salão inteiro a acompanha com os olhos. Quando passa por mim, de novo, a caminho da porta, desacelera um passo. Um só. E eu sinto, como um toque, o olhar dela descer pelo meu rosto, pelos meus trapos, pelo dedo amarrado. Depois ela segue e desaparece na porta da ala leste, e eu, parada no meio do salão onde fui criança, rainha e esposa, sinto os joelhos cederem, e me agarro ao cajado para não cair, e escuto, muito ao longe, uma risada de homem, e outra, e outra, como se o mundo inteiro tivesse começado a rir de mim.
+Um, sentado com os pés em cima da mesa, dá uma gargalhada.
+
+— O Antínoo arrumou uma bruxa!
+
+— Diz que ela sabe a história da ninfa! — grita outro.
+
+Sinto as orelhas queimando. Sinto a mão da moça no meu cotovelo, fria, tremendo. E por cima de tudo uma coisa que eu não sentia havia anos, nem em Troia, nem em Ogígia.
+
+A vergonha de ser olhada.
+
+A vergonha que a Anne deve ter sentido naquela noite, sentada naquela cadeira, com cento e oito homens rindo dela. Por minha causa.
+
+E é então que eu a vejo.
+
+---
+
+Está no fundo do salão, na porta da ala leste, parada como se tivesse acabado de chegar.
+
+Vestido verde-escuro de lã, de mangas compridas. Um véu branco preso por um broche de prata. O cabelo numa trança alta, com fios brancos que eu não conhecia.
+
+Está mais magra do que eu lembro. Mais reta. Mais dura. A cabeça erguida. As mãos fechadas ao longo do corpo em punhos discretos.
+
+E os olhos em mim.
+
+A cicatriz da sobrancelha esquerda, a da queda de cavalo aos doze anos, ficou mais funda. Mais pálida. Mais dela.
+
+Trinta e seis anos de vida na minha frente, e nenhum deles a descreve.
+
+Ela é outra. Não a mulher que eu deixei, nem a que eu imaginei por dez anos. Uma pessoa inteira, diferente, feita de tudo o que eu não estava aqui para ver. Tem um vinco fundo entre as sobrancelhas que não existia. Tem um cansaço que desenha o canto da boca para baixo. Tem uma postura de quem aprendeu a segurar uma casa inteira com a coluna.
+
+E tem nos olhos uma coisa dura, líquida, vigilante. Como a lâmina de uma faca debaixo da água.
+
+Ela olha para mim e não me reconhece. Claro que não. Olha para uma velha de trapos que o Antínoo trouxe para se divertir, e nenhum músculo do rosto se move.
+
+Mas eu conheço aquela cara melhor do que a minha. E vejo, por baixo da máscara, o tremor pequeno nas pálpebras. O mesmo que ela tinha quando era obrigada a ouvir uma besteira cerimonial e não podia responder.
+
+Está com raiva.
+
+Está com tanta raiva que o salão inteiro devia estar pegando fogo.
+
+E o que eu sinto, parada na frente da mulher que eu amei e traí e deixei e desejei por dez anos, é uma coisa tão simples e tão devastadora que quase me faz rir.
+
+*Como ela está linda.*
+
+O frio me sobe pela barriga. O mesmo do molhe. O mesmo da primeira noite, quando ela disse *cale a boca* contra a minha boca. Tenho que me apoiar no cajado, porque as pernas esqueceram o ofício.
+
+---
+
+Ela atravessa o salão devagar. Sem pressa. Sem olhar para nenhum deles.
+
+Alguns se levantam, os que ainda guardam um resto de educação. Os outros erguem as taças.
+
+Ela passa a dois palmos de mim.
+
+Sinto o cheiro dela. O que não mudou: lavanda, sabão, couro. E uma coisa amarga, nova, como fumaça de azeite queimado, que eu levo um segundo para entender. É a lamparina. Ela cheira à lamparina.
+
+O tecido do vestido roça a minha manga.
+
+Ela não para.
+
+Sobe ao estrado. Tira a taça do assento sem olhar e a coloca no chão. Senta na cadeira alta. Cruza as mãos no colo.
+
+— Quem é essa mulher? — pergunta.
+
+A voz atravessa o salão sem se levantar. Os de trás calam a boca para ouvir.
+
+— Uma parenta do porqueiro, senhora — diz a Melanto, rápida.
+
+— Eu não perguntei a você.
+
+Os olhos dela pousam em mim.
+
+— Quem é você, velha?
+
+Quero dizer o meu nome.
+
+É o primeiro pensamento, e o único. Quero gritar. Arrancar o trapo do dedo e mostrar a coruja de ouro e dizer, na frente de todos, que sou eu, que voltei, que estou aqui. Que eu a amo. A palavra sobe, a que eu não consegui dizer em dezessete dias de mar, sobe e bate nos dentes.
+
+Engulo. Desce queimando.
+
+— Ninguém, rainha — digo, bem baixo, curvando a cabeça. — Uma mulher do mar.
+
+Ela me olha um instante a mais.
+
+Não sei o que vê. Não sei o que procura. Um músculo mínimo se mexe na bochecha dela, perto do canto da boca. E some.
+
+— Deem comida a ela — diz. — E um lugar perto do fogo. E que ninguém toque nela.
+
+— Ela ia contar uma história, majestade — diz o Antínoo, encostado numa coluna, sorrindo.
+
+— Então que conte à noite. — Ela se levanta. — Quando eu puder ouvir.
+
+O salão inteiro a segue com os olhos.
+
+Quando ela passa por mim outra vez, a caminho da porta, desacelera. Um passo. Só um.
+
+E eu sinto, como um toque, o olhar dela descer pelo meu rosto. Pelos meus trapos. Pelo dedo amarrado.
+
+Depois ela segue e some na porta da ala leste.
+
+E eu, parada no meio do salão onde fui criança, rainha e esposa, sinto os joelhos cederem. Me agarro ao cajado para não cair. E escuto, muito longe, uma risada de homem. E outra. E outra. Como se o mundo inteiro tivesse começado a rir de mim.
+
+---
+
+Fico no pátio até o fim da tarde, num banco de pedra encostado na parede do estábulo, com a tigela de sopa que me deram esfriando no colo.
+
+Não como. Não consigo.
+
+O sol desce e o pátio fica dourado, depois laranja, e as sombras dos pilares se esticam pelo chão de terra como dedos. Os pretendentes entram para o jantar aos poucos. A Melanto passa duas vezes com jarras e não me olha. O cheiro da lamparina continua no meu nariz.
+
+E então ouço o barulho.
+
+Um zunido curto. Uma batida seca na madeira.
+
+Outro zunido. Outra batida.
+
+Viro a cabeça.
+
+No fundo do pátio, do lado do estábulo, um menino atira flechas num alvo de palha amarrado na porta do celeiro.
+
+Tem dez anos. Sei porque sei, não porque vejo. É magro, comprido, de ombros estreitos e pernas que cresceram antes do resto. Tem o cabelo escuro cortado curto, mal cortado, como se alguém tivesse feito isso com uma faca de cozinha. Tem uma mancha amarelada no queixo. Tem o lábio cortado, quase fechado.
+
+Tem a minha testa.
+
+Não respiro.
+
+Não me mexo. A tigela de sopa pesa no colo como uma pedra. Ele não me vê. Está de costas para mim, de lado, com o arco curto de freixo levantado, e puxa a corda com o cotovelo alto demais, e fecha o olho errado.
+
+Solta.
+
+A flecha bate no alvo um palmo à esquerda do centro.
+
+Ele bufa. Pega outra flecha na aljava. Puxa. Cotovelo alto. Olho errado.
+
+Um palmo à esquerda.
+
+Eu atirava um palmo à esquerda a vida inteira. Nunca consertei o cotovelo. Aprendi a mentir para a flecha.
+
+Ele atira a terceira, e a quarta, e todas batem no mesmo lugar, juntas, num círculo apertado do tamanho de uma mão, e isso também é meu: a constância no erro. Ele é bom. É muito bom. Só está mirando o lugar errado.
+
+Na quinta, ele baixa o arco e chuta a terra.
+
+— Não adianta — diz para ninguém, baixinho, com a voz rouca de quem cresceu e ainda não sabe. — Não adianta, não adianta.
+
+Eu me levanto.
+
+Não decido. O corpo decide, como decidiu o salto em cima do redemoinho. Ponho a tigela no banco. Atravesso o pátio, devagar, com o cajado, arrastando a perna. Ele ouve o cajado e se vira, e me vê, e a mão dele vai por reflexo para a aljava, e fica lá.
+
+De perto, ele tem o queixo da Anne. Exatamente. A mesma linha, o mesmo jeito de empinar quando está com medo.
+
+— O que foi, velha? — pergunta, desconfiado.
+
+Paro a três passos. Não chego mais perto. Se eu chegar mais perto, eu toco nele. E se eu tocar nele, acabou.
+
+— Você atira bem — digo.
+
+A voz de velha arranha na garganta.
+
+— Eu atiro torto.
+
+— Atira torto sempre igual. Isso é atirar bem. — Aponto o alvo com o queixo. — Mira um palmo à direita.
+
+Ele franze a testa.
+
+— Isso é trapaça.
+
+— Isso é guerra.
+
+Ele me olha por um longo momento. Os olhos são verdes. Os dela. Desconfiados, inteligentes, cansados, velhos demais para a cara.
+
+Depois se vira para o alvo. Pega uma flecha. Puxa. Cotovelo alto, olho errado.
+
+E mira um palmo à direita.
+
+A flecha bate no centro.
+
+Ele fica parado com o arco abaixado. Olhando. Depois se vira devagar para mim, com a boca entreaberta, e no rosto dele há uma coisa que eu nunca vi e que vou ver em sonhos pelo resto da vida: o espanto de um menino que descobriu um segredo.
+
+— Como a senhora sabia?
+
+Não respondo.
+
+Não posso. A garganta fechou. Viro de costas e volto para o banco, arrastando a perna, contando os passos para não cair, e ouço atrás de mim, um depois do outro, os zunidos e as batidas.
+
+No centro. No centro. No centro.
+
+E depois a voz dele, alta, por cima do pátio, de um jeito que eu nunca tinha ouvido e que eu daria os sete anos de Ogígia para ouvir de novo.
+
+Ele está rindo.
