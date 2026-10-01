@@ -188,7 +188,7 @@ O ar sai do meu peito de uma vez.
 
 Ninguém me chama assim há dez anos. Ninguém sabe que alguém me chamou assim. A palavra entra em mim como a ponta de uma flecha, quente, e fica, e o calor se espalha da garganta até a barriga e desce, e eu aperto a mão do Timóteo com tanta força que ele olha para mim.
 
-Ela já foi. Já está atravessando o pátio, curva, arrastando a perna, com cento e sete homens rindo de qualquer coisa em volta dela.
+Ela já foi, sem esperar resposta, como quem joga uma pedra num poço e não fica para ouvir o fundo. Já está atravessando o pátio, curva, arrastando a perna, com cento e sete homens rindo de qualquer coisa em volta dela.
 
 Eu fico sentada na cadeira alta com o rosto de pedra e as coxas apertadas uma contra a outra por baixo do vestido, e o coração batendo no meio delas.
 
