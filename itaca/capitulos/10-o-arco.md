@@ -409,4 +409,6 @@ Levo a mão ao rosto e respiro. Uma vez. Fundo.
 
 — Amanhã — sussurro.
 
+Amanhã eu mando chamar a velha para pentear o meu cabelo. Uma rainha pode pedir a uma hóspede que a penteie; é costume antigo, de Esparta, eu invento se for preciso. E vou ficar sentada de costas para ela, com as mãos dela no meu cabelo, e contar quantas vezes os dedos tremem.
+
 E adormeço, pela primeira vez em vinte noites, sem sonhar.
