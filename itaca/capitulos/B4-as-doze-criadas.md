@@ -4,7 +4,7 @@
 
 Quando o sol nasce, eu já decidi o que fazer com elas. E depois passo três horas fingindo que não.
 
-É o meu jeito. A decisão vem inteira, de uma vez, na janela, junto com o sopro e a lamparina apagada. Mas uma decisão tomada depressa não convence ninguém, nem quem toma. Por isso desço ao pátio e fico junto ao poço, de braços cruzados, olhando as pedras lavadas, deixando o tempo passar como quem espera o pão crescer.
+É o meu jeito. A decisão vem inteira, de uma vez, na janela, junto com o sopro e a lamparina apagada. Mas uma decisão tomada depressa não convence ninguém, nem quem toma. Por isso desço ao pátio e fico junto ao poço, de braços cruzados, olhando as pedras lavadas, deixando o tempo passar como quem espera o pão crescer. Do estábulo, no fundo do pátio, vem um barulho de água num cocho, e eu não olho para lá. Não olho durante muito tempo. Depois olho, e atravesso o pátio, e o que acontece lá eu guardo para mim, junto com um ponto de costura torto que eu não tive coragem de contar até o fim.
 
 O pátio cheira a cal. Nas frestas entre as pedras, onde a areia não chegou, ainda há uma linha escura. Não olho para ela.
 
