@@ -202,7 +202,7 @@ Eu fecho a mão no punho do arco e sinto, impossível, um resto de calor, que de
 
 Encosto a testa no arco.
 
-Na madeira, presa na farpa onde a corda se encaixa, tem um fio de cabelo. Comprido. Castanho. Com a ponta grisalha.
+Na madeira, presa na farpa onde a corda se encaixa, perto da ponta de chifre que ela deve ter apertado contra o rosto, tem um fio de cabelo. Comprido. Castanho. Com a ponta grisalha.
 
 Eu solto o fio da farpa com cuidado, com a unha, como quem desarma uma armadilha. Enrolo no dedo do anel, por cima do trapo, três voltas. Ele fica lá, quase invisível, um fio só.
 
