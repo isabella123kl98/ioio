@@ -380,7 +380,7 @@ A Euricleia sorri, triste, e me beija a testa.
 
 — Vai, então. Antes que a gente perca o que sobrou. E leva pão, que você não come quando está com raiva e quando está com tesão, e hoje você está com as duas.
 
-Saio da cozinha com a cara pegando fogo e um pão debaixo do braço.
+Saio da cozinha com a cara pegando fogo e um pão debaixo do braço, e ouço a velha rir atrás de mim, rouca, o primeiro riso dela desde o salão.
 
 ---
 
