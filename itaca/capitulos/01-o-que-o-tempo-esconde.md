@@ -18,9 +18,9 @@ Já faltou outras vezes, nas últimas semanas, mais do que nas anteriores. Procu
 
 Abro os olhos.
 
-A luz entra pela boca da gruta em lâminas compridas e bate no teto, onde as parreiras que Calipso deixa crescer pelas frestas desenham uma renda de sombra verde. Há quatro fontes do lado de fora e eu conheço o som de cada uma: a que goteja, a que corre, as duas que brigam sobre um leito de seixos. Ouço o mar, que nunca para e que faz parte do silêncio daqui como uma respiração. A cama é larga, de madeira clara, coberta de lã branca. Na cabeceira há uma coluna de pedra lisa, sem nenhum entalhe, que sempre me incomodou sem que eu soubesse dizer por quê.
+A luz entra pela boca da gruta em lâminas compridas e bate no teto, onde as parreiras que Calipso deixa crescer pelas frestas desenham uma renda de sombra verde. Há quatro fontes do lado de fora e eu conheço o som de cada uma: a que goteja, a que corre, as duas que brigam sobre um leito de seixos. Ouço o mar, que nunca para e que faz parte do silêncio daqui como uma respiração. A cama é larga, de madeira clara, coberta de lã branca. Na cabeceira há uma coluna de pedra lisa, sem nenhum entalhe, que me incomoda desde a primeira semana, como um dente que falta na boca de alguém que a gente ama.
 
-Eu sei por quê. Ali devia haver uma oliveira.
+Ali devia haver uma oliveira.
 
 Calipso se mexe. O braço aperta. Os dedos abrem e fecham sobre a minha barriga, uma vez, duas, e ela encosta o rosto nas minhas costas, e eu sinto o hálito quente entre as omoplatas. Fico parada. Aprendi no primeiro ano que o jeito menos doloroso de passar as manhãs é ficar parada até ela despertar sozinha, sem que eu tenha sido a causa de nada. Se eu me levanto antes, se o colchão acusa a minha ausência, ela abre os olhos já cheios de uma coisa que eu não sei nomear nem quero, e o dia inteiro fica torto.
 
@@ -34,7 +34,7 @@ Isso também é uma coisa que o meu corpo aprendeu e que eu não autorizei.
 
 ---
 
-Calipso me deu tudo. Isso precisa ficar dito, porque é a parte mais fácil de esquecer quando estou com raiva, e eu estou quase sempre com raiva, e a raiva sempre pede um vilão mais simples do que a verdade.
+Calipso me deu muito. Isso precisa ficar dito, porque é a parte mais fácil de esquecer quando estou com raiva, e eu ando com raiva na maior parte dos dias, e a raiva gosta de um vilão mais simples do que a verdade.
 
 Quando o mar me cuspiu na praia dela, nove dias depois de a última lasca do meu último navio ter afundado, eu tinha uma túnica que fedia a cadáver, dois dentes soltos e uma ferida na cabeça que nunca mais fechou direito. Ela me encontrou desmaiada entre as algas. Me arrastou até a gruta, sozinha, puxando pelos sovacos, e eu sou pesada. Lavou a minha pele, raspou o sal do meu cabelo com um pente de osso, me deu sopa de peixe com mel, colher por colher, como se eu fosse um bebê. Eu deixei. Não tinha força nem para ter vergonha.
 
@@ -44,33 +44,33 @@ Me amou do jeito de quem nunca soube que amor pode ser outra coisa além de poss
 
 Devia ser grata, e sou. Mas a gratidão é um animal estranho. Fica num canto do peito e rosna toda vez que eu tento querer outra coisa.
 
-Então me levanto. Me visto. Sento à mesa de pedra e como o pão de cevada que ela assou na pedra quente, o queijo de cabra, as azeitonas verdes. Agradeço. Ela agradece o meu agradecimento. E o dia começa exatamente como os dois mil e tantos que vieram antes dele.
+Então me levanto. Me visto. Sento à mesa de pedra e como o pão de cevada que ela assou na pedra quente, o queijo de cabra, as azeitonas verdes. Agradeço. Ela agradece o meu agradecimento. E o dia começa igual aos dois mil e tantos que vieram antes dele.
 
-Eu sei o número. É a coisa que não conto em voz alta.
+Tenho o número na ponta da língua e nunca o digo em voz alta.
 
 Dois mil quinhentos e oitenta e sete, hoje.
 
-Sete invernos de trezentas e sessenta e cinco noites, menos uns dias, mais uns dias, e o resto que a minha cabeça nunca limpou da mania de contar. Faço a conta todas as manhãs, e todas as manhãs o número me parece uma mentira escrita na minha testa. Porque lá no fundo, num lugar onde o raciocínio não alcança, eu sei o que sei: cheguei ontem.
+Sete invernos de trezentas e sessenta e cinco noites, menos uns dias, mais uns dias, e o resto que a minha cabeça nunca limpou da mania de contar. Faço a conta todas as manhãs, e todas as manhãs o número me parece uma mentira escrita na minha testa. Porque lá no fundo, num lugar onde o raciocínio não alcança, o corpo insiste numa coisa só: cheguei ontem.
 
 Não é metáfora. É uma certeza física, sem argumento, dessas que o corpo guarda. Desembarquei nesta praia ontem, no máximo há uma semana, e a ferida da cabeça ainda está aberta e quente, e o gosto do último navio ainda está na minha boca.
 
 E em Ítaca também é ontem.
 
-A Anne está lá, de camisola, sentada na beira da cama com o bebê no colo, e diz que eu vá logo. Não olha para mim. Eu a vejo com todos os detalhes: o cabelo solto ainda com as marcas da trança, os pés descalços apoiados um sobre o outro no chão frio, o ombro esquerdo que a camisola deixa de fora, com a marca dos meus dentes da noite anterior. Nessa imagem eu estou sempre na porta, já de armadura. E ela nunca levanta os olhos.
+A Anne está lá, de camisola, sentada na beira da cama com o bebê no colo, e diz que eu vá logo. Não olha para mim. Eu a vejo com todos os detalhes: o cabelo solto ainda com as marcas da trança, os pés descalços apoiados um sobre o outro no chão frio, o ombro esquerdo que a camisola deixa de fora, com a marca dos meus dentes da noite anterior. Nessa imagem eu estou na porta, já de armadura, com a correia do escudo meio afivelada. E ela não levanta os olhos.
 
-Nunca levantou. Eu sei por quê. Não quero pensar nisso agora.
+Não levantou naquela manhã, e eu conheço o motivo, e não quero pensar nele agora, porque ele tem a ver com uma escada e uma espada e uma frase que eu disse na véspera.
 
 ---
 
 Calipso passa o dia no tear, cantando baixo, e eu debulho vagens no pátio de pedra, onde as trepadeiras deixam passar só metade do sol.
 
-A rotina é minha inimiga e minha amiga ao mesmo tempo. Entre uma vagem e outra fico ouvindo o que ela canta, e percebo que não é nenhuma das canções de sempre. É uma canção nova, sobre uma mulher que espera um barco numa praia, e o barco nunca chega, e mesmo assim a mulher fica, e o refrão é uma palavra só, repetida até virar barulho de onda.
+A rotina é minha inimiga e minha amiga ao mesmo tempo. Entre uma vagem e outra fico ouvindo o que ela canta, e percebo que não é nenhuma das canções que eu conheço dela. É uma canção nova, sobre uma mulher que espera um barco numa praia, e o barco nunca chega, e mesmo assim a mulher fica, e o refrão é uma palavra só, repetida até virar barulho de onda.
 
 Ela está cantando a minha canção ao contrário. A canção de quem fica.
 
 Pela primeira vez em sete anos isso me incomoda de um jeito que eu consigo identificar. Não é raiva. É medo.
 
-Ela sente. Sempre sente. Corta o fio com os dentes, levanta do tear e vem até mim com as mãos sujas de lã, agacha na minha frente e segura os meus joelhos com as duas palmas. Fica ali, esperando que eu a olhe.
+Ela percebe. Corta o fio com os dentes, levanta do tear e vem até mim com as mãos sujas de lã, agacha na minha frente e segura os meus joelhos com as duas palmas. Fica ali, esperando que eu a olhe.
 
 Olho.
 
@@ -78,13 +78,13 @@ E por um segundo horrível o rosto dela muda. O queixo fica mais fino. Os olhos,
 
 Some.
 
-Calipso está de volta, com as covinhas de sempre, os olhos cor de mel queimado, me olhando com a ternura que virou costume. E eu sei, sentada ali com uma vagem esmagada entre os dedos, que não é a primeira vez que o rosto dela faz isso. É só que eu sempre me recusei a olhar.
+Calipso está de volta, com as covinhas, os olhos cor de mel queimado, me olhando com a ternura que virou costume. E sentada ali, com uma vagem esmagada entre os dedos, eu desconfio que não é a primeira vez que o rosto dela faz isso. A diferença é que hoje eu não desviei.
 
 — Você me olha como quem já foi embora — diz ela, baixinho, sem soltar os meus joelhos.
 
 A frase ocupa o pátio inteiro.
 
-Levanto. Ela deixa; ela sempre deixa. Desço pelo caminho de cascalho até a praia, e o cascalho machuca as solas, que nunca endureceram apesar de sete anos, e o vento do mar bate na minha cara. Caminho de mãos fechadas até a ponta do rochedo onde passei tantas manhãs chorando na direção da água.
+Levanto. Ela me deixa ir, como deixou nos outros dias. Desço pelo caminho de cascalho até a praia, e o cascalho machuca as solas, que nunca endureceram apesar de sete anos, e o vento do mar bate na minha cara. Caminho de mãos fechadas até a ponta do rochedo onde passei tantas manhãs chorando na direção da água.
 
 Hoje, de pé na beira da pedra, olhando o mar sem fim, percebo que não choro.
 
@@ -120,7 +120,7 @@ Como se eu tivesse acabado de chegar.
 
 — Quanto tempo você acha que passou?
 
-A boca quase repete a mentira teimosa de sempre: uma semana, duas, um mês no máximo. Sei que é isso que ele quer, que eu diga em voz alta para poder corrigir. Digo, em vez disso, como quem despeja um balde de água gelada na própria cabeça:
+A boca quase repete a mentira teimosa: uma semana, duas, um mês no máximo. Sei que é isso que ele quer, que eu diga em voz alta para poder corrigir. Digo, em vez disso, como quem despeja um balde de água gelada na própria cabeça:
 
 — Sete anos nesta ilha. Três antes, no mar.
 
@@ -128,13 +128,13 @@ A boca quase repete a mentira teimosa de sempre: uma semana, duas, um mês no m�
 
 Ouvir o número na boca de outra pessoa é diferente. É uma pancada no plexo.
 
-O Timóteo tinha dois meses e dois dias quando eu parti. Do tamanho de um pão grande. Ainda fazia aquele barulho de passarinho quando dormia, um chiado fino que me acordava achando que ele tinha parado de respirar. Deve ter a altura do meu peito agora. Deve ter a minha testa, que a Anne sempre odiou, e o queixo dela, que eu sempre amei.
+O Timóteo tinha dois meses e dois dias quando eu parti. Do tamanho de um pão grande. Ainda fazia aquele barulho de passarinho quando dormia, um chiado fino que me acordava achando que ele tinha parado de respirar. Deve ter a altura do meu peito agora. Deve ter a minha testa, que a Anne chamava de proa de navio, e o queixo dela, que eu passei a vida querendo morder.
 
 E penso na Anne, e o que me vem primeiro não é o rosto dela. É o que eu fiz.
 
-A gruta. A cama sem oliveira. O cheiro de cedro. As manhãs em que acordei com o braço de outra mulher na cintura e fiquei parada, sem coragem de me levantar. Os primeiros meses, em que eu me lavava no riacho até a pele ficar vermelha. E os meses seguintes, em que parei de me lavar, porque a vergonha, como tudo, cansa.
+A gruta. A cama sem oliveira. O cheiro de cedro. As manhãs em que acordei com o braço de outra mulher na cintura e fiquei parada, sem coragem de me levantar. Os primeiros meses, em que eu me lavava no riacho até a pele ficar vermelha. E os meses seguintes, em que parei de me lavar, porque a vergonha também cansa, como cansa remar.
 
-Sei que foi o encanto. Sei que a ilha dobrou o tempo de um jeito a que nenhum mortal resiste, que o que eu sinto como um dia foi uma estação. Sei tudo isso com a cabeça. E mesmo assim, de pé na pedra, diante do mensageiro dos deuses, tenho o mesmo horror no corpo.
+Foi o encanto, eu me digo. A ilha dobrou o tempo de um jeito a que nenhum mortal resiste, e o que eu sinto como um dia foi uma estação. A cabeça aceita essa explicação. E mesmo assim, de pé na pedra, diante do mensageiro dos deuses, tenho o mesmo horror no corpo.
 
 Como é que eu explico isso a ela?
 
@@ -146,7 +146,7 @@ Ele hesita. É a primeira vez que o vejo sem a resposta pronta. Olha o mar, a ar
 
 Bate as asas das sandálias, o bastão brilha, e ele sobe a trilha deixando uma linha de pegadas que o vento apaga antes de eu conseguir olhar.
 
-Fico na ponta do rochedo até a luz virar dourada, e depois laranja. O anel continua onde sempre esteve, no anelar esquerdo: a coruja de ouro de asas fechadas, com os olhinhos de pedra cinzenta. A Anne me deu no primeiro aniversário de casamento, de cara fechada, jogando no meu colo como quem joga uma castanha, e disse que era para eu lembrar que alguém me vigiava. Giro o anel. Ele gira fácil demais. O dedo emagreceu.
+Fico na ponta do rochedo até a luz virar dourada, e depois laranja. O anel continua no anelar esquerdo: a coruja de ouro de asas fechadas, com os olhinhos de pedra cinzenta. A Anne me deu no primeiro aniversário de casamento, de cara fechada, jogando no meu colo como quem joga uma castanha, e disse que era para eu lembrar que alguém me vigiava. Giro o anel. Ele gira fácil demais. O dedo emagreceu.
 
 Nunca pensei em tirar. Nunca, nem uma noite em sete anos.
 
@@ -160,7 +160,7 @@ Subo a trilha no escuro, com o mar nas costas, e o som vem da gruta abafado pela
 
 Paro atrás da cortina de parreiras com a mão na pedra fria.
 
-Escuto jarras de barro se partindo no chão. Uma. Outra. Depois uma frase na língua antiga das ninfas, cheia de vogais compridas, que ela só usa quando a raiva não deixa espaço para traduzir, e dentro dela o meu nome, pronunciado errado como ela sempre pronunciou, com um erre a mais que nunca existiu.
+Escuto jarras de barro se partindo no chão. Uma. Outra. Depois uma frase na língua antiga das ninfas, cheia de vogais compridas, que ela só usa quando a raiva não deixa espaço para traduzir, e dentro dela o meu nome, pronunciado com o erre a mais que ela pôs nele no primeiro dia e nunca tirou.
 
 Quando para, quando escuto o soluço e o barulho de alguém sentando no chão, eu entro.
 
@@ -182,7 +182,7 @@ Não. Não odeio. Eu queria odiar; seria tão simples. O ódio tem forma, direç
 
 Isso é verdade. E é o pior.
 
-O machado passou sete anos encostado na parede da gruta, ao lado da pilha de lenha, com o cabo gasto da mão dela. Eu passei por ele todas as manhãs, milhares de vezes, sem nunca estender a mão. Posso dizer que foi o encanto, a ilha, a magia dela, e em parte foi. Mas sei também, no mesmo lugar do corpo onde sei que cheguei ontem, que em algum momento eu parei de querer estender a mão. Que a cama era quente, a mesa era farta, e que a voz da Anne começou a fugir de mim e eu não corri atrás.
+O machado passou sete anos encostado na parede da gruta, ao lado da pilha de lenha, com o cabo gasto da mão dela. Eu passei por ele todas as manhãs, milhares de vezes, sem nunca estender a mão. Posso dizer que foi o encanto, a ilha, a magia dela, e em parte foi. Mas no mesmo lugar do corpo que insiste que cheguei ontem mora uma coisa pior: em algum momento eu parei de querer estender a mão. Que a cama era quente, a mesa era farta, e que a voz da Anne começou a fugir de mim e eu não corri atrás.
 
 Essa é a parte que eu nunca vou conseguir contar.
 
@@ -204,7 +204,7 @@ Durmo no chão, perto da entrada, enrolada numa manta velha que cheira a cabra. 
 
 A jangada leva quatro dias.
 
-Calipso me entrega o machado na manhã seguinte, sem uma palavra, com o cabo estendido para mim. Os nossos dedos se tocam por um instante, e nenhuma das duas reage. Ela me mostra onde crescem os pinheiros mais altos, os ciprestes secos, os choupos, tudo o que flutua melhor. Depois se afasta e me deixa sozinha com as árvores.
+Calipso me entrega o machado na manhã seguinte, sem uma palavra, com o cabo estendido para mim. Os nossos dedos se tocam por um instante, e nenhuma das duas reage. Ela me mostra onde crescem os pinheiros mais altos, os ciprestes secos, os choupos, a madeira que boia melhor. Depois se afasta e me deixa sozinha com as árvores.
 
 O primeiro dia é só derrubar.
 
@@ -214,7 +214,7 @@ Dói de um jeito limpo. Uma dor que faz sentido, que tem causa e efeito. Uma dor
 
 No segundo dia furo os troncos com o trado que Calipso me emprestou e uno as peças com cavilhas de madeira e corda de fibra trançada. Prendo o leme. Faço o mastro de um pinheiro de tronco reto como lança e trabalho nele a tarde inteira, desbastando a casca com a faca, alisando com uma pedra, sentindo a madeira mudar de cor debaixo das mãos, do marrom áspero ao dourado claro.
 
-É tudo o que eu sei fazer. Construir. Consertar. Dar forma.
+É a única coisa em que as minhas mãos nunca hesitaram. Construir. Consertar. Dar forma.
 
 Lembro do meu pai me ensinando a fazer o primeiro barco de brinquedo no pátio do palácio, e da cara da minha mãe, que achava inapropriado uma princesa com as mãos sujas de resina. Lembro da Anne no primeiro inverno, de farinha no cabelo, sentada na beira do canteiro enquanto eu consertava o forno de pão que ela tinha construído sozinha e que desabara na primeira chuva. Ela ria de mim. Dizia que eu parecia estar consertando um navio de guerra. Eu respondi, com barro até os cotovelos, que ela tinha construído um forno que não aguentava chuva, e ela apontou para mim com um pedaço de massa na ponta dos dedos, muito séria.
 
@@ -226,7 +226,7 @@ Levanto a cabeça. O sol está baixo. Estou chorando em cima de um mastro, e nã
 
 Na terceira noite, ela vem.
 
-Estou deitada no meu canto, perto da entrada, de costas para a gruta, com as mãos enroladas em trapos latejando no ritmo do coração. Não durmo. Ouço os pés dela na pedra, devagar, e sei que é ela pelo silêncio dos passos; ninguém mais nesta ilha anda sem fazer barulho. Ouço o farfalhar da lã. Sinto o colchão de palha afundar atrás de mim.
+Estou deitada no meu canto, perto da entrada, de costas para a gruta, com as mãos enroladas em trapos latejando no ritmo do coração. Não durmo. Ouço os pés dela na pedra, devagar, e reconheço pelo silêncio dos passos; ninguém mais nesta ilha anda sem fazer barulho. Ouço o farfalhar da lã. Sinto o colchão de palha afundar atrás de mim.
 
 Ela se deita. Não me toca. Fica a um palmo das minhas costas, e eu sinto o calor do corpo dela atravessar o ar como se atravessa a parede de um forno.
 
@@ -256,13 +256,9 @@ Não com violência. Devagar. Tiro a minha mão da mão dela e a recolho contra 
 
 Calipso fica parada atrás de mim por muito tempo. Não chora. Eu esperava que chorasse. Depois sinto o colchão subir de novo, quando ela se levanta, e ouço os passos sem som se afastando pela gruta.
 
-— Você nunca disse essa palavra antes — diz, de longe, do escuro. — Em sete anos. Nem uma vez.
+— Você nunca disse essa palavra antes — diz, de longe, do escuro, com uma voz que tenta ser leve e erra o tom. — Sete anos dizendo *talvez*, *amanhã*, *estou cansada*, e eu achando que era timidez de mortal. Era só falta de porto, não era? Basta aparecer um barco e você aprende a recusar como uma rainha.
 
-— Eu sei.
-
-— Por que agora?
-
-Não respondo. Mas sei a resposta, e ela também sabe. Porque agora eu tenho para onde ir. E uma mulher que tem para onde ir aprende, de repente, a dizer não.
+Não respondo. A resposta está no escuro entre nós, e as duas a enxergam. Agora eu tenho para onde ir. E uma mulher que tem para onde ir aprende, de repente, a dizer não.
 
 É uma coisa terrível de descobrir sobre si mesma, deitada no chão de uma gruta, com as mãos em carne viva.
 
@@ -280,7 +276,7 @@ Não pergunto por que aquela cor. Não quero saber. Não pergunto quanto tempo l
 
 Costuro a vela sozinha, na areia, com agulha de osso e fio de linho. Os pontos saem tortos, apertados demais, e desfaço três vezes. Quando termino, ergo a vela no mastro pela primeira vez, sem vento, e ela pende mole e dourada na minha frente.
 
-Penso que aquilo é exatamente o que eu mais odeio e mais respeito no mundo: um presente que me obriga a partir.
+Penso que aquilo é o que eu mais odeio e mais respeito no mundo: um presente que me obriga a partir.
 
 ---
 
@@ -294,7 +290,7 @@ Baixo, sem ênfase, como quem recita uma lição antiga para uma criança que j�
 
 — A Ursa sempre à sua esquerda. É a única que nunca mergulha no oceano. Ao cair da noite, olhe as Plêiades. Depois o Boieiro, que se põe tarde. Dezessete dias de mar aberto, se os ventos forem gentis. Depois, as montanhas de uma terra que você vai reconhecer.
 
-Diz tudo isso de cabeça baixa. Eu escuto cada palavra, e decoro cada palavra, e odeio cada palavra, porque a minha volta para casa passa pela boca dela.
+Diz isso de cabeça baixa. Eu escuto cada palavra, e decoro cada palavra, e odeio cada palavra, porque a minha volta para casa passa pela boca dela.
 
 Quando termina, fica mais um longo tempo em silêncio. Depois diz, ainda para o fogo, quase sem voz:
 
@@ -310,13 +306,13 @@ Saio antes de o céu clarear.
 
 Desço a trilha no escuro, com os pés conhecendo cada pedra, e encontro a jangada batendo devagar nos calços de areia, com a vela dourada enrolada no mastro. Empurro os troncos para a água com as palmas em carne viva. O mar frio sobe pelas minhas pernas. Subo a bordo, e o vento da madrugada pega a vela e a enche com um estalo.
 
-Não olho para trás. Sei que ela está lá. Não a ouvi descer, mas sei. E sei que, se eu olhar, não vou conseguir.
+Não olho para trás. Ela está lá; não a ouvi descer, mas a nuca me avisa, como avisa quando alguém mira uma flecha. Se eu olhar, não vou conseguir.
 
 Olho.
 
 Uma forma clara contra a escuridão da gruta, parada na areia, descalça, com o manto apertado no corpo. Não levanta a mão. Não diz adeus. Eu também não.
 
-O vento empurra. A jangada se afasta da costa, e a ilha, e ela, e a gruta, e a cama sem oliveira, e a coluna de pedra, e o cheiro de cedro, tudo encolhe e se dissolve no escuro.
+O vento empurra. A jangada se afasta da costa, e a ilha, e ela, e a gruta, e a cama sem oliveira, e a coluna de pedra, e o cheiro de cedro, encolhendo até virar uma mancha no escuro.
 
 Procuro, sem querer, a voz da Anne. No vento, no barulho das ondas, dentro da cabeça. Procuro a rouquidão, o fio puxado, o *Emmm-ily* que ela dizia quando eu chegava tarde.
 

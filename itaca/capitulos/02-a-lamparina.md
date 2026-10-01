@@ -4,7 +4,7 @@
 
 O dia em que eu soube começou com sangue no pátio, e por muito tempo vou lembrar dele como o dia do sangue e não do outro motivo.
 
-Desço ao amanhecer, porque desço sempre ao amanhecer, antes dos homens, antes das criadas, quando a casa ainda cheira a mim: pedra fria, cinza de lareira, o azedo leve do leite esquecido na panela de bronze. É a única hora em que o palácio me pertence. Fico um instante no alto da escada, com a mão no corrimão, e escuto, e conto o que escuto. Três portas abertas no corredor norte, o que quer dizer que há criada que não dormiu e alguma coisa errada. O silêncio da ala leste, o que é bom sinal, porque meu filho dorme lá. Um ronco longe, a dezessete passos, de algum homem caído em cima das mesas.
+Desço ao amanhecer, como desço há dez anos, antes dos homens, antes das criadas, quando a casa ainda cheira a mim: pedra fria, cinza de lareira, o azedo leve do leite esquecido na panela de bronze. É a única hora em que o palácio me pertence. Fico um instante no alto da escada, com a mão no corrimão, e escuto, e conto o que escuto. Três portas abertas no corredor norte, o que quer dizer que há criada que não dormiu e alguma coisa errada. O silêncio da ala leste, o que é bom sinal, porque meu filho dorme lá. Um ronco longe, a dezessete passos, de algum homem caído em cima das mesas.
 
 No pátio a névoa sobe do chão como se a terra respirasse. Atravesso sem fazer barulho.
 
@@ -20,7 +20,7 @@ Pego o rosto dele nas duas mãos. Deixa. A pele do queixo está quente, com o ca
 
 — Não conta pra ninguém — diz ele, com a voz rouca de quem já gritou tudo o que podia. — Eu caí no degrau do poço, mãe. Juro.
 
-É uma mentira tão ruim que me dá vontade de rir, e o riso e o choro brigam um segundo dentro de mim, e eu engulo os dois. Ele sabe que eu sei. Eu sei que ele sabe que eu sei. É a cumplicidade mais triste que já tive com alguém: um menino de dez anos me pedindo para fingir que acredito, porque a alternativa é uma guerra que nós dois perdemos antes de começar.
+É uma mentira tão ruim que me dá vontade de rir, e o riso e o choro brigam um segundo dentro de mim, e eu engulo os dois. Ele percebe que eu percebi, e me olha com o olho bom esperando que eu entre no jogo. É a cumplicidade mais triste que já tive com alguém: um menino de dez anos me pedindo para fingir que acredito, porque a alternativa é uma guerra que nós dois perdemos antes de começar.
 
 Digo, com a boca no cabelo dele, que um dia ele vai me contar. Hoje não. E fico ali, de joelhos no feno, com ele no colo como se tivesse dois anos, até ouvir passos no pátio.
 
@@ -30,13 +30,13 @@ Sandálias largas, saindo do salão. Vindo devagar. Arrastando um pouco o calcan
 
 Reconheço o andar do Antínoo antes de ver a cara.
 
-Tem vinte e quatro anos, é filho de Eupites, nasceu nesta ilha e foi criado entre as festas e os favores da nobreza de Ítaca, e carrega no corpo a preguiça satisfeita de quem sempre teve tudo e nunca precisou pedir. Aparece na porta do estábulo com a túnica aberta até o umbigo e uma taça na mão, nem cheia nem vazia, e sorri aquele sorriso de dentes bonitos com que conquistou metade das mulheres da ilha e pretende conquistar a outra metade. Olha para mim, ajoelhada. Olha para o menino no meu colo. O sorriso não muda.
+Tem vinte e quatro anos, é filho de Eupites, nasceu nesta ilha e foi criado entre as festas e os favores da nobreza de Ítaca, e carrega no corpo a preguiça satisfeita de quem ganhou cada brinquedo antes de pedir. Aparece na porta do estábulo com a túnica aberta até o umbigo e uma taça na mão, nem cheia nem vazia, e sorri aquele sorriso de dentes bonitos com que conquistou metade das mulheres da ilha e pretende conquistar a outra metade. Olha para mim, ajoelhada. Olha para o menino no meu colo. O sorriso não muda.
 
 — Majestade, acordou cedo. Eu nem dormi, o vinho da sua adega é bom demais para perder tempo com sono. — A mesura que faz não chega a ser mesura. — Soube que o menino caiu no poço. Pobre criança, tão desastrado. Mas criança se machuca fácil, Anne, e casa sem homem é perigosa. A senhora precisa ter mais cuidado com ele.
 
 É a primeira vez que me chama pelo nome.
 
-O coração me sobe à garganta, aos pulsos, ao fundo dos ouvidos. A boca se enche de uma saliva amarga. Sei o que devia fazer: levantar e dizer na cara dele tudo o que a minha língua conhece, e minha mãe espartana estaria atrás de mim com a lança, pronta para abrir o peito dele do queixo à virilha. E sei, com a mesma certeza, o que aconteceria. Ele sorriria mais. Os cento e sete amigos acordariam e desceriam ao pátio. Uma mulher e uma criança contra cento e oito, e ele sabe, e eu sei, e nenhum dos dois precisa dizer.
+O coração me sobe à garganta, aos pulsos, ao fundo dos ouvidos. A boca se enche de uma saliva amarga. O que eu devia fazer está claro: levantar e despejar na cara dele o vocabulário inteiro que a minha língua conhece, e minha mãe espartana estaria atrás de mim com a lança, pronta para abrir o peito dele do queixo à virilha. E o que aconteceria depois também está claro. Ele sorriria mais. Os cento e seis amigos acordariam e desceriam ao pátio. Uma mulher e uma criança contra cento e sete, e a conta está escrita na cara dele, e na minha, e nenhum dos dois precisa dizer o resultado.
 
 Então fico de joelhos, com o sangue do meu filho nas mangas, e conto, um, dois, três, porque é só isso que me separa da pá de adubo encostada na parede e da cabeça dele aberta na frente do menino.
 
@@ -52,29 +52,23 @@ Não respondo. A pergunta cai no meio do feno como pedra em poço sem fundo.
 
 Levo-o para a cozinha no colo, apesar de ele protestar que já anda, e sento-o na borda da mesa comprida de carvalho onde Euricleia sova o pão. A cozinha ainda está fria. O fogo de ontem virou um monte de cinza cor de pombo, e eu mesma o acordo, de joelhos, soprando, até a primeira lasca de pinho pegar. Encho a bacia de bronze com água do pote, ponho para amornar perto das brasas e rasgo uma tira da barra da minha túnica, porque não quero ir buscar pano limpo e deixá-lo sozinho, nem por vinte passos.
 
-Ele me olha fazer tudo isso sem dizer nada. Tem as pernas penduradas, as solas dos pés pretas de terra, e balança uma delas, devagar, como fazia quando era pequeno e esperava o mingau.
+Ele me olha trabalhar sem dizer nada. Tem as pernas penduradas, as solas dos pés pretas de terra, e balança uma delas, devagar, como fazia quando era pequeno e esperava o mingau.
 
 Molho o pano. Torço. Encosto no lábio dele.
 
 Ele aspira o ar entre os dentes e não recua. Isso também é novo. Aos cinco anos ele chorava de um arranhão no joelho até Euricleia ameaçar chamar o lobo. Agora fica parado, com o queixo erguido, deixando que eu limpe a ferida como um soldado deixa o cirurgião, e eu penso, enquanto o sangue seco amolece e escorre rosado pelo queixo dele, que alguém tirou isso de mim. Alguém, numa noite, num pátio, tirou de mim o menino que chorava de arranhão e me devolveu este, que aguenta.
 
-— Ela era assim? — pergunta ele.
-
-— Assim como?
-
-— Que não chorava.
+— A outra mãe também era assim? — pergunta ele, e aperta os dentes quando o pano chega no canto da boca. — A Euricleia diz que ela levou uma flechada no ombro em Tenedos e foi jantar com a flecha ainda dentro, porque estava com fome. Eu quero ser assim. Quero levar soco e não chorar, e o Antínoo ficar com a mão doendo e eu não.
 
 Paro com o pano no ar. A água pinga na mesa, uma gota, duas.
 
-— A sua mãe chorava — digo. — Chorava muito. Só que escondida, debaixo d'água, quando nadava. Achava que ninguém via. Eu via.
+— A Euricleia aumenta as histórias para você comer a verdura — digo. — A flecha foi de raspão, e a tua mãe desmaiou no meio do jantar com a cara dentro do prato de lentilha, e eu tive que limpar a lentilha da sobrancelha dela. E ela chorava, pardal. Muito. Só que escondida, debaixo d'água, quando ia nadar. Achava que ninguém via. Eu ia nadar meia hora depois só para ver.
 
-— E você?
+Ele me espia pelo olho bom, desconfiado, avaliando se eu estou inventando para ele chorar.
 
-— Eu não choro.
+— E a senhora não chora nunca. Nem quando o Argos ficou doente, que a senhora disse que era fumaça e não tinha fogo aceso.
 
-— Você chorou quando o Argos ficou doente.
-
-— Aquilo foi fumaça.
+— Tinha fogo aceso dentro de mim — digo. — Isso conta como fumaça.
 
 Ele quase ri. O lábio não deixa, e o quase-riso vira uma careta, e eu volto a limpar, com mais cuidado, ao redor do corte. Ele fica quieto um tempo. Depois, olhando para a porta que dá para o pátio e não para mim, pergunta aquilo que vinha perguntando com outras palavras desde os seis anos.
 
@@ -98,15 +92,13 @@ Disse com a boca no meu pescoço, baixo, num tom prático, o mesmo tom com que d
 
 Lembro do silêncio que fiz. Lembro de tirar a mão dela da minha cintura, dedo por dedo.
 
-— Saia — eu disse.
+— Saia do meu quarto — eu disse.
 
-— Anne.
+Ela levantou a cabeça da minha clavícula devagar, e no escuro eu vi o branco dos olhos dela, espantado, como de cavalo que pisou em cobra.
 
-— Saia do meu quarto.
+— Anne, é o nosso quarto, e eu parto amanhã, e eu só estou tentando...
 
-— É o nosso quarto.
-
-— Hoje é meu. Você acabou de me dar para outro homem com a boca ainda molhada de mim. Saia, ou eu chamo a guarda, e amanhã a ilha inteira vai saber que a rainha de Ítaca dormiu na escada na véspera da guerra.
+— Você está tentando me deixar arrumada. Como deixou a carga, o piche, os remos. Contou tudo, selou tudo, e agora sobrou eu, e você me despacha para outro com a boca ainda molhada de mim. — Eu empurrei o ombro dela com a palma, uma vez, sem força nenhuma, e foi pior do que se eu tivesse batido. — Saia. Ou eu grito pela guarda, e amanhã a ilha inteira vai contar no cais que a rainha de Ítaca dormiu na escada na véspera da guerra.
 
 Ela saiu. Pegou a túnica do chão, não vestiu, saiu nua com o pano na mão e fechou a porta sem barulho, e eu fiquei a noite inteira sentada contra a oliveira, ouvindo o mar, esperando que ela batesse. Não bateu. Soube depois, por Euricleia, que dormiu na escada mesmo, no último degrau, encostada na parede, com a espada no colo.
 
@@ -130,15 +122,17 @@ O Timóteo está me olhando. Tenho o pote de mel na mão e não sei há quanto t
 
 — Ela foi de manhã — digo. — Você estava mamando. Ela passou a mão no meu cabelo e foi.
 
-— Só isso?
+Ele espera mais. Eu vejo ele esperar, com aquela cara de quem conhece as histórias da Euricleia, em que as despedidas têm discurso e trombeta e alguém jogando flor no mar.
 
-— Só isso.
+— Ninguém tocou trombeta? — pergunta, decepcionado.
+
+— Tocaram. Eu fechei a janela.
 
 Ele pensa. Desce da mesa, devagar, testando o equilíbrio, e fica de pé na minha frente, com a cara inchada e os olhos sérios.
 
 — Então ela vai voltar de manhã também — diz, com a lógica cruel das crianças. — Quem vai de manhã volta de manhã.
 
-Não sei de onde ele tirou isso. Não respondo. Entrego-o a Euricleia, que acaba de entrar na cozinha com o avental amarrado e os olhos ainda inchados de sono, e que olha o rosto dele, e olha para mim, e entende tudo antes que eu abra a boca.
+Não sei de onde ele tirou isso. Não respondo. Entrego-o a Euricleia, que acaba de entrar na cozinha com o avental amarrado e os olhos ainda inchados de sono, e que olha o rosto dele, e olha para mim, e entende a história inteira antes que eu abra a boca.
 
 ---
 
@@ -158,7 +152,7 @@ Faz dez anos que eu construo e desconstruo esta casa todo dia, como um tecido. M
 
 A mortalha ficou linda. Fiz questão. Entreguei a eles à porta do salão, de cabeça erguida, e o Antínoo passou os dedos pelo tecido e disse que eu tinha mãos de deusa. Daquele dia em diante não tive mais desculpa.
 
-Mas continuo. É a única habilidade que eu tenho de verdade, mais que o pulso firme que minha mãe me deu, mais que a língua afiada que a Emily sempre elogiava: continuar. Acordar, descer, contar, comer, mentir, sorrir, subir de novo. Não tem glória nisso. Ninguém escreve poema sobre a mulher que aguenta.
+Mas continuo. É a habilidade que eu tenho, maior que o pulso firme que minha mãe me deu, mais que a língua afiada que a Emily elogiava: continuar. Acordar, descer, contar, comer, mentir, sorrir, subir de novo. Não tem glória nisso. Ninguém escreve poema sobre a mulher que aguenta.
 
 E toda noite eu acendo a lamparina.
 
@@ -180,7 +174,7 @@ Falo do porto, das redes, do imposto do sal. Falo dos oito meses. Ninguém se es
 
 Quem fala, no fim, é Egípcio.
 
-É o mais velho de todos, tão curvo que a barba quase toca os joelhos, e tão respeitado que ninguém o interrompe nem quando ele adormece no meio de uma frase. Tinha quatro filhos. Um deles, Ântifo, embarcou com a Emily no primeiro navio, de lança nova e capa vermelha que a mãe tecera, e eu o vi acenar da proa, rindo. Dos outros três, um está no meu salão, todas as noites, bebendo o meu vinho, e o velho sabe, e eu sei, e nunca falamos disso.
+É o mais velho de todos, tão curvo que a barba quase toca os joelhos, e tão respeitado que ninguém o interrompe nem quando ele adormece no meio de uma frase. Tinha quatro filhos. Um deles, Ântifo, embarcou com a Emily no primeiro navio, de lança nova e capa vermelha que a mãe tecera, e eu o vi acenar da proa, rindo. Dos outros três, um está no meu salão, todas as noites, bebendo o meu vinho, e o velho não ignora isso, nem eu, e nunca tocamos no assunto.
 
 — Majestade — diz ele, com a voz que parece arrastar pedras. — Eu vou dizer uma coisa que ninguém nesta mesa tem coragem de dizer, porque sou velho demais para ter medo de você.
 
@@ -210,7 +204,7 @@ O mercador chega ao entardecer, e eu não sei que ele é o fim.
 
 É um homem gordo e sorridente de Cnossos, chamado Cleantes, que desembarcou à tarde com um navio cheio de ânforas de óleo e tecidos tingidos e foi trazido ao palácio pelos rapazes do Antínoo, que adoram visitante de ilha distante, porque visitante conta história e história é a única coisa que esta casa ainda produz em abundância. Senta-se à mesa de honra. Come como quem sabe que vai pagar a refeição inteira com a língua. Bebe. E conta.
 
-Eu estou na cadeira alta, na cabeceira do salão, de vestido verde escuro e véu preso por um broche de prata, de costas retas e mãos cruzadas no colo, olhando a fumaça das tochas, como estátua posta ali para ser admirada e ignorada. Há cento e oito homens no salão. Conto as cabeças quando entro e quando saio. O Timóteo está ao meu lado, num banco baixo, com o olho ainda roxo e o lábio inchado escondido atrás de um pedaço de pão. Eu o trouxe porque deixá-lo trancado seria dar ao Antínoo a vitória de que o menino tem medo. Ele não fala. Só observa, com aquele jeito de quem anota tudo para cobrar depois.
+Eu estou na cadeira alta, na cabeceira do salão, de vestido verde escuro e véu preso por um broche de prata, de costas retas e mãos cruzadas no colo, olhando a fumaça das tochas, como estátua posta ali para ser admirada e ignorada. Há cento e sete homens no salão. Conto as cabeças quando entro e quando saio. O Timóteo está ao meu lado, num banco baixo, com o olho ainda roxo e o lábio inchado escondido atrás de um pedaço de pão. Eu o trouxe porque deixá-lo trancado seria dar ao Antínoo a vitória de que o menino tem medo. Ele não fala. Só observa, com aquele jeito de quem anota cada nome para cobrar depois.
 
 Cleantes conta Troia primeiro, como todos contam, porque Troia é a moeda de troca de todo estrangeiro que entra neste salão, e eu escuto com o ouvido desligado. Depois conta os que voltaram. Menelau, com os navios cheios de ouro e uma esposa infiel. Nestor. Diomedes. Agamêmnon, assassinado na banheira pela própria mulher, e aí o salão se cala um instante, porque todos sabemos o que significa uma rainha que espera.
 
@@ -220,11 +214,11 @@ Então ele toma outro gole, limpa a barba, olha em volta como quem escolhe a hor
 
 Uma onda de riso corre pelo salão como fogo em palha seca.
 
-Não é cruel. É pior: é de alívio. Cento e oito homens que passaram dez anos em volta de uma mulher que se recusava a escolher descobrem que a razão da recusa era mentira. Que a esposa fiel que eu fingia ser guardava, na verdade, o leito de outra. O Antínoo ergue a taça, vejo o gesto pelo canto do olho, e grita um brinde à saúde da rainha Emily e ao bom uso que ela tenha feito do seu tempo. Cento e oito taças sobem ao mesmo tempo. O barulho é ensurdecedor. Alguém assobia. Alguém diz uma obscenidade sobre ninfas. A mesa inteira desaba de novo na gargalhada.
+Não é cruel. É pior: é de alívio. Cento e sete homens que passaram dez anos em volta de uma mulher que se recusava a escolher descobrem que a razão da recusa era mentira. Que a esposa fiel que eu fingia ser guardava, na verdade, o leito de outra. O Antínoo ergue a taça, vejo o gesto pelo canto do olho, e grita um brinde à saúde da rainha Emily e ao bom uso que ela tenha feito do seu tempo. Cento e sete taças sobem ao mesmo tempo. O barulho é ensurdecedor. Alguém assobia. Alguém diz uma obscenidade sobre ninfas. A mesa inteira desaba de novo na gargalhada.
 
 Não me mexo.
 
-Não sei por quanto tempo: uma eternidade e um segundo. Fico na cadeira alta, as costas retas, as mãos no colo, o rosto, eu sei, completamente liso, como o de uma estátua. É o meu único talento, é o que minha mãe me deu, uma cara que não mente porque não diz nada. E por dentro uma coisa se parte. Não com estalo. Com o som de uma pedra rachando devagar, de fora para dentro, no frio.
+Não sei por quanto tempo: uma eternidade e um segundo. Fico na cadeira alta, as costas retas, as mãos no colo, o rosto liso como o de uma estátua. Foi o que minha mãe me deu de herança, uma cara que não mente porque não diz nada. E por dentro uma coisa se parte. Não com estalo. Com o som de uma pedra rachando devagar, de fora para dentro, no frio.
 
 *Ela está viva.*
 
@@ -246,9 +240,9 @@ Só quando chego ao quarto, com a porta fechada e o menino finalmente largando a
 
 ---
 
-Não choro. Quero deixar isso claro.
+Não choro.
 
-Sei que é o que uma mulher devia fazer, e sei que a Emily choraria, gritaria, quebraria coisas, amaldiçoaria o mar. Eu não. Fico sentada no chão do quarto, ao lado da cama, com as costas na oliveira que sai do meio do piso e sobe até o teto, e olho para a parede.
+É o que uma mulher devia fazer, e a Emily choraria, gritaria, quebraria coisas, amaldiçoaria o mar. Eu não. Fico sentada no chão do quarto, ao lado da cama, com as costas na oliveira que sai do meio do piso e sobe até o teto, e olho para a parede.
 
 A oliveira é a cama. Nós a fizemos no primeiro inverno. Ela me levou para fora numa tarde de vento frio, me mostrou uma oliveira pequena e torta que crescia no meio do que ia ser o quarto e disse que não íamos cortar. Eu, uma menina de dezessete anos que mal suportava aquela mulher mais velha, calada e teimosa com quem me casaram, perguntei por quê. Ela respondeu que a casa se construía em volta da árvore e que o tronco ia ser o pé da nossa cama.
 
@@ -270,7 +264,7 @@ Não é grito de dor. É raiva pura, sem tradução. Grito o nome dela. Grito to
 
 — Basta, menina. Basta.
 
-Euricleia. A ama que me viu chegar a esta casa de véu torto, a que criou a Emily e depois o filho dela, e que agora me segura pelos ombros, tão pequena e tão forte, com o cheiro de sabão e cebola que é a única coisa estável que me resta. Desabo nos braços dela. Ela espera a minha respiração baixar, e então fala, junto ao meu cabelo, que eu fiz uma casa com as próprias mãos e agora ela racha, e que isso não é fim, é susto. Que eu sei construir. Que ela sempre soube que a menina era melhor do que parecia.
+Euricleia. A ama que me viu chegar a esta casa de véu torto, a que criou a Emily e depois o filho dela, e que agora me segura pelos ombros, tão pequena e tão forte, com o cheiro de sabão e cebola que é a única coisa estável que me resta. Desabo nos braços dela. Ela espera a minha respiração baixar, e então fala, junto ao meu cabelo, que eu fiz uma casa com as próprias mãos e agora ela racha, e que isso não é fim, é susto. Que eu construo melhor do que qualquer pedreiro desta ilha. Que desde o véu torto ela desconfiava que a menina era melhor do que parecia.
 
 — E a Emily eu criei — diz. — Sei o buraco que ela tem dentro. Nenhuma coroa, nenhuma guerra, nenhuma conquista enchia aquilo. Encolheu quando ela te conheceu, mas nunca fechou. E mulher com um buraco desses, quando acha alguém disposta a tapar, se agarra. Isso não justifica nada, menina. Só explica.
 

@@ -255,7 +255,7 @@ Leio todas. Na ordem. Uma por uma. E copio aqui do jeito que escrevi, sem mudar 
 
 *Não chorei. Eles estavam olhando. Eu não chorei.*
 
-*Subi a escada com o menino pela mão. Mandei ele para o quarto dele. E quebrei tudo o que tinha no meu. As jarras. O banco. O pente de casco de tartaruga. Gritei o teu nome. A Euricleia subiu e me abraçou por trás, com os braços magros dela, e me segurou, e eu disse a ela que queria que você voltasse para eu poder te bater. E que queria que você voltasse e me abraçasse. E que eu queria as duas coisas ao mesmo tempo e que isso não era possível.*
+*Subi a escada com o menino pela mão. Mandei ele para o quarto dele. E quebrei o que havia no meu. A jarra. O candelabro. A taça de bronze amassada, a da mulher de Zacinto, que eu tirei do berço só para jogar na parede, e depois guardei de volta, com o furo novo no reboco. O espelho que você me deu. Gritei o teu nome. A Euricleia subiu e me abraçou por trás, com os braços magros dela, e me segurou, e eu disse a ela que queria que você voltasse para eu poder te bater. E que queria que você voltasse e me abraçasse. E que eu queria as duas coisas ao mesmo tempo e que isso não era possível.*
 
 *Ela disse que era. Que era o que se chama casamento.*
 
