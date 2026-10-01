@@ -10,29 +10,25 @@ O menino carrega o cesto de pão e queijo e um odre de vinho que a Euricleia emp
 
 E uma coisa que eu não sei se vou ter coragem de entregar.
 
-Está enrolada num pano, no fundo da trouxa. Pesa pouco. Pesa mais do que tudo.
+Está enrolada num pano, no fundo da trouxa. Pesa pouco. Pesa mais do que a trouxa inteira.
 
 No primeiro dia o Timóteo falou pouco. Perguntou se eu tinha fome. Se o ombro doía. E já de noite, enquanto eu acendia a fogueira no abrigo de uma rocha, como era o mar.
 
 No segundo dia perguntou do ciclope. Contei uma versão curta. Sem o nome gritado. Sem o pai que rezou. Sem o preço. Uma história de esperteza, de vinho e de uma estaca de oliveira.
 
-Ele ouviu de olhos arregalados e disse, muito sério:
+Ele ouviu de olhos arregalados e disse, muito sério, que eu tinha sido a pessoa mais corajosa do mundo, mais que Aquiles, que só era corajoso porque não podia morrer.
 
-— A senhora foi muito corajosa.
-
-E eu, que sabia a parte que tinha cortado, só consegui responder:
-
-— Às vezes.
+E eu, que conhecia a parte que tinha cortado, só consegui responder que coragem às vezes é só não ter tido tempo de pensar, e que no resto das vezes é burrice com armadura.
 
 Agora, subindo a última colina, diante de um cercado de pedra coberto de hera, com uma casinha baixa de teto de palha e um pomar de pereiras no fundo, ele para.
 
-— O avô sabe que eu existo?
+— O avô sabe que eu existo? — pergunta, de repente, com a voz mais fina. — A mãe me trazia, mas eu era pequeno. Ele pode ter esquecido. Velho esquece.
 
-— Sabe. Uma vez, faz muito tempo, ele te segurou no colo, recém-nascido. E disse que você tinha cara de navio.
+— Sabe, e não esquece. Ele te segurou no colo quando você tinha três dias, todo vermelho, e disse que você tinha cara de navio. Eu passei a noite inteira tentando entender se era elogio.
 
-— Cara de navio?
+— E era?
 
-— Eu nunca soube o que isso quer dizer. Ele fala coisas assim.
+— Com ele nunca se sabe. Ele chamava a minha mãe de *meu porto de pedra* e ela nunca soube se ele estava falando do amor ou da cara dela.
 
 ---
 
@@ -58,11 +54,11 @@ Ele só me olha. Muito tempo. De cima a baixo. Com os olhos pequenos e fundos, c
 
 Uma pera madura cai de um galho e rola no chão.
 
-— Você está magra — diz, com a voz rouca, de serrote. — E feia. Sempre foi feia, mas agora está pior. O que foi, brigou com um boi?
+— Você está magra — diz, com a voz rouca, de serrote. — E feia. Nasceu feia, mas agora está pior. O que foi, brigou com um boi?
 
-— Com o mar, pai.
+— Com o mar, pai. Dez anos. Ele ganhou quase todas, e numa delas me deixou nove dias pendurada numa tábua para eu pensar na vida.
 
-— O mar é pior que boi.
+— O mar é pior que boi. Boi pelo menos você come no fim. E pensar na vida você nunca pensou, nem pendurada.
 
 Fica parado. Me olhando.
 
@@ -80,13 +76,13 @@ Fico parada com a mão na cara.
 
 E sinto um riso subir. Absurdo. Tento engolir, e ele sobe. Uma risada rouca, curta, feia, que sai do fundo do peito e quebra no meio.
 
-— Eu mereci — digo.
+— Eu mereci — digo, ainda rindo, com a mão na cara. — Eu mereço uma fila deles, pai, e o senhor é o segundo da fila.
 
-— Claro que mereceu. Quinze anos.
+— Claro que mereceu. Quinze anos sem uma carta.
 
-— Dez, pai.
+— Dez, pai. Foram dez, e eu escrevi umas cem, só que nenhuma saiu da minha cabeça para o papiro, e o senhor vai dizer que isso não conta.
 
-— Dez, quinze, que diferença faz? — Ele levanta as mãos. — Uma criança cresce. Uma mulher envelhece. Um pai morre.
+— Dez, quinze, que diferença faz para quem conta do lado de cá? — Ele levanta as mãos. — Uma criança cresce. Uma mulher envelhece. Um pai morre.
 
 Os olhos dele, de repente, se enchem d'água.
 
@@ -104,9 +100,9 @@ Sinto ele tremer. As mãos enrugadas, cheias de calo, agarrando as minhas costas
 
 Ficamos assim muito tempo. O cachorro cheirando o pomar. O vento sacudindo as árvores.
 
-— Quem é o menino? — pergunta ele contra o meu ombro.
+— Quem é o menino? — pergunta ele contra o meu ombro, e ele sabe, e quer ouvir.
 
-— O teu neto.
+— O teu neto, pai. O de cara de navio.
 
 ---
 
@@ -114,27 +110,23 @@ Ele se afasta. Olha por cima do meu ombro.
 
 E vê o Timóteo de pé, imóvel, com o cesto nas mãos e o olho quase curado, olhando para ele com uma seriedade de juiz.
 
-— Você tem a testa da tua mãe — diz o velho.
+— Você tem a testa da tua mãe — diz o velho, e dá um passo, outro, e para na frente dele. — Não desta aqui, que tem testa de cabra. Da outra, da que traz mel.
 
-Dá um passo. Outro. Para na frente dele.
+— A minha mãe Anne — diz o menino, sem recuar. — Ela diz que a testa é larga para caber juízo, e que a da mãe Emily é estreita porque o juízo dela foi todo para o braço.
 
-— Não da Emily. Da outra.
+— Essa mesma. — O velho assente. — Ela vinha aqui todo mês. Trazia mel e um pouco de sal. Nunca disse que era por mim. Dizia que era para as pereiras, que pereira de velho sem mel dá fruta amarga.
 
-— A minha mãe Anne — diz o menino, sem recuar.
+— Ela me trazia quando eu era pequeno — diz o menino. — Eu lembro do cachorro preto que o senhor tinha, que mordeu o meu pé.
 
-— Essa mesma. — O velho assente. — Ela vinha aqui todo mês. Trazia mel e um pouco de sal. Nunca disse que era por mim. Dizia que era para as pereiras.
+— O cachorro morreu, e você roubava pera. Enchia a camisola de pera verde e saía andando que nem pato, achando que ninguém via.
 
-— Ela me trazia quando eu era pequeno.
+— Só uma vez! E não era verde, era quase madura.
 
-— Eu lembro. Você roubava pera.
-
-— Só uma vez.
-
-— Duas.
+— Duas vezes, e eram tão verdes que você passou a noite com dor de barriga e a tua mãe me culpou. Eu tenho a cicatriz da bronca até hoje.
 
 O menino sorri.
 
-E é a primeira vez que eu vejo ele sorrir de verdade. Não o riso do pátio, de espanto. Um sorriso de menino. Com dente faltando do lado.
+E é a primeira vez que eu vejo ele sorrir inteiro. Não o riso do pátio, de espanto. Um sorriso de menino. Com dente faltando do lado.
 
 A dor que me atravessa é tão viva que preciso desviar os olhos.
 
@@ -170,7 +162,7 @@ Na primeira noite de Calipso eu estava morta.
 
 É o único jeito de dizer.
 
-Tinha passado nove dias numa viga de navio. Sem água. Sem comida. Sem esperança. Indo de uma onda a outra. Vendo o sol nascer e se pôr num mar vazio, sem nenhum navio, nenhum homem, nenhuma voz.
+Tinha passado nove dias numa viga de navio, com uma tábua enfiada no flanco e o sal comendo a ferida. Indo de uma onda a outra. Vendo o sol nascer e se pôr num mar vazio, sem nenhum navio, nenhum homem, nenhuma voz.
 
 Cheguei na costa como um cadáver. De boca aberta. Olhos revirados. Pele queimada e rachada.
 
@@ -202,13 +194,13 @@ Eu dormi três dias.
 
 ---
 
-Foi assim que começou. Sem violência. Sem sedução. Sem nenhuma das coisas que eu esperava de uma deusa.
+Foi assim que começou. Nada de violência, nada de sedução, nenhuma das coisas que eu esperava de uma deusa.
 
 Ela simplesmente cuidou de mim.
 
 Nos primeiros meses foi só isso. Acordar. Comer. Dormir. Sopa de peixe com mel. Mingau de cevada. Fruta do pomar. Carne de cabra assada. Pão quente com azeite. Ela trazia água para me lavar. Penteava o meu cabelo, que tinha crescido sujo e embolado, e no fim passava os dedos por entre as mechas como quem faz carinho num bicho.
 
-Não falava de si. Não me perguntava nada. Só me olhava, com os olhos cor de mel, enquanto eu, pouco a pouco, voltava a ter a forma de um corpo.
+Não falava de si nem me perguntava nada. Só me olhava, com os olhos cor de mel, enquanto eu, pouco a pouco, voltava a ter a forma de um corpo.
 
 Mas havia uma coisa que ninguém curava.
 
@@ -220,23 +212,23 @@ Até o nome vir.
 
 E eu respirava.
 
-Dizia baixinho, toda manhã. Uma reza.
+Dizia baixinho, toda manhã, como reza.
 
 Calipso ouvia. E nunca perguntou.
 
 Até o quarto mês. Quando sentou na beira da cama, pôs a mão no meu ombro e disse:
 
-— Quem é Anne?
+— Você acorda dizendo um nome. Toda manhã, antes de abrir os olhos, como quem procura um copo d'água no escuro. Quem é Anne?
 
-— A minha esposa.
+— A minha esposa. — E a palavra saiu tão fácil que me assustou. — Uma espartana de queixo empinado que me odiou um ano inteiro e depois me amou de um jeito que eu ainda não entendi. Deve estar acendendo alguma coisa numa janela agora, se eu conheço ela, e me xingando enquanto acende.
 
-— Ela te espera?
+— E ela te espera, depois de tanto tempo?
 
-— Espera.
+— Espera. Ela é teimosa demais para desistir de uma conta no meio. Se eu morrer, ela vai esperar o corpo, e se o corpo não chegar, ela vai esperar o mar devolver um dente, e vai reconhecer o dente.
 
-— E você queria voltar?
+— E você quer voltar para ela. — Não era pergunta.
 
-— Mais do que tudo.
+— Mais do que eu quero respirar. Se você abrir a porta agora, eu saio engatinhando pela areia, do jeito que eu estou, de túnica tua e sem força nas pernas.
 
 Ela assentiu devagar. O rosto não mudou.
 
@@ -262,17 +254,17 @@ Senti o movimento. O calor do corpo dela chegando perto. O hálito no meu pesco�
 
 Fiquei imóvel. Com o coração pulando.
 
-— Você me acha bonita? — perguntou.
+— Você me acha bonita? — perguntou, no escuro, com a boca perto da minha nuca. — Não precisa mentir. Eu sou uma ninfa pequena, numa ilha pequena, não vou morrer de uma verdade.
 
-— Acho.
+— Acho. Você é a coisa mais bonita que o mar já me jogou em cima.
 
-— Mais do que a tua esposa?
+— Mais bonita que a tua esposa?
 
-— Não. — Rápido. Automático. — Nunca. Ninguém.
+— Não. — Rápido. Automático. — Ela não é bonita, ela é outra coisa, e ninguém ganha dela nessa outra coisa.
 
 Ela riu baixinho. Com uma amargura que me partiu.
 
-— Eu só queria ouvir você dizer que me acha.
+— Eu não queria ganhar dela, Emily. Eu só queria ouvir você dizer que me acha, com a boca, uma vez, para eu poder lembrar depois.
 
 Me virei devagar.
 
@@ -306,15 +298,15 @@ O corpo dela era o que eu tinha imaginado. Macio. Curvo. Claro. Com seios cheios
 
 Quando a abracei, nua, contra o meu peito, senti ela estremecer. E o corpo dela se moldou ao meu como água numa forma.
 
-— Você está chorando — disse ela.
+— Você está chorando — disse ela, sem soltar.
 
 Toquei o rosto. Estava molhado.
 
-— Desculpa.
+— Desculpa. Não é você. É que faz tanto tempo que alguém me toca sem querer me matar que o corpo não sabe o que fazer.
 
-Ela beijou as minhas lágrimas. Uma por uma.
+Ela beijou as minhas lágrimas, uma por uma, devagar, como quem recolhe conta de colar caída no chão.
 
-— Não precisa dizer nada.
+— Então deixa o corpo aprender — disse. — E não precisa dizer nada, Emily. Nem o nome dela. Nem o meu.
 
 E me levou devagar.
 
@@ -324,13 +316,13 @@ E a boca dela me encontrou.
 
 Não foi como com a Circe. Com a Circe era fome. Fogo. Uma coisa que me devorava. Com a Calipso era outra coisa. Era paciência. Atenção. A língua dela me explorava devagar, me aprendia, me ouvia, respondia a cada tremor, a cada gemido, como quem toca um instrumento que nunca viu e quer tirar dele a melhor música.
 
-E quando eu cheguei, foi de um jeito que eu não conhecia. Sem violência. Sem grito. Uma onda longa, lenta, que me atravessou inteira e me deixou fraca, tremendo, chorando, com as mãos enfiadas no cabelo dela.
+E quando eu cheguei, foi de um jeito que eu não conhecia. Nada de grito. Uma onda longa, lenta, que me atravessou inteira e me deixou fraca, tremendo, chorando, com as mãos enfiadas no cabelo dela.
 
 Ela subiu. Me beijou a boca. Senti o meu próprio gosto nela.
 
 — Fica comigo, Emily.
 
-E eu, sem pensar, sem decidir, respondi:
+E eu, antes de pensar, respondi:
 
 — Fico.
 
@@ -339,6 +331,8 @@ Era mentira. Eu sabia.
 Mas era também verdade. Naquela noite. Naquele momento. Naquele corpo. Porque por um instante, um só, eu quis ficar.
 
 E isso, o querer, foi o que me condenou.
+
+Ela dormiu em cima de mim, com a cabeça no meu peito e uma perna atravessada nas minhas, pesada, morna. Eu fiquei acordada olhando o teto de pedra e sentindo o meu próprio gosto ainda na boca, misturado com o dela, e o anel no meu dedo, frio, a única coisa fria da cama. Contei as respirações dela até cem. Na centésima eu soube que ia fazer de novo.
 
 ---
 
@@ -364,7 +358,7 @@ Amei ser cuidada.
 
 E aos poucos, sem perceber, parei de procurar a voz da Anne.
 
-Foi a coisa mais terrível que me aconteceu. Não a traição. Nem a ausência. Nem a culpa.
+Foi a coisa mais terrível que me aconteceu, pior que a traição e pior que a culpa.
 
 O esquecimento.
 
@@ -378,7 +372,7 @@ Nem uma noite.
 
 A Calipso via. E nunca disse nada. Às vezes, quando a gente fazia amor, eu sentia o olhar dela pousar na coruja de ouro, no dedo que agarrava o lençol, e um tremor de tristeza passar pelo corpo dela.
 
-Nunca pediu que eu tirasse. Nunca perguntou por quê.
+Nunca pediu que eu tirasse nem perguntou por quê.
 
 Só às vezes, no fim, beijava a minha mão esquerda. O dedo. O anel. Com uma ternura tão grande e tão doída que eu tinha vontade de me afogar.
 
@@ -404,19 +398,33 @@ Não respondo.
 
 Ele limpa a boca com as costas da mão.
 
-— Não me espanta. Só me diz uma coisa. A Anne sabe?
+— Não me espanta. Só me diz uma coisa, e me diz olhando, que de lado eu não acredito. A Anne sabe?
 
-— Sabe o que o mercador contou.
+— Sabe o que o mercador contou no salão. Que a rainha de Ítaca estava presa numa ilha, nos braços de uma ninfa. Os bardos fizeram canção. Ela ouviu cantarem.
 
-— Isso não é saber.
+— Canção de bardo não é saber, é ouvir dizer. Saber é você abrir a boca e ela ver os teus dentes enquanto você conta.
 
-— Não.
+— Ainda não contei, pai. Escapou uma palavra, e ela viu a palavra, e me mandou embora com ela.
 
-— Então você vai contar.
+— Então você vai contar inteiro, que mulher que vê meia palavra inventa o resto, e o que ela inventa é pior que o que aconteceu.
 
-— Vou. Quando tiver coragem.
+— Vou. Quando eu tiver coragem de ver a cara dela enquanto eu conto.
 
-Ele assente. Empurra o prato.
+Ele assente devagar. E depois, sem mudar de tom, com a colher parada no ar, olha para o meu pescoço.
+
+— E isso aí, no teu pescoço, também é da que cheira a cedro?
+
+Ponho a mão no pescoço sem querer. Debaixo dos dedos, a pele ainda dói, em três lugares, onde a boca dela esteve contra a oliveira. Os dentes. Ela quis que ficasse roxo. Ficou.
+
+O sangue me sobe inteiro para a cara.
+
+— Não, pai. Isso é da que cheira a mel de tomilho.
+
+O velho solta uma risada rouca, de serrote, que acorda o cachorro.
+
+— Então a espartana ainda morde. — Ele limpa os olhos. — Bom sinal, filha. Mulher que desistiu não morde. Mulher que desistiu dá a mão para beijar e manda embora. A tua mãe me mordeu até os sessenta anos.
+
+Ele assente outra vez, mais contente. Empurra o prato.
 
 — Eu vou te dizer uma coisa. E depois não falo mais nisso.
 
@@ -432,9 +440,9 @@ Não consigo falar.
 
 — Não é para te machucar. É para você saber o tamanho do que vai pedir.
 
-— Pedir?
+— Pedir? Pai, eu não vim pedir nada, eu vim te ver, eu...
 
-— Perdão, filha. — Ele me olha nos olhos pela primeira vez desde o tapa. — E ela vai ter todo o direito de dizer não.
+— Perdão, filha. Você vai pedir perdão a ela, e não adianta fingir que veio aqui por mim, que eu sou velho mas sei contar. — Ele me olha nos olhos pela primeira vez desde o tapa. — E ela vai ter direito de dizer não. Se disser, você agradece e espera. Se disser sim, você agradece mais e não erra de novo, que a segunda vez nenhuma mulher perdoa, e ela não é nenhuma mulher, é a melhor delas.
 
 ---
 
@@ -446,7 +454,7 @@ Numa palavra que me escapou. *A outra.*
 
 E no rosto dela quando ouviu.
 
-— Eu sei — digo. — Mas vou pedir mesmo assim.
+— Ela pode dizer não, pai — digo. — Vou pedir mesmo assim. E se ela disser não, eu peço amanhã de novo, e depois de amanhã, até ela cansar de dizer não ou eu cansar de viver, o que vier primeiro.
 
 O meu pai me olha muito tempo.
 
@@ -468,37 +476,59 @@ O meu pai o deu a mim no dia da coroação. Tirou do próprio ombro e prendeu no
 
 Foi a única coisa que eu salvei da água além do anel.
 
-— Toma — digo. — É teu. Eu não mereço.
+— Toma — digo. — É teu. O senhor me deu para eu usar como rainha, e eu usei como quem foge. Eu não mereço ele no ombro.
 
-O velho olha o broche. Não toca.
+O velho olha o broche muito tempo, sem tocar.
 
-Muito tempo.
+— Não é meu — diz, por fim. — Eu dei. — Ele empurra o broche de volta, com um dedo, só no pano, sem encostar no ouro. — O que a gente dá não volta, filha. Você levou quarenta anos e não aprendeu isso? Nem casada com uma espartana, que conta até o que dá?
 
-— Não — diz.
+— Então o que eu faço com ele? Jogo no mar, que já levou o resto?
 
-— Pai...
+O meu pai sorri pela primeira vez, um sorriso torto, sem metade dos dentes.
 
-— Não é meu. Eu dei. — Ele empurra o broche de volta, com um dedo, sem tocar no ouro, só no pano. — O que a gente dá não volta. Você ainda não aprendeu isso?
+— Dá para quem merece. E não me pergunta quem, que eu não vou fazer o teu trabalho de rainha.
 
-— Então o que eu faço com ele?
-
-O meu pai sorri. Pela primeira vez. Um sorriso torto, sem metade dos dentes.
-
-— Dá para quem merece.
-
-— Quem?
-
-Ele não responde. Levanta, com um gemido, e vai até a cama de palha no canto. E de costas para mim, tirando as faixas das pernas, diz:
+Ele não diz mais nada. Levanta, com um gemido, e vai até a cama de palha no canto. E de costas para mim, tirando as faixas das pernas, diz:
 
 — Ela disse que não queria, na noite de núpcias. Você me contou isso, uma vez, bêbada, no casamento da tua prima. Que você ofereceu o broche e ela disse que não queria nada teu que tivesse sido de outra pessoa antes.
 
 Fico parada com o broche na palma.
 
-— Agora ele foi teu dez anos — diz o velho. — Só teu. No mar. Na guerra. Na cama da cedro. Ela vai saber. Ela sempre sabe.
+— Agora ele foi teu dez anos — diz o velho. — Só teu. No mar. Na guerra. Na cama da cedro. Ela vai saber. Aquela ali sabe as coisas pelo cheiro, que nem o meu cachorro preto.
 
 Deita. Puxa a manta até o queixo.
 
-— Agora vai dormir. Amanhã você me ajuda com as pereiras. Você podava bem, quando era menina. Antes de virar rainha e esquecer tudo.
+— Agora vai dormir. Amanhã você me ajuda com as pereiras. Você podava bem, quando era menina. Antes de virar rainha e esquecer o que é uma tesoura de poda.
+
+---
+
+Mais tarde, quando o velho apaga a candeia, eu saio.
+
+O pomar está preto e cheira a pera caída. Conto as fileiras no escuro, com a mão nos troncos, como quem lê. A de cima. Uma, duas. A terceira.
+
+Ponho a palma na casca.
+
+Ali, na altura do meu ombro, um pouco mais baixo, a casca está lisa. Gasta. Polida como o corrimão de uma escada que muita gente sobe. Eu passo os dedos e sinto o formato: uma curva rasa, do tamanho de um ombro de mulher, onde uma mulher se encostou de lado, todo mês, dez anos, para chorar sem ninguém ver.
+
+Encosto o meu ombro no mesmo lugar.
+
+Não cabe igual. Ela é mais baixa, e mais estreita, e eu fico torta para caber. Fico torta. Encosto a testa na casca, onde a testa dela devia ficar, e respiro. A pereira não cheira a ela. Cheira a pereira. Mas eu fecho os olhos e ponho o cheiro, o mel de tomilho, a lã, o suor de raiva, e de repente ela está ali, de costas para mim, encostada no tronco, chorando baixinho, e eu chego por trás.
+
+Não para consolar. Eu nunca soube consolar.
+
+Chego por trás e encosto o corpo inteiro no dela, devagar, a barriga nas costas dela, a boca na nuca, e ela para de chorar de susto, e não se vira, e eu ponho as mãos espalmadas no tronco dos dois lados dela, prendendo, e ela empurra o quadril para trás, contra mim, sem dizer nada, como fazia na cama quando fingia que dormia. E eu desço uma mão pelo flanco dela, devagar, por cima do vestido, até a coxa, e subo o pano...
+
+Abro os olhos. Estou sozinha, abraçada numa pereira, no escuro, com o coração disparado e a respiração curta, e um calor entre as pernas que não tem para onde ir.
+
+O pescoço lateja onde ela mordeu.
+
+Ela me mordeu e me mandou embora. Ela parou a minha mão quando ela já estava dentro dela, quente, molhada, e eu ainda sinto nos dedos, se fechar a mão, o jeito como ela apertou em volta deles antes de dizer *para*.
+
+Fecho a mão no escuro.
+
+Desço até o riacho atrás da casinha e entro na água gelada até a cintura, de túnica e cinto, e fico lá até os dentes baterem.
+
+Não adianta.
 
 ---
 
@@ -516,7 +546,7 @@ A voz sai rouca. Pequena. Sem força.
 
 Mas sai.
 
-Não prende na garganta. Não vira ar. Sai inteira, como uma coisa que estava ali o tempo todo, esperando.
+Não prende na garganta nem vira ar. Sai inteira, como uma coisa que estava ali o tempo todo, esperando.
 
 Repito. Mais baixo.
 
