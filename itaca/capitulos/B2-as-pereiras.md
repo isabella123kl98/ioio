@@ -441,3 +441,5 @@ Por baixo da túnica de linho cor de areia, a folha de oliveira está presa no m
 E pela primeira vez em dez anos eu não conto nada. Nem as árvores, nem os mortos, nem as noites.
 
 Só os dias que faltam para ela mandar chamar.
+
+Dois para o Eumeu chegar com a pera. Um para ela morder. E o resto, que eu não sei, ela vai decidir sozinha, do jeito dela, de queixo empinado, e eu vou estar aqui, na terceira pereira, esperando o burro subir a estrada.
