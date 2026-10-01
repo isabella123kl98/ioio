@@ -8,7 +8,7 @@ Digo isso a mim mesma a cada pedra da trilha, como quem reza. Não desço por el
 
 Não desço por ela.
 
-A trilha tem trezentos e doze passos da pedra chata até o primeiro muro de oliveiras. Eu sei porque contei, aos dezoito anos, numa noite em que ela me carregou nas costas até em cima para me mostrar uma estrela cadente que não caiu. Contei de novo aos vinte e cinco, sozinha, subindo com a lamparina apagada na mão para ver se de lá eu enxergava alguma vela. Hoje conto outra vez. Trezentos e doze. A trilha não mudou. Eu mudei de tamanho dentro dela.
+A trilha tem trezentos e doze passos da pedra chata até o primeiro muro de oliveiras. Eu sei porque contei, aos dezoito anos, numa noite em que ela me carregou nas costas até em cima para me mostrar uma estrela cadente que não caiu. Contei de novo aos vinte e sete, sozinha, subindo com a lamparina apagada na mão para ver se de lá eu enxergava alguma vela. Hoje conto outra vez. Trezentos e doze. A trilha não mudou. Eu mudei de tamanho dentro dela.
 
 Vi tudo.
 
@@ -52,15 +52,15 @@ Sei. Não digo.
 
 — Timóteo.
 
-— Eu não estou do lado dela. — Ele se levanta. É mais alto do que eu. Faz um ano que é mais alto do que eu, e eu ainda não me acostumei a levantar o queixo para falar com o meu filho. — Eu estou do lado da casa. A senhora me ensinou isso. Que a gente cuida da casa primeiro e chora depois. Então eu só quero saber uma coisa, e depois eu saio do caminho. A senhora vai mandar ela embora?
+— Eu não estou do lado dela. — Ele se levanta. Bate no meu ombro. No verão passado batia no meu peito, e eu ainda não me acostumei a que ele cresça um palmo cada vez que eu viro as costas. — Eu estou do lado da casa. A senhora me ensinou isso. Que a gente cuida da casa primeiro e chora depois. Então eu só quero saber uma coisa, e depois eu saio do caminho. A senhora vai mandar ela embora?
 
 O corredor fica muito quieto. Na cozinha, a Euricleia parou de gritar.
 
-Penso em mentir. Seria fácil. Ele tem dezenove anos, e com dezenove anos a gente acredita na mãe quando ela usa a voz do conselho.
+Penso em mentir. Seria fácil. Ele tem dez anos, e com dez anos a gente ainda acredita na mãe quando ela usa a voz do conselho.
 
 — Não sei — digo.
 
-Ele me olha um tempo. Depois faz uma coisa que não faz desde os nove anos. Se inclina e encosta a testa na minha, um instante, rápido, e se afasta antes que eu consiga erguer a mão.
+Ele me olha um tempo. Depois faz uma coisa que não faz desde os seis anos. Fica na ponta dos pés e encosta a testa na minha, um instante, rápido, e se afasta antes que eu consiga erguer a mão.
 
 — Então tá — diz. — Não saber já é melhor do que ontem.
 
@@ -84,11 +84,11 @@ Vou até a janela e abro as folhas. O vento entra com cheiro de alga e de fumaç
 
 Tiro a lamparina do gancho.
 
-Está vazia. Eu a deixei cheia e apagada na noite em que saí, e alguém a esvaziou, ou ela secou sozinha, o pavio queimado até o toco. Vou até o baú, pego a jarra pequena de azeite, tiro a tampa de cera com a unha e despejo. Conto. Faço isso há vinte anos, e há vinte anos conto: são trinta e sete gotas para encher a bacia até a marca que eu risquei com a ponta da faca da minha mãe no primeiro inverno. Hoje são quarenta. A mão está tremendo e eu derramo três na beirada.
+Está vazia. Eu a deixei cheia e apagada na noite em que saí, e alguém a esvaziou, ou ela secou sozinha, o pavio queimado até o toco. Vou até o baú, pego a jarra pequena de azeite, tiro a tampa de cera com a unha e despejo. Conto. Faço isso há dez anos, e há dez anos conto: são trinta e sete gotas para encher a bacia até a marca que eu risquei com a ponta da faca da minha mãe no primeiro inverno. Hoje são quarenta. A mão está tremendo e eu derramo três na beirada.
 
 Corto um pavio novo de linho. Enfio. Espero ele beber.
 
-Não é por ela, digo a mim mesma, de novo. Não é por ela. É porque eu não sei dormir com essa janela escura. Vinte anos, e eu não sei. Na noite em que a apaguei com um sopro, depois de bater nela no alpendre, passei o resto da madrugada sentada no chão com as costas na parede, de olhos abertos, porque o escuro da janela me olhava como um buraco. É um costume. É como roer unha.
+Não é por ela, digo a mim mesma, de novo. Não é por ela. É porque eu não sei dormir com essa janela escura. Dez anos, e eu não sei. Na noite em que a apaguei com um sopro, depois de bater nela no alpendre, passei o resto da madrugada sentada no chão com as costas na parede, de olhos abertos, porque o escuro da janela me olhava como um buraco. É um costume. É como roer unha.
 
 Acendo.
 
@@ -146,7 +146,7 @@ Fico com a mão no peito, sem saber que a pus ali.
 
 Trinta e um. Trinta e dois. Trinta e oito. Trinta e nove.
 
-Para de novo. E eu penso, com uma clareza que me dá vontade de rir e de vomitar ao mesmo tempo: ela para nos mesmos degraus que eu. Nunca reparei. Vinte anos, e nunca reparei que ela parava no trigésimo e no trigésimo nono, porque eu estava sempre do lado de cá, esperando, e não contava os passos dela. Contava os meus.
+Para de novo. E eu penso, com uma clareza que me dá vontade de rir e de vomitar ao mesmo tempo: ela para nos mesmos degraus que eu. Nunca reparei. Dez anos subindo essa escada ao lado dela, e nunca reparei que ela parava no trigésimo e no trigésimo nono, porque eu estava sempre do lado de cá, esperando, e não contava os passos dela. Contava os meus.
 
 Quarenta. Quarenta e um.
 
@@ -174,7 +174,7 @@ Vejo a cara dela quando vê a conta. Vejo a garganta subir e descer.
 
 Ela abre a boca.
 
-— Não — digo. — Eu ainda não terminei. Você vai ouvir por que eu não desci. Eu fiquei lá em cima porque o Leócrito queria que eu assistisse. Mandou dizer na assembleia que a rainha ia ver a mulher dela morrer ou matar no cais e ia carregar isso até o fim da vida. Não ia dar esse gosto a ele. E porque, se eu estivesse lá, você ia lutar melhor, porque ia lutar por mim, e eu não quero mais que você lute por mim, Emily. Eu passei vinte anos sendo o motivo de uma guerra. Primeiro a guerra dos outros, depois a sua. Estou cansada de ser motivo. Eu quero que você *fique* por mim. Não que lute. Que fique. E levei vinte anos e quatro noites andando descalça para entender que são coisas diferentes.
+— Não — digo. — Eu ainda não terminei. Você vai ouvir por que eu não desci. Eu fiquei lá em cima porque o Leócrito queria que eu assistisse. Mandou dizer na assembleia que a rainha ia ver a mulher dela morrer ou matar no cais e ia carregar isso até o fim da vida. Não ia dar esse gosto a ele. E porque, se eu estivesse lá, você ia lutar melhor, porque ia lutar por mim, e eu não quero mais que você lute por mim, Emily. Eu passei a vida inteira sendo o motivo de uma guerra. Primeiro a guerra dos outros, depois a sua. Estou cansada de ser motivo. Eu quero que você *fique* por mim. Não que lute. Que fique. E levei trinta e seis anos e quatro noites andando descalça para entender que são coisas diferentes.
 
 Ela fica parada.
 
@@ -424,7 +424,7 @@ Abaixo a mão.
 
 Ela abre os olhos, devagar. Me olha sem entender. É a primeira vez na noite que ela não sabe o que eu vou fazer.
 
-— Não vou te bater de novo — digo. — Não é assim que se paga. Você não vai sair daqui aliviada. Nem limpa. Nem perdoada. Vai sair com o que fez, como eu saí com o que me fizeram. Sem descanso. Sem ponto final. Vai carregar, Emily, como eu carreguei aquela lamparina vinte anos para cima e para baixo daquela escada.
+— Não vou te bater de novo — digo. — Não é assim que se paga. Você não vai sair daqui aliviada. Nem limpa. Nem perdoada. Vai sair com o que fez, como eu saí com o que me fizeram. Sem descanso. Sem ponto final. Vai carregar, Emily, como eu carreguei aquela lamparina dez anos para cima e para baixo daquela escada.
 
 Ela fica imóvel.
 
@@ -474,7 +474,7 @@ E é exatamente por isso que eu dou um passo para trás.
 
 Ela não se mexe.
 
-— Por uns dias. Não é castigo. Não é estábulo. É ar. Eu preciso ficar sozinha na nossa cama, Emily, e lembrar como ela é. Eu passei vinte anos deitada nela sozinha, e ela era minha, e agora você voltou e ela range quando você senta e eu preciso saber se ela ainda é minha também. — Respiro. — E porque se você ficar hoje, eu vou te perdoar. Eu sei que vou. Vou te perdoar às três da manhã, cansada, com a sua boca no meu pescoço, e não vai ser perdão. Vai ser cansaço. E eu não quero te perdoar por cansaço. Eu quero te perdoar de verdade, se eu for perdoar, e isso leva tempo. Eu aviso quando.
+— Por uns dias. Não é castigo. Não é estábulo. É ar. Eu preciso ficar sozinha na nossa cama, Emily, e lembrar como ela é. Eu passei dez anos deitada nela sozinha, e ela era minha, e agora você voltou e ela range quando você senta e eu preciso saber se ela ainda é minha também. — Respiro. — E porque se você ficar hoje, eu vou te perdoar. Eu sei que vou. Vou te perdoar às três da manhã, cansada, com a sua boca no meu pescoço, e não vai ser perdão. Vai ser cansaço. E eu não quero te perdoar por cansaço. Eu quero te perdoar de verdade, se eu for perdoar, e isso leva tempo. Eu aviso quando.
 
 Ela fica parada mais um momento.
 
