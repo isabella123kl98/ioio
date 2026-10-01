@@ -218,13 +218,13 @@ Deu um passo para a frente.
 
 A ponta da espada afundou no tecido. Tocou a pele. Ela não recuou.
 
-— Como você se chama?
+— Como você se chama, mulher que ri da minha varinha?
 
-— Ninguém.
+— Ninguém — eu disse. — Foi o nome que eu dei ao último que me perguntou, e ele acabou sem o olho.
 
-— Mentira.
+— Ninguém não sua desse jeito na frente de uma espada. — Ela inclinou o corpo contra a ponta, e a seda rasgou um dedo. — Diz o teu nome de verdade, ou eu descubro sozinha, e descobrir sozinha eu faço devagar.
 
-— Emily.
+— Emily — eu disse, e não sei até hoje por que disse.
 
 — Emily de Ítaca. — Ela provou o nome devagar, como se prova vinho. — Me avisaram, há muito tempo, que uma mulher de muitos truques ia chegar a esta ilha num navio preto. Não me avisaram que ela seria tão bonita.
 
