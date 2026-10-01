@@ -2,17 +2,35 @@
 
 *Anne*
 
-Lavo as mãos durante uma hora, e quando saio da bacia a água está limpa, porque o sangue nunca foi meu.
+Lavo as mãos durante uma hora, e quando tiro as mãos da bacia a água está limpa, porque o sangue nunca foi meu.
 
-Fecho-me no quarto da oliveira no momento em que atravesso a porta da ala leste, sem olhar para Nísia, sem responder ao chamado de Euricleia, sem parar para recolher o véu que caiu no corredor. Passo o ferrolho. Fico um tempo de costas contra a madeira, respirando, e só então percebo que não tenho ar. A respiração me vem em golfadas curtas, secas, como a de alguém que acaba de subir correndo quarenta e um degraus. Desço, de costas, até o chão, e fico sentada no assoalho, com as pernas dobradas e os braços em volta dos joelhos, olhando a cama.
+Me tranquei no quarto da oliveira no instante em que atravessei a porta da ala leste. Sem olhar para a Nísia. Sem responder ao chamado de Euricleia. Sem parar para pegar o véu, que caiu no corredor e ficou lá.
 
-Não tem ninguém nela, e é a primeira vez em dez anos que isso me dói.
+Passei o ferrolho.
 
-Lá embaixo, o palácio é um animal ferido. Ouço as vozes dos criados, abafadas, agitadas, o ranger das carroças que levam os corpos, o baque das bacias de água, o latido de um cão que farejou o sangue, o choro de uma mulher na cozinha. Ouço a voz de Eumeu, grave e rouca, dando ordens. Ouço a de Filécio. Ouço, de vez em quando, um grito curto, seco, de alguém que encontrou um rosto conhecido entre os mortos. Cento e oito homens. Cento e oito famílias que vão acordar sem um filho, sem um irmão, sem um amante. Não sinto piedade por eles. Sinto só um cansaço enorme, quente, viscoso, e um pensamento fixo, repetido, girando na cabeça como uma roda de moinho:
+Fiquei de costas contra a madeira, respirando, e só então percebi que não tinha ar. A respiração vinha em golfadas curtas e secas, como a de quem acabou de subir correndo quarenta e um degraus. Escorreguei de costas até o chão. E fiquei sentada no assoalho, com as pernas dobradas e os braços em volta dos joelhos, olhando a cama.
+
+Não tem ninguém nela.
+
+E é a primeira vez em dez anos que isso me dói.
+
+---
+
+Lá embaixo, o palácio é um bicho ferido.
+
+Ouço as vozes dos criados, abafadas, agitadas. O ranger das carroças levando os corpos. O baque das bacias de água no chão. O latido de um cão que farejou o sangue. O choro de uma mulher na cozinha.
+
+Ouço a voz do Eumeu, grave e rouca, dando ordens. Ouço a do Filécio. Ouço, de vez em quando, um grito curto, de alguém que encontrou um rosto conhecido entre os mortos.
+
+Cento e sete homens.
+
+Cento e sete famílias que vão acordar sem um filho, sem um irmão, sem um amante.
+
+Não sinto piedade deles. Sinto um cansaço enorme, quente, pegajoso. E um pensamento fixo, girando na cabeça como uma roda de moinho.
 
 *Ela voltou. Ela voltou. Ela voltou.*
 
-E a segunda parte, que vem depois, sempre:
+E a segunda parte, que vem sempre depois:
 
 *E não mudou nada.*
 
@@ -20,49 +38,181 @@ E a segunda parte, que vem depois, sempre:
 
 Euricleia bate à porta ao anoitecer.
 
-Três batidas curtas, o sinal de sempre. Não respondo. Ela espera. Bate de novo. Fico parada, olhando as minhas mãos, que não tremem mais. Do outro lado da madeira, ouço o suspiro dela, arrastado, e o ruído dos joelhos velhos ao se dobrarem, e sei que ela se sentou no chão do corredor, com as costas na porta, como fazia quando eu tinha dezesseis anos e me trancava no quarto por raiva.
+Três batidas curtas. O sinal de sempre.
 
-— Menina — diz, baixo, sem levantar a voz. — Eu sei que você está aí, e não vou pedir que abra, e não vou pedir que fale. Só vou ficar sentada aqui. Trouxe pão, queijo, um pouco de caldo de galinha, que você não vai comer, e deixo tudo na porta, como fazia quando você tinha dezesseis anos e batia o pé no chão porque a Emily tinha chegado atrasada ao jantar e você ainda não sabia que ia amá-la. Eu estive em todas as suas fúrias, menina. Estive na do véu torto, na da taça, na do navio que você mandou preparar e não embarcou. Conheço essa. É a pior, porque não tem barulho. Uma raiva que não grita é uma raiva que está pensando, e uma mulher que pensa com raiva é capaz de qualquer coisa. Eu só queria que você soubesse que, seja o que for que você decida lá dentro, eu estarei do lado de cá, e que a decisão, quando vier, não precisa vir hoje.
+Não respondo. Ela espera. Bate de novo.
 
-— Vá embora, ama — digo, e a minha voz sai tão pequena que me assusto.
+Fico parada, olhando as minhas mãos, que já não tremem. Do outro lado da madeira ouço o suspiro dela, arrastado, e o barulho dos joelhos velhos dobrando, e sei que ela sentou no chão do corredor com as costas na porta. Como fazia quando eu tinha dezesseis anos e me trancava de raiva.
 
-— Não vou. Mas tenho que lhe contar uma coisa antes, porque se eu não contar, você vai saber por outra boca e vai me odiar. Ela está lavando-se, lá no pátio, com a água que o Eumeu e o menino trouxeram do poço. Tem um corte feio na cabeça, o ombro inchado, as mãos em carne viva. Pedi que me deixasse cuidar e ela recusou, disse que tinha coisa mais importante, e mandou separar os corpos: os de Same e de Zacinto para um lado, os de Ítaca para outro, para que cada família receba os seus sem ofensa e sem vingança. Mandou enterrar o Antínoo numa cova à parte, com os pés voltados para o leste, e quando perguntei por quê, respondeu que o menino que carregou o escudo dela merecia um lugar. Eu, que a conheço desde que ela era do tamanho de um pão, nunca a vi tão perto de quebrar, nem tão decidida a não quebrar. E é por isso que lhe digo o resto, que é o pior. Ela mandou reunir as doze criadas no pátio. As que dormiram com eles, as que levaram vinho e recado, as que riram de você. Eu mesma lhe disse os nomes, perdoe-me, porque ela me olhou do jeito de Troia e eu não soube mentir. Ela vai enforcá-las ao amanhecer, e está esperando só uma coisa para dar a ordem, que é você.
+— Menina — diz, baixo. — Eu sei que você está aí. Não vou pedir para abrir. Não vou pedir para falar. Vou só ficar sentada aqui. Trouxe pão, queijo, um pouco de caldo de galinha, que você não vai comer. Deixo na porta.
+
+Silêncio.
+
+— Eu estive em todas as tuas fúrias, menina. A do véu torto. A da taça. A do navio que você mandou aprontar e não embarcou. — Ela tosse. — Conheço essa. É a pior, porque não tem barulho. Raiva que não grita é raiva que pensa. E mulher que pensa com raiva é capaz de qualquer coisa.
+
+— Vai embora, ama.
+
+A minha voz sai tão pequena que me assusta.
+
+— Não vou. Mas tenho que te contar uma coisa antes. Se eu não contar, você vai saber por outra boca e vai me odiar.
+
+Levanto a cabeça.
+
+— Ela está se lavando no pátio — diz Euricleia. — Com a água que o Eumeu e o menino trouxeram do poço. Tem um corte feio na cabeça, o ombro inchado, as mãos em carne viva. Pedi para cuidar e ela não deixou. Disse que tinha coisa mais importante. Mandou separar os corpos. Os de Same e de Zacinto de um lado, os de Ítaca de outro, para cada família receber os seus sem ofensa e sem vingança. Mandou enterrar o Antínoo numa cova à parte, com os pés para o leste. Eu perguntei por quê. Ela disse que o menino que carregou o escudo dela merecia um lugar.
+
+Fecho os olhos.
+
+— E tem o resto — diz a velha. — Que é o pior.
+
+— Diz.
+
+— Ela mandou reunir as doze criadas no pátio. As que dormiram com eles. As que levaram vinho e recado. As que riram de você. — A voz de Euricleia treme. — Eu mesma disse os nomes, me perdoa, menina. Ela me olhou do jeito de Troia e eu não consegui mentir. Ela vai enforcar as doze ao amanhecer. E só está esperando uma coisa para dar a ordem.
+
+— O quê?
+
+— Você.
 
 Abro a porta.
 
-Não sei como. O ferrolho cede na minha mão, e eu a escancaro de uma vez, e a velha, que estava encostada nela, cai para trás com um grito abafado. Olho para baixo. Euricleia me olha, o rosto molhado, os olhos cor de chumbo enormes, e eu sinto uma fúria tão limpa que por um instante o mundo se estreita num único ponto branco, insuportável.
+Não sei como. O ferrolho cede na minha mão e eu escancaro a porta de uma vez, e a velha, que estava encostada nela, cai para trás com um grito abafado.
 
-— Onde ela está? — pergunto.
+Olho para baixo. Euricleia me olha do chão, de rosto molhado, os olhos cor de chumbo enormes.
 
-— No pátio dos fundos, menina. Mas pense antes de...
+E eu sinto uma fúria tão limpa que por um instante o mundo se estreita num ponto só, branco, insuportável.
+
+— Onde ela está?
+
+— No pátio dos fundos. Debaixo do alpendre. Menina, pensa antes de...
 
 Já estou descendo.
 
 ---
 
-Encontro-a no pátio dos fundos, sob o alpendre velho, sentada num tronco, com o corpo curvado para a frente e os cotovelos apoiados nos joelhos.
+Encontro-a no pátio dos fundos, debaixo do alpendre velho, sentada num tronco.
 
-Está sozinha. Tirou os trapos de mendiga, e alguém lhe deu uma túnica de linho cru, muito grande, que lhe cai dos ombros. Os cabelos brancos desapareceram, não sei como, e por baixo aparece o cabelo verdadeiro, escuro, curto, colado à cabeça por água e sangue. O rosto, limpo, ainda ferido, com um corte feio na testa e uma mancha roxa na face, tem a expressão de quem acaba de acordar de um sonho comprido. As mãos, em carne viva, pendem entre os joelhos.
+O mesmo tronco onde, hoje de manhã, o meu filho esperou por ela.
 
-Não a vejo há dez anos. Não assim. Não de perto, sem máscara, sem névoa, à luz de uma tocha. Fico parada na entrada do alpendre, e por um longo instante só olho.
+Está curvada para a frente, com os cotovelos nos joelhos. Sozinha. Tirou os trapos de mendiga, e alguém deu a ela uma túnica de linho cru, grande demais, que cai de um ombro. O cabelo branco sumiu, não sei como, e por baixo aparece o dela, escuro, curto, colado na cabeça por água e sangue. O rosto, lavado, ainda ferido, com um corte feio na testa e uma mancha roxa no lado do rosto. As mãos em carne viva penduradas entre os joelhos.
 
-Está mais magra. Mais marcada. O rosto ganhou linhas que não tinha, em volta da boca, nos cantos dos olhos, entre as sobrancelhas. Tem fios brancos nas têmporas, que brilham à luz do fogo. Uma cicatriz nova atravessa o queixo. O mesmo queixo que eu beijei. O mesmo que, dez anos atrás, ficou molhado de lágrimas na porta de um quarto. Mas os olhos, os olhos claros, de quem passou muito tempo olhando o horizonte, continuam os mesmos.
+Não vejo esse rosto há dez anos.
 
-Ela levanta a cabeça. Vê-me. O corpo inteiro se contrai, como se tivesse levado um golpe.
+Não assim. Não de perto. Sem máscara. Sem névoa. À luz de uma tocha.
+
+Fico parada na entrada do alpendre. E por um tempo comprido só olho.
+
+Está mais magra. Mais marcada. O rosto ganhou linhas que não tinha. Em volta da boca. No canto dos olhos. Entre as sobrancelhas, um vinco fundo, igual ao meu. Tem fios brancos nas têmporas, que brilham na luz do fogo. Uma cicatriz nova atravessa o queixo.
+
+O mesmo queixo que eu beijei. O mesmo que, dez anos atrás, ficou parado na porta de um quarto, esperando que eu levantasse os olhos.
+
+Mas os olhos dela. Os olhos claros, de quem passou muito tempo olhando o horizonte.
+
+Esses continuam os mesmos.
+
+Ela levanta a cabeça. Me vê. O corpo inteiro se contrai, como se tivesse levado um soco.
 
 — Anne — diz.
 
-— Você vai enforcar doze mulheres — digo, e a minha voz atravessa o alpendre como uma lâmina bem afiada. — Vai enforcá-las ao amanhecer, sem me consultar, como decidiu tudo o que decidiu desde que cruzou aquele portão, e vai achar que me fez um favor. Mas elas não são suas, Emily. Ficaram aqui dez anos, enquanto você não estava, e eu as alimentei, as vesti, as protegi, ouvi cada uma chorar de noite atrás de uma porta. Sei o que fizeram e sei por quê. Uma delas tem dezoito anos e foi tocada pela primeira vez aos catorze. Outra se deitou com Antínoo em troca de pão para a mãe doente. Uma riu quando o mercador contou da ninfa, e riu porque era rir ou gritar, e se tivesse gritado alguém a teria batido. Eu teria rido também, se estivesse no lugar delas. Você acha que escolheram? Você acha que, se tivessem a menor escolha, teriam feito o que fizeram? Você olhou do morro, você me disse, viu uma delas no colo de um homem e não soube se era riso de quem quer ou de quem tem medo. Então por que não perguntou? Porque você nunca pergunta. Você olha, decide, executa, e espera que eu agradeça. Dez anos você me ensinou isso, a esperar que a sua decisão chegasse e a engolir, e eu estou cansada de engolir.
+O meu nome. Na boca dela. Com a rouquidão no fundo. Com o fio puxado na primeira sílaba.
 
-Ela se levanta. É mais alta do que eu lembrava, ou sou eu que encolhi. Ficamos a um passo uma da outra, com a luz da tocha tremendo nos nossos rostos, e sinto o cheiro dela, sangue seco, fumaça, sabão de oliva, e por baixo, discreto, o cheiro da pele, que eu reconheceria em qualquer escuridão.
+Não. Não vou deixar o meu nome me desarmar.
 
-— Você tem razão — diz, e a voz dela desce, fica rouca, quase mansa. — Não devia ter decidido. Devia ter esperado você, e eu sei que devia, e sei que tentei e não consegui. Mas deixe-me dizer por que, coruja, e depois você faz o que quiser comigo. Quando cheguei aqui, eu só queria uma coisa: que alguém me dissesse o que fazer. Estive dez anos decidindo sozinha, no mar, no escuro, entre deuses e monstros, e a única pessoa que podia ter decidido por mim era você, e você estava a uma ilha de distância acendendo uma lamparina. Quando vi aquela casa cheia de homens, quando vi o forno do pátio virado fogueira, quando vi o Argos no estrume, eu perdi o que tenho de mais cuidadoso, que é a paciência. E decidi. Decidi depressa, como decido tudo, porque se eu parar, a vergonha me alcança. Eu sei que não é desculpa. Sei que é só uma explicação. Mas você quer que eu peça perdão por ter tentado, e eu não sei pedir perdão por ter tentado, porque tentar foi a única coisa que me restou fazer.
+---
 
-— Não quero que peça perdão por ter tentado — respondo, e sinto que a voz me escapa, que sobe, que vira quase grito. — Quero que me escute. Você voltou e quis ser herói, como sempre. Matou cento e oito homens em duas horas, e eu estava lá, Emily, eu vi, e sei exatamente o que senti, que não foi gratidão. Foi o sentimento de quem passou dez anos construindo uma coisa com as duas mãos, tijolo por tijolo, mentira por mentira, noite por noite, e vê alguém chegar e derrubá-la de uma só vez, achando que a está salvando. Eu os aguentei dez anos. Cada dia, cada noite, cada gesto. Aprendi a calar para que não me tocassem, a sorrir para que não me batessem, a tecer e desfazer um pano inteiro para ganhar uma estação, e você volta e os mata como quem apaga uma vela e acha que está me devolvendo alguma coisa. Mas não está. Você está se devolvendo a si mesma. Você matou por culpa, e matou bem, e agora quer matar as doze que restam para terminar o serviço, e eu não vou deixar. Eu não vou deixar que a culpa que é sua seja paga com o corpo delas.
+— Você vai enforcar doze mulheres — digo.
+
+A voz atravessa o alpendre como lâmina bem afiada.
+
+— Ao amanhecer. Sem me perguntar nada. Como decidiu tudo desde que passou aquele portão. E vai achar que me fez um favor.
+
+Ela abre a boca. Eu não deixo.
+
+— Elas não são tuas, Emily. Ficaram aqui dez anos enquanto você não estava. Eu as alimentei. Vesti. Protegi. Ouvi cada uma chorar de noite atrás de uma porta. Sei o que fizeram e sei por quê. Uma delas tem dezoito anos e foi tocada pela primeira vez aos catorze. Contra a vontade. Outra se deitou com o Antínoo em troca de pão para a mãe doente. Uma riu quando o mercador contou da ninfa, e riu porque era rir ou gritar, e se tivesse gritado alguém batia nela.
+
+Dou um passo.
+
+— Eu teria rido também, se estivesse no lugar delas. Você acha que elas escolheram? Você acha que, se tivessem a menor escolha, teriam feito o que fizeram?
+
+— Anne...
+
+— Você não pergunta. Nunca. Você olha. Decide. Executa. E espera que eu agradeça. Dez anos você me ensinou isso. A esperar a tua decisão chegar e engolir.
+
+Mais um passo.
+
+— Eu estou cansada de engolir.
+
+---
+
+Ela se levanta.
+
+É mais alta do que eu lembrava. Ou eu encolhi. Ficamos a um passo uma da outra, com a luz da tocha tremendo nas nossas caras.
+
+E eu sinto o cheiro dela.
+
+Sangue seco. Fumaça. Sabão de oliva. E por baixo, discreto, o cheiro da pele. O que eu reconheceria em qualquer escuridão, de olhos vendados, numa sala com mil mulheres.
+
+O corpo me trai. Do jeito mais baixo. O corpo, que passou dez anos dormindo de um lado só da cama, reconhece aquele cheiro antes de mim e se inclina. Um dedo. Na direção dela. Como planta virando para o sol.
+
+Endireito a coluna.
+
+— Você tem razão — diz ela.
+
+A voz desce. Fica rouca. Quase mansa.
+
+— Eu não devia ter decidido. Devia ter esperado você. Eu sei que devia. Tentei e não consegui. — Ela engole. — Mas me deixa dizer por quê, coruja. Depois você faz o que quiser comigo.
+
+*Coruja.*
+
+Ela não me chama assim há dez anos. Ninguém me chama assim. Ninguém mais sabe. É dela. O apelido que ela me deu no segundo ano, porque eu ficava acordada contando coisas até de madrugada, com os olhos abertos no escuro, e ela dizia que eu parecia o bicho do anel.
+
+— Quando eu cheguei aqui — diz ela —, eu só queria uma coisa. Que alguém me dissesse o que fazer. Passei dez anos decidindo sozinha. No mar. No escuro. Entre deuses e monstros. E a única pessoa que podia decidir por mim era você, e você estava a uma ilha de distância, acendendo uma lamparina.
+
+Ela abre as mãos em carne viva.
+
+— Quando eu vi esta casa cheia de homens. Quando vi o forno do pátio virado fogueira. Quando vi o Argos no estrume. Quando vi o nosso filho apanhar. Eu perdi o que eu tenho de mais cuidadoso, que é a paciência. E decidi. Depressa. Como decido tudo. Porque se eu parar, a vergonha me alcança.
+
+Os olhos dela brilham.
+
+— Eu sei que não é desculpa. É só explicação. Você quer que eu peça perdão por ter tentado. E eu não sei pedir perdão por ter tentado. Porque tentar foi a única coisa que me sobrou.
+
+---
+
+— Eu não quero que você peça perdão por ter tentado.
+
+A voz me escapa. Sobe. Vira quase grito.
+
+— Eu quero que você me escute! Você voltou e quis ser herói, como sempre. Matou cento e sete homens em duas horas, e eu estava lá, Emily, eu vi. E eu sei exatamente o que senti, e não foi gratidão.
+
+Ela não se mexe.
+
+— Foi o que sente uma pessoa que passou dez anos construindo uma coisa com as duas mãos. Tijolo por tijolo. Mentira por mentira. Noite por noite. E vê alguém chegar e derrubar tudo de uma vez, achando que está salvando.
+
+Respiro.
+
+— Eu aguentei eles dez anos. Cada dia. Cada noite. Cada gesto. Aprendi a calar para que não me tocassem. A sorrir para que não me batessem. A tecer e desfazer um pano inteiro para ganhar uma estação. E você volta e mata todos como quem apaga uma vela, e acha que está me devolvendo alguma coisa.
+
+Mais perto. Quase encosto nela.
+
+— Mas não está me devolvendo nada. Está devolvendo a você mesma. Você matou por culpa. E matou bem. E agora quer matar as doze que sobraram para terminar o serviço.
+
+A voz quebra.
+
+— E eu não vou deixar. Eu não vou deixar que a culpa que é tua seja paga com o corpo delas.
+
+---
 
 A mão sai sozinha.
 
-Não decido. O braço sobe e desce, e o som é tão alto, tão seco, tão inteiro, que faz eco no pátio vazio. A palma me arde. A cabeça dela vira para o lado, e fica assim, virada, por um longo segundo, enquanto a marca vermelha dos meus dedos aparece devagar na bochecha. Ela não levanta a mão. Não recua. Fica de olhos fechados, com a face exposta, e uma lágrima desliza por cima da marca.
+Não decido. O braço sobe e desce.
+
+E o barulho é tão alto, tão seco, tão inteiro, que faz eco no pátio vazio.
+
+A palma me arde.
+
+A cabeça dela vira para o lado. E fica assim, virada, por um segundo comprido, enquanto a marca vermelha dos meus dedos aparece devagar na bochecha, por cima da mancha roxa.
+
+Ela não levanta a mão. Não recua. Fica de olhos fechados, com a face exposta.
+
+Uma lágrima escorre por cima da marca.
 
 — Isso eu mereci — diz, muito baixo.
 
@@ -70,62 +220,198 @@ Não decido. O braço sobe e desce, e o som é tão alto, tão seco, tão inteir
 
 — Pode fazer de novo.
 
-— Quero — digo, e a voz me falha. — Quero bater em você até não sobrar braço, quebrar cada osso, arrancar os seus olhos, e quero também abraçar você e chorar no seu ombro até o dia amanhecer, e dizer que senti tanta falta que achei que ia morrer. As duas coisas ao mesmo tempo, Emily, na mesma respiração, e não sei qual das duas vai vencer, e isso me enlouquece. Você me deixou com uma raiva que não cabe em mim e um amor que também não cabe, e os dois brigam o tempo todo, e eu não sei mais quem sou no meio deles.
+Olho para ela. A boca dela, entreaberta. O rosto virado, oferecido. O pescoço, onde o sangue bate rápido, muito rápido. E sinto na palma da mão, ainda ardendo, o formato do rosto dela. A pele quente. O osso.
 
-Ela abre os olhos. Olha-me, com o rosto molhado, e eu vejo nela a mulher do molhe, de vinte anos, com os pés descalços no cais, perguntando em silêncio o que eu queria.
+É a primeira vez que eu toco nela em dez anos.
 
-— Eu ia contar tudo hoje — diz. — Troia, o menino, o silêncio, o que eu não disse em dez anos. Estava sentada aqui esperando que você descesse, com tudo na ponta da língua, e se você me deixar, eu conto agora, sem pular nada, sem proteger nada.
+E foi assim.
 
-— Não — digo. — Não vou ouvir em pedaços, nem do jeito que você escolher, na hora que você escolher, com as palavras que você escolher. Dez anos você escolheu. Agora é a minha vez de decidir quando ouvir, e eu decido que não é hoje.
+— Eu quero — digo, e a voz falha. — Quero bater em você até não sobrar braço. Quebrar cada osso. Arrancar os teus olhos. E quero também te abraçar e chorar no teu ombro até amanhecer. E dizer que senti tanta falta que achei que ia morrer.
 
-— Então quando?
+Ela abre os olhos.
+
+— As duas coisas ao mesmo tempo, Emily. Na mesma respiração. E eu não sei qual das duas vai ganhar. E isso me enlouquece. Você me deixou com uma raiva que não cabe em mim e um amor que também não cabe. E os dois brigam o tempo todo. E eu não sei mais quem eu sou no meio deles.
+
+Ela me olha com o rosto molhado.
+
+E eu vejo nela a mulher do molhe. Vinte anos. Pés descalços no cais. Perguntando em silêncio o que eu queria.
+
+Se eu fizer um movimento. Um só. Se eu levantar a mão de novo, mas não para bater.
+
+Ela sabe. Vejo nos olhos dela que ela sabe. Que está esperando. Que está a meio segundo de se jogar.
+
+Não me mexo.
+
+---
+
+— Eu ia contar tudo hoje — diz ela. — Troia. O menino. O silêncio. O que eu não disse em dez anos. Eu estava sentada aqui esperando você descer, com tudo na ponta da língua. Se você deixar, eu conto agora. Sem pular nada. Sem proteger nada.
+
+— Não.
+
+— Anne.
+
+— Não vou ouvir em pedaços. Nem do jeito que você escolher, na hora que você escolher, com as palavras que você escolher. Dez anos você escolheu. Agora é a minha vez de decidir quando ouvir.
+
+— E quando?
 
 — Quando eu quiser.
 
-— E se nunca quiser?
+— E se você nunca quiser?
 
-— Então nunca — respondo, e viro as costas, porque se ficar mais um minuto eu cedo. — As criadas não serão enforcadas. Nem hoje, nem amanhã, nem nunca. Serão castigadas como eu decidir, e você não vai se meter.
+— Então nunca.
 
-— Está bem — diz ela, atrás de mim. — É a sua casa.
+Viro as costas. Porque se eu ficar mais um minuto, eu cedo.
 
-— Nossa — digo, sem pensar, e fico imóvel, com o coração batendo, esperando que ela agarre a palavra.
+— As criadas não vão ser enforcadas — digo, olhando a escuridão do pátio. — Nem hoje, nem amanhã, nem nunca. Vão ser castigadas como eu decidir. E você não vai se meter.
 
-— Nossa — repete ela, e a voz quebra no meio.
+— Está bem — diz ela, atrás de mim. — A casa é tua.
 
-Não me viro. Atravesso o pátio, entro na casa, subo as escadas, e quando chego à porta do quarto encontro a bandeja de Euricleia no chão, com o pão seco e o caldo frio. Pego-a. Entro. Tranco a porta. Sento-me na beira da cama, com a bandeja no colo, e como tudo, sem sentir o gosto, engolindo cada bocado com uma raiva surda e metódica, até não sobrar nada.
+— Nossa.
+
+Digo sem pensar.
+
+E fico imóvel. Com o coração batendo. Esperando que ela agarre a palavra.
+
+— Nossa — repete ela.
+
+E a voz dela quebra no meio, como um galho seco.
+
+Não me viro.
+
+Atravesso o pátio. Entro em casa. Subo a escada. Quando chego à porta do quarto, a bandeja de Euricleia continua no chão, com o pão seco e o caldo frio.
+
+Pego. Entro. Tranco a porta.
+
+Sento na beira da cama com a bandeja no colo e como tudo. Sem sentir o gosto. Engolindo cada pedaço com uma raiva surda e metódica, até não sobrar nada.
+
+E a palma da mão continua ardendo.
+
+Não lavo.
+
+---
+
+Batem à porta. Não é a ama. É uma batida baixa, na altura da minha cintura.
+
+— Mãe.
+
+Abro.
+
+O Timóteo está no corredor, de camisola, com os olhos inchados e as mãos limpas, esfregadas até ficarem vermelhas. Alguém lavou o sangue delas. Não sei quem. Eu não lavei. Eu estava trancada.
+
+— A mãe Emily está dormindo no estábulo — diz ele.
+
+— Eu sei.
+
+— No chão. Com um cachorro.
+
+— Eu sei.
+
+— Deixa ela subir.
+
+Olho para ele. Dez anos. Matou um homem hoje. Tem as mãos limpas e os olhos de quem não vai dormir.
+
+— Não.
+
+— Por quê?
+
+— Porque eu não estou pronta, pardal.
+
+— Ela está machucada.
+
+— Eu também.
+
+Ele me olha muito tempo. Com o queixo empinado. O meu queixo.
+
+— Você está fazendo com ela o que ela fez com a gente — diz.
+
+Não respondo.
+
+Porque é verdade. E porque, no fundo, numa parte de mim que eu não mostro a ninguém, é exatamente o que eu quero fazer.
+
+— Vai dormir, Timóteo.
+
+— Eu matei um homem por ela hoje.
+
+Ajoelho. Seguro o rosto dele com as duas mãos. A pele está fria.
+
+— Eu sei. Eu vi. — A minha voz treme. — E eu nunca vou te perdoar por isso, e ela também não vai se perdoar. Mas você não matou por ela. Você matou por você. Porque você não queria perder ela de novo. Eu sei, porque é o mesmo motivo de tudo o que eu fiz nesses dez anos.
+
+Ele começa a chorar.
+
+Não deixa. Engole. Limpa o rosto com o braço, brusco.
+
+E vai embora pelo corredor, descalço, sem me dar boa noite.
+
+Fico de joelhos na porta, com as mãos no ar onde estava o rosto dele.
 
 ---
 
 Ela não sobe.
 
-Fico acordada até quase o amanhecer, deitada de lado, olhando o tronco da oliveira, escutando. O palácio aquieta, aos poucos. As carroças param. As vozes se calam. Um galo canta longe, cedo demais. Nenhum passo nas escadas. Nenhuma mão na porta. Nenhum nome dito baixinho pela fresta.
+Fico acordada até quase o amanhecer, deitada de lado, olhando o tronco da oliveira. Escutando.
 
-Levanto-me antes do sol e vou à janela.
+O palácio vai se aquietando aos poucos. As carroças param. As vozes se calam. Um galo canta longe, cedo demais.
 
-O pátio está lavado. Alguém esfregou as pedras com areia e água, e o chão, ainda úmido, brilha cinzento à luz pálida. Não há um corpo. Não há uma mancha. Só o cheiro, um cheiro persistente de ferro e de cal, e uma jarra quebrada perto do poço, que ninguém recolheu.
+Nenhum passo na escada. Nenhuma mão na porta. Nenhum nome dito baixinho pela fresta.
 
-No fundo do pátio, junto ao estábulo, vejo um vulto sentado no chão, de costas contra a parede, com as pernas estendidas e a cabeça inclinada. Um vulto enrolado numa manta de cavalo. Ao lado dele, deitado, um cachorro que não conheço, magro, de pelo cinza, com a cabeça apoiada na coxa dele.
+Me levanto antes do sol e vou à janela.
 
-Dormiu ali. Num estábulo. No chão. Com um cão vira-lata.
+O pátio está lavado. Alguém esfregou as pedras com areia e água, e o chão, ainda úmido, brilha cinzento na luz pálida. Nenhum corpo. Nenhuma mancha. Só o cheiro, um cheiro teimoso de ferro e de cal, e uma jarra quebrada perto do poço, que ninguém recolheu.
+
+No fundo do pátio, junto ao estábulo, vejo um vulto sentado no chão. De costas contra a parede. Com as pernas esticadas e a cabeça inclinada. Enrolado numa manta de cavalo.
+
+Ao lado, deitado, um cachorro que eu não conheço. Magro, de pelo cinza, com a cabeça apoiada na coxa dela.
+
+Ela dormiu ali. Num estábulo. No chão. Com um cão vira-lata.
+
+Ou não dormiu. Não sei. Daqui não vejo os olhos.
 
 Fico olhando muito tempo.
 
-Não sinto pena. Digo isso a mim mesma com firmeza, com os braços cruzados, com a testa no batente. Não sinto nada. É uma mulher que me abandonou e voltou com sangue nas mãos. É uma mulher que deveria dormir num estábulo pelo resto da vida.
+Não sinto pena. Digo isso a mim mesma com firmeza. Com os braços cruzados. Com a testa no batente. Não sinto nada. É uma mulher que me abandonou e voltou com sangue nas mãos. É uma mulher que devia dormir num estábulo pelo resto da vida.
 
-Mas os olhos me ardem.
+Mas os olhos ardem.
 
-Afasto-me da janela. Vou até o gancho, onde a lamparina de bronze continua pendurada, acesa desde a véspera, com o azeite quase no fim. A chama, pequena, amarela, oscila. Levanto a mão. Seguro o bronze com as duas palmas. Está quente.
+---
 
-Olho a luz durante um longo tempo.
+Saio da janela. Vou até o gancho.
 
-Dez anos, penso. Três mil seiscentos e cinquenta e tantos dias. Cada um deles com uma decisão: acender. Uma lamparina que era um grito, uma promessa, uma súplica, um castigo, uma teimosia. Que era, acima de tudo, uma forma de dizer *eu ainda estou aqui.*
+A lamparina de bronze continua pendurada. Acesa desde ontem. Com o azeite quase no fim. A chama, pequena, amarela, balança.
 
-Ela voltou. Não preciso mais dizer.
+Levanto as mãos. Seguro o bronze com as duas palmas.
+
+Está quente.
+
+Olho a luz por muito tempo.
+
+Dez anos, penso. Três mil seiscentos e cinquenta e tantos dias. Cada um com uma decisão. Acender. Uma lamparina que era grito. Promessa. Súplica. Castigo. Teimosia. Que era, acima de tudo, um jeito de dizer *eu ainda estou aqui.*
+
+Ela voltou.
+
+Não preciso mais dizer.
 
 Sopro.
 
-A chama treme, curva-se, e morre. O quarto mergulha numa escuridão suave, cinzenta, cheia do cheiro de fumaça de azeite. Fico parada, com o bronze quente nas mãos, olhando o espaço onde havia luz, sentindo uma coisa estranha, enorme, vazia, que não é tristeza nem alívio, mas os dois ao mesmo tempo. Como quem larga um peso que carregou tanto tempo que já fazia parte do corpo, e descobre que, sem ele, não sabe andar.
+A chama treme. Se curva. E morre.
+
+O quarto afunda numa escuridão macia, cinzenta, cheia do cheiro de fumaça de azeite.
+
+Fico parada, com o bronze quente nas mãos, olhando o lugar onde havia luz. Sentindo uma coisa estranha, enorme, vazia, que não é tristeza nem alívio. São os dois ao mesmo tempo. Como quem larga um peso que carregou tanto tempo que já fazia parte do corpo, e descobre que, sem ele, não sabe andar.
 
 Penduro a lamparina de volta no gancho. Apagada.
 
-Depois me deito, vestida, de costas para a porta, de frente para a oliveira, e fico esperando o sol.
+E lá embaixo, no fundo do pátio, eu vejo o vulto enrolado na manta levantar a cabeça.
+
+Devagar.
+
+E olhar para a minha janela.
+
+Para a janela escura.
+
+Fico atrás do batente, sem me mostrar, e vejo ela olhar muito tempo para o lugar onde a luz estava. E depois abaixar a cabeça de novo, devagar, até encostar no joelho.
+
+Me deito vestida. De costas para a porta. De frente para a oliveira.
+
+E fico esperando o sol.
+
+Com a palma da mão encostada no rosto. Onde ainda tem o cheiro dela.
