@@ -90,7 +90,27 @@ Perguntou da Anne. Se ela e o menino estavam bem.
 
 — Eu vi a Anne antes de morrer — continuou. — Ela vinha toda tarde ao meu quarto. Sentava na beira da cama e lia para mim as cartas que você não mandava. Inventava. Dizia: *hoje a Emily escreveu, mãe. Diz que está bem. Que a guerra vai acabar logo. Que comprou um cavalo branco.* — A sombra dela quase sorriu. — Eu sabia que era mentira. Ela sabia que eu sabia. Mas a gente fingia. Era o único consolo que havia.
 
-As lágrimas me escorriam, e eu não conseguia falar.
+As lágrimas me escorriam, e eu demorei para achar a voz.
+
+— Ela inventava o quê, mãe? — perguntei, ajoelhada na areia preta, com a espada esquecida no colo. — Me conta as mentiras dela. Uma por uma. Eu quero saber o que eu fiz nas cartas que eu não escrevi.
+
+A sombra da minha mãe quase sorriu.
+
+— Você comprou um cavalo branco em Tenedos e deu o nome de Laertes para irritar o teu pai — disse. — Você caiu do cavalo no segundo dia e quebrou dois dedos, e escreveu a carta com a mão esquerda, por isso a letra estava pior do que de costume. Ela tinha feito a letra pior de propósito, a danada, e fingia que estava com dificuldade de ler. Você aprendeu a cozinhar peixe com um soldado de Creta e queimou a tenda de Agamêmnon. Você sentia falta do queijo do Eumeu. Você mandava dizer que o menino tinha de comer verdura. — A voz dela ficou mais baixa. — E em toda carta, no fim, você mandava um recado para ela. Diferente em cada uma. Ela lia esse pedaço mais devagar, e eu fechava os olhos para ela poder ler sem eu ver a cara dela.
+
+— Que recado?
+
+— *Diz para a coruja que eu ainda conto as vigas por ela.* — A minha mãe olhou a névoa, como quem olha uma janela. — *Diz para a coruja que a cama de campanha é fria e que eu durmo virada para o lado errado de propósito, para achar que ela está do outro.* Uma vez ela leu: *diz para a coruja que eu não sei viver sem briga e que aqui ninguém briga comigo direito.* E parou no meio. E ficou com o papiro no colo muito tempo. E disse, mãe, essa parte eu inventei mal, porque é verdade.
+
+Eu enfiei a cara nas mãos.
+
+Eram coisas que eu teria escrito. Cada uma. A Anne me conhecia tão bem que mentia com a minha voz melhor do que eu falava com ela.
+
+— Ela dorme, mãe? — perguntei, entre os dedos. — Ela come? Ela está... a Anne está bonita?
+
+A minha mãe riu. Os mortos não riem. Ela riu assim mesmo.
+
+— Ela dorme pouco, come de pé e está mais bonita do que você merece, filha. Ficou com uma ruga aqui. — Ela levantou o dedo transparente para a própria testa, entre as sobrancelhas. — De franzir para os pretendentes. Ela vai franzir para você também. Não reclama.
 
 — Ela é forte, Emily. Mais forte do que você. — A minha mãe levantou a mão transparente. — Quando você voltar, não espere que ela te receba de braços abertos. Ela vai te fazer pagar.
 
@@ -287,6 +307,40 @@ Ela nunca vai me contar isso. Vai me contar de Troia, de Calipso, dos pretendent
 Ele me olha.
 
 Com as pestanas molhadas. Com o queixo da mãe dele empinado. Com uma coisa nos olhos que eu reconheço, porque vejo todo dia na água da bacia: a desconfiança de quem já foi enganado e decidiu que não vai ser de novo.
+
+Ele enxuga a cara com o pulso, com raiva, e funga, e olha para o alvo em vez de para mim.
+
+— Como ela era? — pergunta, de repente. — A senhora disse que conheceu. A rainha que atirava torto. Todo mundo me conta dela como se fosse estátua. O Eumeu diz que ela era a pessoa mais corajosa da ilha. A Euricleia diz que era a mais teimosa. O avô não fala dela, cospe. A mãe Anne diz quantos anos ela tinha e quantos navios levou. Ninguém diz como ela *era*.
+
+Eu fico um tempo com a boca aberta.
+
+E depois, porque é a única coisa que eu tenho para dar a ele hoje e porque não custa nada além do meu orgulho, eu conto.
+
+— Ela roncava — digo. — Alto. A tua mãe Anne jogava travesseiro nela no meio da noite e ela não acordava, só virava de lado e roncava para a parede. Comia de pé, como soldado, com o pão numa mão e a carne na outra, e deixava migalha na cama, e a tua mãe Anne contava as migalhas de manhã em voz alta para ela ouvir. Mentia muito mal. Mentia tão mal para a tua mãe Anne que a tua mãe Anne nem precisava perguntar; ela olhava o lábio de baixo, que tremia, e pronto. Cantava canção de marinheiro desafinada, sempre no mesmo pedaço, e as indecentes ela cantava mais alto que as outras. E tinha medo de uma coisa só no mundo.
+
+Ele vira a cabeça, e a pergunta está na cara dele antes da boca.
+
+— Da tua mãe Anne brava. — Eu quase sorrio debaixo da cara de velha. — Enfrentou gente com espada, gigante, mar. Mas quando a tua mãe Anne cruzava os braços e levantava uma sobrancelha só, essa aqui, a esquerda, a da cicatriz, a rainha de Ítaca ia dormir no estábulo sem ninguém mandar. Os cavalos já conheciam ela. Abriam espaço.
+
+O Timóteo ri.
+
+Não é o riso do pátio, alto, de surpresa. É outro, pelo nariz, curto, de quem não queria rir e não conseguiu segurar, e que tem dentro uma coisa machucada que ri junto. Ele cobre a boca com as costas da mão, igual à mãe, e me olha por cima dela.
+
+— A mãe Anne faz isso com a sobrancelha comigo também — diz. — Quando eu quebro coisa. Levanta só essa, a da cicatriz, e não fala nada, e eu sei que vou ficar sem figo uma semana.
+
+— E você foge para o estábulo, como a rainha fugia, que os cavalos já te conhecem?
+
+— Eu vou para debaixo da cama. — Ele dá de ombros. — É mais perto, não tem cavalo, e de lá eu ouço quando ela para de estar brava, porque ela começa a cantarolar fora do tom.
+
+Eu rio também. Não consigo evitar. E o riso de velha sai rachado e esquisito, e ele me olha com desconfiança e depois ri mais, de mim, e por um instante, um só, no meio do frio da manhã, num alpendre que cheira a rato, a gente ri junto, os dois, de uma mulher brava de sobrancelha levantada que está dormindo lá em cima na torre sem saber.
+
+Depois o riso acaba. Ele fica sério de novo, com a flecha nas mãos.
+
+— A senhora gostava dela — diz. Não é pergunta. — Da rainha. Dá para ver. A senhora fala dela como a mãe Anne fala, quando acha que eu não estou ouvindo.
+
+— Todo mundo gostava dela, menino. Até quando dava vontade de bater.
+
+— A mãe Anne diz que isso é o pior tipo de gente. — Ele gira a flecha. — A que dá vontade de bater e de abraçar ao mesmo tempo.
 
 E depois, muito devagar, como quem faz uma concessão que não tem certeza de querer fazer, ele me estende o arco.
 
