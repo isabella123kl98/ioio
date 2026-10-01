@@ -4,158 +4,50 @@
 
 Antes de o mar me cobrar, ele me devolve Troia.
 
-Acontece na décima segunda noite, com a jangada deslizando por uma água tão parada que as estrelas parecem pregadas nela pelo lado de baixo. Estou deitada de costas no meio dos troncos, com as mãos queimadas abertas sobre o peito, e fecho os olhos um instante, só um, e quando os abro o céu é outro. Cheira a piche e a cabra assada. Há uma praia comprida, escura, cheia de fogueiras apagadas, e no meio dela, inchado como um bicho morto, o cavalo.
+Acontece na décima segunda noite, com a jangada deslizando por uma água tão parada que as estrelas parecem pregadas nela pelo lado de baixo. Estou deitada de costas no meio dos troncos, com as mãos queimadas abertas sobre o peito, e fecho os olhos um instante, só um, e quando os abro o céu é outro. Cheira a piche e a cabra assada. Há uma praia comprida e escura, cheia de fogueiras apagadas, e no meio dela, inchado como um bicho morto, o cavalo. Doze dias de mar manso e o que me vem é o cavalo de madeira, grande como um templo, ainda fresco de serra, com o ventre cheio de homens que respiram baixo. Eu sei que estou lá dentro. Sinto o joelho do Euríloco nas minhas costas e ouço o suor escorrer no escuro, e a voz de uma mulher troiana, do lado de fora, perguntando aos gritos se aquilo é um presente ou um aviso. É a voz de Helena, que circula o cavalo batendo as unhas no casco e imitando a voz de cada uma de nós, a da esposa de Diomedes, a da mulher que o Anticlo deixara em casa, e eu, dentro do ventre de madeira, tenho que prender a respiração e a mão do Anticlo para que ele não responda. Quando chega a minha vez, Helena não sabe o nome de ninguém, inventa uma voz, e a voz que ela inventa tem a rouquidão pequena, o fio puxado na primeira sílaba, *Emmm-ily*, e eu mordo a língua até sangrar.
 
-Doze dias de mar manso e o que me vem é o cavalo de madeira, grande como um templo, ainda fresco de serra, com o ventre cheio de homens que respiram baixo. Eu sei que estou lá dentro. Sinto o joelho do Euríloco nas minhas costas e ouço o suor escorrer no escuro, e a voz de alguma mulher troiana, do lado de fora, perguntando aos gritos o que é aquilo, se é um presente ou um aviso. A voz é de Helena. Eu a reconheceria em qualquer tempo. Ela circula o cavalo batendo as unhas no casco, imitando a voz de cada uma de nós, a da esposa de Diomedes, a da mulher que o Anticlo deixara em casa, e eu, dentro do ventre de madeira, tenho que prender a respiração e a mão do Anticlo para que ele não responda. Quando chega a minha vez, Helena não sabe o nome de ninguém. Inventa uma voz. E a voz que ela inventa tem a rouquidão pequena, o fio puxado na primeira sílaba, *Emmm-ily*, e eu me mordo a língua até sangrar.
+Acordo com o gosto de sangue na boca e a jangada balançando. O céu é o mesmo, pregado nas águas. Não sinto sono, nem fome, nem medo; sinto uma coisa pior, que é vontade de voltar para aquele cavalo, porque lá dentro eu sabia exatamente o que fazer. Risquei doze traços no mastro. Faltam cinco dias, se Calipso contou certo, e nenhuma das duas sabe contar.
 
-Acordo com o gosto de sangue na boca e a jangada balançando. O céu é o mesmo, pregado nas águas. Não sinto sono, nem fome, nem medo. Sinto uma coisa pior, que é vontade de voltar para aquele cavalo, porque lá dentro eu sabia exatamente o que fazer.
+Eu devia ter desconfiado da calma. Na décima sétima tarde as montanhas aparecem na borda do mundo, azuis, baixas, de um jeito que me dá vontade de rir e de vomitar, e fico de pé, seguro o mastro com as duas mãos e deixo o vento bater na cara, e digo em voz alta para o ar vazio que amanhã piso em chão firme, que amanhã alguém me empresta uma mula e eu subo por uma estrada de terra que eu mesma mandei aplainar até uma porta de madeira que eu mesma forjei. E digo, mais baixo, sem permissão, a coisa que vinha me comendo desde a gruta, que é: *e se ela abrir.* Se ela abrir a porta, e eu estiver ali, com a cara de quem passou dez anos longe e sete na cama de outra, e ela me olhar. Não sei qual dos olhares dela eu temo mais, o que me mataria ou o que me perdoaria. Sinto o frio descer pela barriga, o mesmo que sentia no molhe, aos vinte anos, quando uma menina de véu torto desceu de um barco e me olhou como quem olha um animal que lhe venderam.
 
-Risquei doze traços no mastro. Faltam cinco dias, se Calipso contou certo, e nenhuma das duas sabe contar.
+O vento morre no meio da frase. Não diminui: acaba, como uma respiração que se prende. A vela dourada cai no mastro como um pano lavado, a água em volta se alisa num espelho de chumbo, e debaixo do espelho, longe, alguma coisa enorme vira de lado para olhar para cima. Sussurro que ainda não, que eu estava tão perto. O céu escurece de um jeito que nunca vi, sem ordem, as nuvens subindo das quatro bordas do mundo ao mesmo tempo, e quando a primeira onda chega eu já estou deitada nos troncos, com os braços enroscados nas cordas, e o mundo vira barulho.
 
----
-
-Eu devia ter desconfiado da calma.
-
-Na décima sétima tarde as montanhas aparecem na borda do mundo, azuis, baixas, de um jeito que me dá vontade de rir e de vomitar. Fico de pé. Seguro o mastro com as duas mãos e deixo o vento bater na cara, e digo em voz alta para o ar vazio que amanhã, amanhã eu piso em chão firme, que amanhã alguém me empresta uma mula e eu subo por uma estrada de terra que eu mesma mandei aplainar até uma porta de madeira que eu mesma forjei.
-
-O vento morre no meio da frase.
-
-Não diminui. Acaba, como uma respiração que se prende. A vela dourada cai no mastro como um pano lavado. A água em volta se alisa em um espelho de chumbo. E debaixo do espelho, longe, alguma coisa enorme vira de lado para olhar para cima.
-
-— Ainda não — sussurro. — Eu estava tão perto.
-
-O céu escurece de um jeito que eu nunca vi, sem ordem, as nuvens subindo das quatro bordas do mundo ao mesmo tempo. Quando a primeira onda chega eu já estou deitada nos troncos, os braços enroscados nas cordas, e o mundo vira barulho.
-
-Não vou contar a tempestade inteira. Quem já passou por uma não precisa, e quem nunca passou não acredita. Conto só o que ficou no corpo. O mastro quebrando, um estalo seco, como o de um osso grande. A lasca de pinheiro na coxa esquerda, quente, e depois o molhado descendo pela perna. As cordas nos pulsos, cada onda puxando, cada puxão abrindo um pouco mais a pele, e eu me recusando a soltar porque soltar é morrer, e eu ainda tenho uma conta a prestar. A vela dourada, arrancada, levada, boiando pequena e brilhante como a última coisa de Calipso se desfazendo. A voz que sai da minha boca gritando para um deus que eu já ofendi uma vez e pretendo ofender de novo.
-
-E, no meio da noite, a segunda imagem.
-
-Não é Troia desta vez. É o quarto. A cama com a oliveira no pé, e a Anne sentada na beirada, de costas, com o cabelo solto. Eu estou na porta, já armada, a armadura pesando nos ombros, o elmo debaixo do braço. O bebê dorme no berço. Não digo nada, e ela não se vira. Conto os segundos, como eu conto tudo. Doze. Vinte. Trinta. No trigésimo quarto ela fala sem levantar a cabeça: "Vá logo, Emily. Antes que eu peça para você ficar."
-
-Foi o que ela disse. Palavra por palavra. E eu fui.
-
-A onda que quebra a jangada me arranca dessa lembrança antes que eu possa responder.
+Não vou contar a tempestade inteira, quem já passou por uma não precisa e quem nunca passou não acredita. Conto só o que ficou no corpo: o mastro quebrando, um estalo seco como o de um osso grande; a lasca de pinheiro na coxa esquerda, quente, e depois o molhado descendo pela perna; as cordas nos pulsos, cada onda puxando, cada puxão abrindo um pouco mais a pele, e eu me recusando a soltar porque soltar é morrer e eu ainda tenho uma conta a prestar; a vela dourada, arrancada, levada, boiando pequena e brilhante como a última coisa de Calipso se desfazendo; a voz que sai da minha boca gritando para um deus que eu já ofendi uma vez e pretendo ofender de novo. E no meio da noite a segunda imagem: não Troia, o quarto. A cama com a oliveira no pé, e a Anne sentada na beirada, de costas, com o cabelo solto, e eu na porta, já armada, a armadura pesando nos ombros, o elmo debaixo do braço. O bebê dorme no berço. Não digo nada, e ela não se vira. No trigésimo quarto segundo, ela fala sem levantar a cabeça: *vá logo, Emily. Antes que eu peça para você ficar.* Foi o que ela disse, palavra por palavra, e eu fui. A onda que quebra a jangada me arranca da lembrança antes que eu possa responder.
 
 ---
 
-Quando a água me engole, não é escuro. É lento.
-
-Os braços fazem o que podem. As pernas chutam, e a coxa ferida grita a cada chute. O manto de lã de Calipso incha e me puxa, peso morto, uma mão paciente. Tento arrancá-lo e não consigo. Os dedos são dez gravetos molhados. Dentro do peito, o ar vira fogo.
-
-Penso: que ironia, morrer de novo a um dia da porta, dentro do pano que a mulher da outra cama teceu.
-
-Alguma coisa roça o meu braço.
-
-Macia, leve, um tecido. Fecho a mão por reflexo e o tecido me puxa, e o que puxa não é tecido. Rompo a superfície boca aberta, sugando o ar. Ao meu lado flutua uma mulher, só a metade de cima dela, nem jovem nem velha, com os cabelos colados no rosto e uma faixa comprida e clara enrolada no braço, que brilha no escuro como se tivesse sol dentro. Ela tem olhos tristes. Leva um menino agarrado às costas, e o menino dorme.
+Quando a água me engole, não é escuro. É lento. Os braços fazem o que podem, as pernas chutam, a coxa ferida grita a cada chute, o manto de lã de Calipso incha e me puxa, peso morto, uma mão paciente. Tento arrancá-lo e não consigo, os dedos são dez gravetos molhados, e dentro do peito o ar vira fogo. Penso, com a clareza de quem faz uma conta, que é uma ironia morrer de novo a um dia da porta, dentro do pano que a mulher da outra cama teceu. Alguma coisa roça o meu braço. Macia, leve, um tecido; fecho a mão por reflexo e o tecido me puxa, e o que puxa não é tecido. Rompo a superfície com a boca aberta, sugando o ar. Ao meu lado flutua uma mulher, só a metade de cima dela, nem jovem nem velha, com os cabelos colados no rosto e uma faixa comprida e clara enrolada no braço que brilha no escuro como se tivesse sol dentro. Tem olhos tristes. Leva um menino agarrado às costas, e o menino dorme.
 
 — Tira o manto — diz. Não é uma gaivota, não é uma deusa de templo: é só uma mulher afogada. — Tira tudo que for dela. Amarra isto no peito. Quando tocar terra, joga de volta e não olha.
 
-Desamarro o manto com os dentes e ele desce em silêncio, pálido, como uma alga. O alívio é tão grande que me dá tontura. Amarro a faixa no peito com um nó apertado. Flutuo.
+Desamarro o manto com os dentes e ele desce em silêncio, pálido, como uma alga, e o alívio é tão grande que me dá tontura. Amarro a faixa no peito com um nó apertado e flutuo. Digo, sem saber por que, que ela também deixou alguém em terra. Ela responde que deixou em terra o que trazia nas costas, e os olhos tristes me olham um instante a mais do que é educado: *você ainda tem um pouco de tempo. Não gaste.* E afunda de novo, devagar, com o menino dormindo, até a água fechar sobre o cabelo.
 
-— Você também deixou alguém em terra — digo, e nem sei por que digo.
-
-— Eu deixei em terra o que eu trazia nas costas — responde ela, e os olhos tristes me olham um instante a mais do que é educado. — Você ainda tem um pouco de tempo. Não gaste.
-
-Afunda de novo, devagar, com o menino dormindo, até a água fechar sobre o cabelo.
+Os dias seguintes eu conto como se conta a fome. Um dia nadando, uma noite vendo coisas, um dia boiando, uma noite vendo coisas. Ao meu lado a Anne boia em silêncio, de costas, o cabelo aberto na água como uma mancha de tinta, e eu falo com ela: digo que o forno de pão que ela construiu caiu na primeira chuva, que eu consertei, que ela riu de mim com farinha no cabelo; que a minha mãe nunca gostou dela e estava errada; que me desculpe por não ter voltado. Digo o que eu diria a uma imagem, porque o que eu diria à mulher de verdade eu ainda não sei. Numa dessas noites aparece uma vela, grande, quadrada, de pano escuro, deslizando sobre a água sem barulho: um navio sem remos, liso como ônix, que cheira a flor de laranjeira. Não tenho força para nadar até ele, e ele me alcança. Uma escada de corda desce, mãos me levantam sem palavra, mãos de gente que já sabe quem sou e prefere não perguntar, e me deitam em peles macias, e me dão água, que bebo até vomitar, e leite de cabra, e depois um sono que não é sono, é desmaio. Acordo uma vez, no meio da travessia, e vejo uma jovem de cabelos escuros sentada ao meu lado, olhando pela amurada, com um perfil de quem acabou de entender que o mundo é maior do que o pai. Quando vê que desperto, sorri, mas é um sorriso triste, de quem já sabe como a história termina. Toca o meu ombro um instante com dois dedos, leve, como se conferisse que sou feita de carne, e desvia os olhos. Durmo de novo.
 
 ---
 
-Os dias seguintes eu conto como se conta a fome.
-
-Um dia nadando, uma noite vendo coisas, um dia boiando, uma noite vendo coisas. Não escrevo no mastro porque não tenho mais mastro. Conto nos dedos, e os dedos se enganam. Ao meu lado a Anne boia em silêncio, de costas, o cabelo aberto na água como uma mancha de tinta, e eu falo com ela: digo que o forno de pão que ela construiu caiu na primeira chuva, que eu consertei, que ela riu de mim com farinha no cabelo. Digo que a minha mãe nunca gostou dela e que a minha mãe estava errada. Digo que me desculpe por não ter voltado. Digo o que eu diria a uma imagem, porque o que eu diria à mulher de verdade eu ainda não sei.
-
-Numa dessas noites, sem que eu perceba, aparece uma vela.
-
-É grande, quadrada, de pano escuro, e vem deslizando sobre a água sem barulho. Um navio sem remos, sem tripulantes visíveis, liso como ônix, que cheira a flor de laranjeira. Não tenho força para nadar até ele. Ele me alcança. Uma escada de corda desce, e mãos me levantam sem palavra, mãos de gente que já sabe quem eu sou e prefere não perguntar. Deitam-me em peles macias e me dão água, que eu bebo até vomitar, e depois leite de cabra, e depois um sono que não é sono, é desmaio.
-
-Acordo uma vez, no meio da travessia, e vejo uma jovem de cabelos escuros sentada ao meu lado, olhando pela amurada. Seu perfil é de quem acabou de entender que o mundo é maior do que o seu pai. Quando vê que desperto, ela sorri, mas é um sorriso triste, de quem já sabe como a história termina. Não diz o nome dela. Toca meu ombro por um instante com dois dedos, leve, como se conferisse que eu sou feita de carne, e desvia os olhos.
-
-Durmo de novo.
-
----
-
-Acordo com o sol se pondo e sem navio nenhum.
-
-Estou deitada de lado na areia, entre raízes de oliveira, com uma manta estranha sobre o corpo, um odre de água ao alcance da mão e um monte de presentes à minha volta: bronze, tecidos, dois trípodes, um cofre de madeira trabalhada. Quem me trouxe foi embora sem esperar agradecimento. A névoa baixa das colinas me cobre de cinza-claro, e eu olho em volta sem reconhecer nada. Uma baía. Duas pontas de rocha. Uma gruta coberta de hera. Um rio entrando no mar. E a oliveira em cuja sombra eu acordei.
+Acordo com o sol se pondo e sem navio nenhum. Estou deitada de lado na areia, entre raízes de oliveira, com uma manta estranha sobre o corpo, um odre de água ao alcance da mão e um monte de presentes à minha volta, bronze, tecidos, dois trípodes, um cofre de madeira trabalhada. Quem me trouxe foi embora sem esperar agradecimento. A névoa baixa das colinas me cobre de cinza-claro, e olho em volta sem reconhecer nada: uma baía, duas pontas de rocha, uma gruta coberta de hera, um rio entrando no mar, e a oliveira em cuja sombra acordei.
 
 — Você não reconhece — diz uma voz, e eu me viro.
 
-Uma mulher está sentada numa pedra, a uns dez passos. Tem trinta anos, talvez, o cabelo preso num lenço, o avental de quem remenda rede, e os olhos cinza. Cinza de oliveira, cinza de coruja, cinza do céu de Ítaca antes da chuva. Um gato dorme no colo dela. Ela passa a mão nele sem olhar.
+Uma mulher está sentada numa pedra, a dez passos, com trinta anos talvez, o cabelo preso num lenço, o avental de quem remenda rede, e os olhos cinza: cinza de oliveira, de coruja, do céu de Ítaca antes da chuva. Um gato dorme no colo dela. Passa a mão nele sem olhar. Chamo-a de senhora, e ela pergunta se ainda a chamo assim, que esperava uma bronca, e sorri com um sorriso maior do que o rosto.
 
-— Senhora — digo.
+— A névoa é minha — diz Atena. — Pus em volta da ilha enquanto você dormia, para que ninguém te visse chegar, nem você mesma. Olhe agora.
 
-— Você ainda me chama assim? Eu esperava uma bronca.
+Levanta a mão, e a névoa se abre como uma cortina: a baía de Fórcis, a caverna das ninfas onde as mulheres levam mel, a oliveira grande onde, aos seis anos, quebrei o braço, e a Euricleia me carregou no colo até o palácio gritando com os deuses. É Ítaca. Dormi debaixo da árvore da minha infância e não a reconheci. A terra é a minha, cheira a tomilho e a cabra, e eu enfio os dedos nela para ter certeza de que é real. A deusa conta, sem pressa, acariciando o gato: cento e oito homens no meu salão, filhos de Ítaca, de Dulíquio, de Same, de Zacinto, que vieram cortejar a minha esposa e ficaram porque ela se recusa a escolher; um chamado Antínoo, filho de Eupites, que quer a coroa, e que para tê-la precisa da rainha e do menino fora do caminho. *Ele já bateu no seu filho.* Alguma coisa em mim fica muito quieta. Antínoo: eu me lembro dele, um magricela de catorze anos que me seguiu até o navio implorando para carregar o meu escudo. Deixei. Ele foi tremendo de orgulho, com os braços finos, e eu passei a mão no cabelo dele e disse que cuidasse da minha casa. Ele cuidou.
 
-Não respondo. Ela sorri, e o sorriso é maior do que o rosto.
+Pergunto pela Anne, e Atena me conta que há vinte noites um mercador contou no meu salão onde eu estava e com quem; que a minha mulher ouviu sentada na cadeira alta, sem mexer o rosto, e depois subiu as escadas com o menino. Não sabe o que aconteceu depois, os deuses não sabem de tudo. Digo: *ela sabe da gruta.* Ela sabe, antes de eu chegar, antes de eu ter coragem de me ajoelhar no chão do nosso quarto e começar a dizer. Ouviu da boca de um estranho, gordo, bêbado, numa festa, rindo, diante de cento e oito homens que queriam a cama dela, diante do nosso filho. A deusa levanta o gato do colo e o põe no chão, que se espreguiça e sai. *Você não vai subir como você*, diz. *Com essa cara, essa coxa, sem armas, cento e oito homens te matam antes do portão. Vai subir como outra coisa.* E toca a minha cabeça com um dedo.
 
-— A névoa é minha. Eu a pus em volta da ilha enquanto você dormia, para que ninguém te visse chegar, nem você mesma. Olhe agora.
-
-Levanta a mão. A névoa se abre como uma cortina.
-
-A baía de Fórcis. A caverna das ninfas onde as mulheres levam mel. A oliveira grande onde eu, aos seis anos, quebrei o braço, e Euricleia me carregou no colo até o palácio gritando com os deuses. É Ítaca. Eu dormi debaixo da árvore da minha infância e não a reconheci. A terra é a minha terra, cheira a tomilho e a cabra, e eu enfio os dedos nela para ter certeza de que é real.
-
-— Dez anos, Emily — diz Atena. — Nem a ilha te conhece, nem você a ela. É assim que tem que ser. Escute.
-
-Ela conta. Sem pressa, acariciando o gato. Cento e oito homens no meu salão, filhos de Ítaca, de Dulíquio, de Same, de Zacinto, que vieram cortejar a minha esposa e ficaram porque ela se recusa a escolher. Um, chamado Antínoo, filho de Eupites, quer a coroa, e para ter a coroa precisa da rainha e do menino fora do caminho.
-
-— Ele já bateu no seu filho.
-
-Alguma coisa em mim fica muito quieta.
-
-Antínoo. Eu me lembro dele: um magricela de catorze anos que me seguia até o navio implorando para carregar o meu escudo. Deixei. Ele foi tremendo de orgulho, com os braços finos, e eu passei a mão no cabelo dele e disse que cuidasse da minha casa. Ele cuidou.
-
-— E ela?
-
-— Há vinte noites, um mercador contou no seu salão onde você estava e com quem. A sua mulher ouviu sentada na cadeira alta. Não mexeu o rosto. Depois subiu as escadas com o menino. Não sei o que aconteceu depois. Os deuses não sabem de tudo.
-
-— Ela sabe — digo. — Ela sabe da gruta.
-
-— Sabe o que o mercador sabia. — A deusa põe o gato no chão, que se espreguiça e sai. — O resto é seu para contar, se ela deixar. Mas você não vai subir como você. Com essa cara, com essa coxa, sem armas, cento e oito homens te matam antes do portão. Vai subir como outra coisa.
-
-Toca a minha cabeça com o dedo.
-
-É só um dedo. Mas sinto a pele do rosto repuxar, secar, vincar, sinto os dedos das mãos se retorcerem e incharem, sinto o cabelo clarear e cair ralo nos ombros. A espinha entorta. Os olhos se cobrem de névoa. Uma túnica velha e rasgada me cobre, e há um alforje remendado no meu ombro, e um cajado torto na mão.
-
-Olho as mãos. São mãos de uma velha de oitenta anos. Só o anel continua lá, escondido sob um trapo amarrado no dedo.
-
-— Desta vez você não pode gritar o seu nome — diz Atena, já de pé, já quase luz. — Suba ao morro de Hermes, onde fica a pocilga de Eumeu. Ele ainda é seu. Durma lá. Mas antes, olhe o que fizeram com a sua casa.
-
-Não vejo quando ela vai. Só sobra a pedra, e a marca de um gato no chão, e um farfalhar de penas em algum ramo.
+É só um dedo. Mas sinto a pele do rosto repuxar, secar, vincar, os dedos das mãos se retorcerem e incharem, o cabelo clarear e cair ralo nos ombros, a espinha entortar, os olhos se cobrirem de névoa. Uma túnica velha e rasgada me cobre, e há um alforje remendado no meu ombro e um cajado torto na mão. Olho as mãos: são de uma velha de oitenta anos. Só o anel continua lá, escondido sob um trapo amarrado no dedo. *Desta vez você não pode gritar o seu nome*, diz Atena, já de pé, já quase luz. *Suba ao morro de Hermes, onde fica a pocilga de Eumeu. Ele ainda é seu. Durma lá. Mas antes, olhe o que fizeram com a sua casa.* Não vejo quando vai. Só sobra a pedra, e a marca de um gato no chão, e um farfalhar de penas em algum ramo.
 
 ---
 
-Subo no escuro.
+Subo no escuro. Conheço esse caminho de olhos fechados, e é quase assim que subo, com a vista turva, apoiando o cajado, arrastando a perna; o corpo de velha dói de jeitos novos, e por baixo dele as minhas dores de sempre, a coxa, as costas, os pulsos, o sal ainda nas feridas. No alto há uma pedra chata onde eu e a Anne costumávamos sentar nas noites de verão, e ela dizia que o palácio visto dali parecia uma lamparina esquecida no escuro. Sento. Olho.
 
-Conheço esse caminho de olhos fechados e é quase assim que subo, com a vista turva, apoiando o cajado, arrastando a perna. O corpo de velha dói de jeitos novos, e por baixo dele as minhas dores de sempre: a coxa, as costas, os pulsos, o sal ainda nas feridas. Cada passo é um preço. Pago.
+O palácio está aceso como uma pira, todas as tochas do pátio queimando, o salão transbordando luz pelas janelas, e o som que chega até aqui é de festa que já dura demais: lira desafinada, gargalhada, taça batendo em madeira, um coro de homens cantando uma canção de marinheiro, e eu a conheço, é a que cantei para o meu filho na noite em que ele nasceu. Não conto os porcos, não conto os homens. Dessa vez eu olho só. Olho o pátio sem o forno de pão, o canteiro onde plantei as oliveiras, que já não tem oliveira nenhuma, só terra pisoteada, o portão, o estrume, o vulto de um cachorro deitado com o focinho voltado para a estrada, e desvio os olhos depressa, porque não posso olhar o cachorro agora. Procuro os rostos, as silhuetas de gente que nasceu nesta ilha: o de ombros largos, de pé sobre a mesa; o pequeno, de riso alto, sentado no chão; o de cabelos escuros, alto demais para um menino de catorze anos, que caminha entre os outros como dono, e sorri, e todos abrem espaço. Ele ainda carrega bem as coisas dos outros. Hoje carrega a casa inteira.
 
-No alto, há uma pedra chata onde eu e a Anne costumávamos sentar nas noites de verão. Ela dizia que o palácio visto dali parecia uma lamparina esquecida no escuro. Sento. Olho.
-
-O palácio está aceso como uma pira. Todas as tochas do pátio queimando, o salão transbordando luz pelas janelas, e o som que chega até aqui é um som de festa que já dura demais: lira desafinada, gargalhada, taça batendo em madeira, um coro de homens cantando uma canção de marinheiro. Reconheço a canção. É a que eu cantei para o meu filho na noite em que ele nasceu.
-
-Não conto os porcos. Não conto os homens. Dessa vez eu olho só.
-
-Olho o pátio sem o forno de pão. Olho o canteiro onde plantei as oliveiras, que já não tem oliveira nenhuma, só terra pisoteada. Olho o portão, o estrume, o vulto de um cachorro deitado com o focinho na estrada, e desvio os olhos depressa porque não posso olhar o cachorro agora. Procuro os rostos. O sal me deixou vista curta, e o corpo de velha piora tudo, mas eu conheço as silhuetas de gente que nasceu nesta ilha. O de ombros largos, que está de pé na mesa. O pequeno, de riso alto, sentado no chão. O de cabelos escuros, alto demais para um menino de catorze anos, que caminha entre os outros como dono, e sorri, e todos abrem espaço.
-
-Ele ainda carrega bem as coisas dos outros. Hoje carrega a casa inteira.
-
-E então a janela.
-
-Alta, no fim da ala leste, pequena, meio escondida pela sombra da torre. Uma luz amarela, trêmula, dentro de um pequeno bronze furado. A lamparina.
-
-Uma lamparina acesa.
-
-Não paro de respirar, dessa vez. Continuo respirando, muito devagar, para não espantar a luz. Fico assim, olhando, com as mãos apoiadas no cajado, e uma sombra passa diante da chama lá em cima, e fica. Uma forma de mulher, pequena nesta distância, os braços cruzados, a cabeça inclinada. Reconheço o jeito. É o de quem espera que alguma coisa lhe seja devolvida, e já calculou os juros.
-
-Anne.
-
-Levanto, e as pernas fraquejam, e eu continuo de pé. A palavra sobe pela garganta, aquela que estive dezessete dias e dezessete noites tentando dizer ao vento. Chega até os dentes. Tem ainda o gosto de resina de cedro.
-
-Fecho a boca.
-
-Não mereço. Não assim. Não de longe, não com outra cara.
+E então a janela. Alta, no fim da ala leste, pequena, meio escondida pela sombra da torre: uma luz amarela, trêmula, dentro de um pequeno bronze furado. A lamparina. Não paro de respirar, dessa vez: continuo respirando, muito devagar, para não espantar a luz. Fico assim, com as mãos apoiadas no cajado, e uma sombra passa diante da chama lá em cima e fica, uma forma de mulher, pequena nesta distância, os braços cruzados, a cabeça inclinada, e reconheço o jeito: é o de quem espera que alguma coisa lhe seja devolvida e já calculou os juros. Levanto, e as pernas fraquejam, e eu fico de pé mesmo assim. A palavra sobe pela garganta, a que passei dezessete dias e dezessete noites tentando dizer ao vento, e chega aos dentes, e tem ainda o gosto de resina de cedro. Fecho a boca. Não mereço. Não assim, não de longe, não com outra cara.
 
 — Mais uma noite — digo, tão baixo que nem o vento escuta. — Deixa acesa.
 
-A sombra fica mais um instante. Depois sai da janela, e a chama continua, sozinha.
-
-Desço na direção da pocilga, e o palácio segue cantando às minhas costas. Não conto mais. Só guardo a melodia, como se guarda um nome, para o dia em que ela acabar.
+A sombra fica mais um instante. Depois sai da janela, e a chama continua, sozinha. Desço na direção da pocilga, e o palácio segue cantando às minhas costas. Só guardo a melodia, como se guarda um nome, para o dia em que ela acabar.
