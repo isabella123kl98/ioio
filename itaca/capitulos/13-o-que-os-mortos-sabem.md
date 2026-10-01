@@ -108,7 +108,7 @@ A última sombra que reconheci foi a de Agamêmnon.
 
 Ao longe, afastado, de pé ao lado de uma árvore seca. Túnica manchada de sangue. Uma ferida enorme no peito. Quando me viu, veio. Bebeu do fosso com uma avidez de cão. E quando levantou o rosto, tinha nos olhos uma coisa que eu nunca tinha visto nele em vida. Não a arrogância do rei, nem a raiva do guerreiro. Uma sabedoria ferida.
 
-Contou que a esposa o matou na banheira. Com uma machadinha. Com a ajuda do amante. Ele voltou de dez anos de guerra com o butim e a glória, e ela o recebeu com um banquete e um punhal.
+Contou que a esposa o matou na banheira. Com uma machadinha. Com a ajuda do amante. Ele voltou de dois anos de guerra com o butim e a glória, e ela o recebeu com um banquete e um punhal.
 
 — Eu achava que o mundo era feito de homens que lutam e mulheres que esperam — disse. — Me deixa te dar o único conselho que eu tenho. Nunca conte tudo a uma mulher. Conte a verdade em pedaços. Com cuidado. Esconda o resto. Se você contar tudo, ela vai saber onde te ferir.
 

@@ -446,7 +446,7 @@ Ela se levanta.
 
 Devagar. Com a mão na oliveira para tirar o peso da perna. Fica de pé diante de mim, perto, tão perto que eu sinto o cheiro de sal e de suor e, por baixo, muito no fundo, o cheiro dela, que é de cedro e de pão queimado e que eu nunca soube explicar. Ela não me toca. Eu vejo as mãos dela abrirem e fecharem do lado do corpo, como se cada dedo tivesse que ser convencido.
 
-— Eu sofri, Anne — diz. — Você quer que eu diga, eu digo. Eu sofri. Eu fiquei nove anos numa praia de Troia vendo meninos morrerem por uma mulher que não era você nem era minha. Eu fiquei de joelhos olhando jogarem uma criança de uma muralha e não levantei a mão. Eu vi seis homens meus irem embora na boca de um bicho, um de cada vez, gritando o meu nome. E nenhum desses dias me dá o direito de nada. É por isso que eu não digo. Não é porque eu não sofri. É porque eu sei o que eu escolhi, e a dor que vem do que a gente escolhe não serve para cobrar ninguém.
+— Eu sofri, Anne — diz. — Você quer que eu diga, eu digo. Eu sofri. Eu fiquei dois anos numa praia de Troia vendo meninos morrerem por uma mulher que não era você nem era minha. Eu fiquei de joelhos olhando jogarem uma criança de uma muralha e não levantei a mão. Eu vi seis homens meus irem embora na boca de um bicho, um de cada vez, gritando o meu nome. E nenhum desses dias me dá o direito de nada. É por isso que eu não digo. Não é porque eu não sofri. É porque eu sei o que eu escolhi, e a dor que vem do que a gente escolhe não serve para cobrar ninguém.
 
 A minha boca está seca.
 

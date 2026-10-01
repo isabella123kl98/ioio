@@ -272,7 +272,7 @@ Atrás de mim, a jangada foi engolida. Ouvi o estalo do couro. O gemido da madei
 
 Fiquei pendurada o resto do dia.
 
-Sem apoio para os pés. Sem poder subir, porque o galho era fino demais e a pedra era lisa. Sem poder descer, porque embaixo era a boca. As duas mãos fechadas num galho em cima de uma garganta que rugia. Os braços queimando. Os ombros, que ainda doíam de nove anos de Troia, gritando. O suor entrando nos olhos e eu sem poder limpar.
+Sem apoio para os pés. Sem poder subir, porque o galho era fino demais e a pedra era lisa. Sem poder descer, porque embaixo era a boca. As duas mãos fechadas num galho em cima de uma garganta que rugia. Os braços queimando. Os ombros, que ainda doíam de dois anos de Troia, gritando. O suor entrando nos olhos e eu sem poder limpar.
 
 Eu contava. Claro que contava. *Mais um. Mais um. Mais um.* Contei até mil e começei de novo. Contei até mil oito vezes. Na quarta vez, comecei a contar com a voz da Anne. Não sei por quê. A voz dela contando porcos, contando ânforas, contando os degraus da torre. *Mil e doze. Sessenta. Novecentos e cinquenta e dois.* Os números dela me seguraram naquele galho melhor que os meus dedos.
 

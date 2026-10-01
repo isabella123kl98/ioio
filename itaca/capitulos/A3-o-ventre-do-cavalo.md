@@ -126,7 +126,7 @@ Helena.
 
 Ouvi ela rodear o cavalo, batendo as unhas na madeira, num ritmo lento, curioso. Cantarolando baixinho. E depois, sem aviso, começou a falar em grego. Com uma voz que não era a dela.
 
-Era a voz da mulher de Menelau chamando o marido. Depois a da mulher de Diomedes. Ela tinha ouvido falar de cada uma, em dez anos de guerra, nas histórias dos prisioneiros, e as inventava com uma perfeição de feiticeira.
+Era a voz da mulher de Menelau chamando o marido. Depois a da mulher de Diomedes. Ela tinha ouvido falar de cada uma, em dois anos de guerra, nas histórias dos prisioneiros, e as inventava com uma perfeição de feiticeira.
 
 Senti, do meu lado, Menelau parar de respirar.
 
