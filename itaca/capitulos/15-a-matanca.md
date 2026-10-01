@@ -422,7 +422,7 @@ No meio do pátio. Com um menino agarrado na perna. Com as mãos vermelhas. Com 
 
 A Nísia volta antes de eu me mexer.
 
-Atravessa o pátio sozinha, pelo meio dos corpos, com a barra do vestido azul suja de sangue até o joelho, e não desvia os olhos de mim. Traz na mão um pano de linho dobrado e uma bacia pequena de bronze com água. Para na minha frente. O Timóteo se encolhe contra a minha perna.
+Atravessa o pátio sozinha, pelo meio dos corpos, pisando com cuidado entre as mãos abertas no chão, com a barra do vestido azul suja de sangue até o joelho, e não desvia os olhos de mim. Traz na mão um pano de linho dobrado e uma bacia pequena de bronze com água. Para na minha frente. O Timóteo se encolhe contra a minha perna.
 
 Ela é mais alta do que eu pensava. Quase da minha altura de verdade, não a de velha. Os olhos cor de mel estão secos, vermelhos nas bordas.
 
