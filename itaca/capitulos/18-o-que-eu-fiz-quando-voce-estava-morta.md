@@ -318,7 +318,7 @@ Ela cai sentada para trás no assoalho, ofegante, com a túnica rasgada e os lá
 
 Estou tremendo. Puxo o vestido até os ombros e me cubro com os braços.
 
-— Não com isso entre nós. Eu não vou deitar com você para esquecer. Não vou te usar do jeito que eu usei aquela outra noite. E não vou fazer da cama o lugar onde a gente não conversa, que foi o que a gente fez durante seis anos antes de Troia e deu no que deu.
+— Não com isso entre nós. Eu não vou deitar com você para esquecer. Não vou te usar do jeito que eu usei aquela outra noite. E não vou fazer da cama o lugar onde a gente não conversa, que foi o que a gente fez nos primeiros anos, antes de aprender a brigar de boca, e deu no que deu.
 
 Ela me olha do chão, com o peito subindo e descendo.
 
