@@ -324,7 +324,7 @@ Está morno do sol. Cheira a sabão de cinza e a lavanda. E por baixo, quase nad
 
 O corpo de velha não sabe o que fazer com isso. O meu sabe. Sobe uma coisa quente da barriga até a garganta, e desce, e se espalha onde não devia, e eu fico parada no meio do pátio de trás de uma casa cheia de inimigos, com a mão num pano molhado, sentindo desejo por uma camisola.
 
-Os bardos não vão cantar essa parte.
+Os bardos não vão cantar essa parte. Nenhum bardo da costa inteira teria coragem de rimar *camisola* com *rainha*.
 
 Eu fecho a mão no pano. Só um pouco. Trago a barra até o rosto e encosto a boca nas folhinhas bordadas, onde o linho é mais grosso, e respiro.
 
