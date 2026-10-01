@@ -2,9 +2,9 @@
 
 *Anne*
 
-Nísia sempre chega de azul-claro, e eu sempre finjo que não reparo.
+Nísia chega de azul-claro, como chegou nas outras setenta vezes, e eu finjo que não reparo, como nas outras setenta.
 
-Recebo-a na sala pequena do lado norte, a de teto baixo e janelas viradas para a encosta, aonde nenhum pretendente vai porque não tem vinho nem mesa grande. Mandei fechar as portas, tirar as criadas, acender o fogo, como se o dia estivesse frio. Não está. É uma daquelas manhãs claras de fim de verão em que o mar brilha como chumbo polido e a terra cheira a figo maduro caído do pé. Mas a sala é úmida, sempre foi, e as minhas mãos estão geladas.
+Recebo-a na sala pequena do lado norte, a de teto baixo e janelas viradas para a encosta, aonde nenhum pretendente vai porque não tem vinho nem mesa grande. Mandei fechar as portas, tirar as criadas, acender o fogo, como se o dia estivesse frio. Não está. É uma daquelas manhãs claras de fim de verão em que o mar brilha como chumbo polido e a terra cheira a figo maduro caído do pé. Mas a sala é úmida desde que a construíram, e as minhas mãos estão geladas.
 
 Ela entra sem ser anunciada. É o costume dela, que eu nunca impedi.
 
@@ -14,17 +14,17 @@ Eu conheço aquela conta. Fui eu quem deu.
 
 Ficamos as duas paradas, uma de cada lado de uma mesa com uma jarra de água, sem dizer nada. O fogo estala. Lá fora, longe, um burro zurra.
 
-— Ouvi falar do mercador — diz ela, com a voz baixa e firme de sempre. — Em Same sabe-se tudo. Ouvi numa taverna, de um homem que jurava ter estado no salão. Disse que você ficou imóvel como uma estátua e saiu sem uma palavra, e que foi a coisa mais digna que ele já tinha visto. — Ela pousa a capa no encosto de uma cadeira, devagar. — Vim porque achei que você ia precisar de alguém. Não de conselho. Não de consolo. De alguém que soubesse o que aconteceu e não precisasse perguntar. Se eu errei, me diga, e eu volto para o navio agora.
+— Ouvi falar do mercador — diz ela, com aquela voz baixa e firme que não sobe nem quando ela discute preço. — Em Same a fofoca chega antes do vento. Ouvi numa taverna, de um homem que jurava ter estado no salão. Disse que você ficou imóvel como uma estátua e saiu sem uma palavra, e que foi a coisa mais digna que ele já tinha visto. — Ela pousa a capa no encosto de uma cadeira, devagar. — Vim porque achei que você ia precisar de alguém que soubesse o que aconteceu e não precisasse perguntar. Conselho você tem demais. Consolo você não aceita. Se eu errei, me diga, e eu volto para o navio agora.
 
 Não respondo. Olho a mesa, a jarra, as minhas mãos cruzadas, brancas nos nós dos dedos.
 
-O que me vem, completamente fora de propósito, é uma frase da minha mãe sobre os cavalos. *Um animal que ficou muito tempo amarrado não sabe mais correr quando o soltam.*
+O que me vem, sem nenhuma relação, é uma frase da minha mãe sobre os cavalos. *Um animal que ficou muito tempo amarrado não sabe mais correr quando o soltam.*
 
-— Você não errou — digo, por fim. — Pode ficar. Mas não nos aposentos de sempre. No quarto de hóspedes da ala sul. Com Euricleia cuidando de você.
+— Você não errou — digo, por fim. — Pode ficar. Mas não no quarto em que você costuma ficar. No quarto de hóspedes da ala sul. Com Euricleia cuidando de você.
 
 Ela assente. Não pergunta o que a regra significa. Nísia é uma daquelas pessoas que escutam as regras dos outros como quem escuta música, sem pedir a letra.
 
-Desde o primeiro dia, desde a primeira vez que a vi entrar no meu salão com uma carta de comércio e um olhar de quem não queria nada, eu soube que ela era perigosa. Não pelo que pedia. Pelo que não pedia. Uma mulher que nunca exige é uma mulher a quem a gente acaba dando tudo.
+Desde o primeiro dia, desde a primeira vez que a vi entrar no meu salão com uma carta de comércio e um olhar de quem não queria nada, eu soube que ela era perigosa. Não pelo que pedia. Pelo que não pedia. Uma mulher que nunca exige é uma mulher a quem a gente acaba dando mais do que tinha separado.
 
 — Anne — diz ela.
 
@@ -44,17 +44,17 @@ Não é um gesto íntimo. É um toque leve, rápido, de quem só quer dizer *est
 
 Em vez disso, fecho os olhos e fico parada, sentindo o calor da palma dela através do tecido.
 
-E lembro, sem querer, de um jeito que dói, de uma noite em que fiz exatamente o contrário.
+E lembro, sem querer, de um jeito que dói, de uma noite em que fiz o contrário.
 
 ---
 
 Foi na sexta primavera.
 
-Eu tinha trinta e dois anos. Fazia seis que a Emily tinha partido. Um ano que o último navio voltara de Troia sem ela, com uma história confusa de tempestade e de ilhas. O povo já chamava de viúva a rainha que não era viúva. Os pretendentes já eram cinquenta. O Timóteo tinha seis anos e perguntava toda noite, antes de dormir, se a mãe voltava amanhã, e eu respondia toda noite, com a mesma voz seca, que não sabia.
+Eu tinha trinta e dois anos. Fazia seis que a Emily tinha partido. Um ano que o último navio voltara de Troia sem ela, com uma história confusa de tempestade e de ilhas. O povo já chamava de viúva a rainha que não era viúva. Os pretendentes já eram cinquenta. O Timóteo tinha seis anos e perguntava toda noite, antes de dormir, se a mãe voltava amanhã, e eu respondia toda noite, seca, que não sabia.
 
 Naquela tarde, um mercador de Corinto entrou no porto com uma história.
 
-Tinha achado destroços ao largo do cabo Malea. Doze cascos, pelo menos. Todos de proa vermelha. Ninguém sobrevivera; o mar naquele ponto tinha um redemoinho que engolia tudo. A rainha de Ítaca, com toda a certeza, estava morta.
+Tinha achado destroços ao largo do cabo Malea. Doze cascos, pelo menos. Todos de proa vermelha. Ninguém sobrevivera; o mar naquele ponto tinha um redemoinho que engolia até gaivota. A rainha de Ítaca, com toda a certeza, estava morta.
 
 Doze cascos de proa vermelha.
 
@@ -82,7 +82,7 @@ Ela olhou para mim. Viu a minha cara, os pés sujos de terra, o vestido torto, o
 
 A casa tinha uma sala só. Uma lareira acesa, uma mesa, duas cadeiras, uma cama estreita num canto coberta de peles. Cheirava a lenha e a lavanda.
 
-Ela serviu vinho numa caneca de barro e pôs na minha mão. Bebi tudo de um gole. Ela serviu de novo. Sentou na minha frente, do outro lado da mesa, e esperou, com aquela paciência de quem nunca tem pressa.
+Ela serviu vinho numa caneca de barro e pôs na minha mão. Bebi de um gole. Ela serviu de novo. Sentou na minha frente, do outro lado da mesa, e esperou, com aquela paciência de quem nunca tem pressa.
 
 — Ela morreu — eu disse.
 
@@ -90,7 +90,7 @@ A frase saiu da minha boca como um corpo que cai de um barco. Sem peso. Sem baru
 
 — Anne, eu sinto...
 
-— Não diga nada. — Levantei a mão. — Não diga que ela foi uma boa rainha. Nem que era querida. Nem que os deuses levam os melhores. Eu já ouvi tudo isso hoje. Já ouvi de gente que nunca falou com ela. Eu só quero ficar num lugar onde ninguém me peça para ser forte.
+— Não diga nada. — Levantei a mão. — Não diga que ela foi uma boa rainha. Nem que era querida. Nem que os deuses levam os melhores. Eu já ouvi essas três frases hoje, umas vinte vezes cada. Já ouvi de gente que nunca falou com ela. Eu só quero ficar num lugar onde ninguém me peça para ser forte.
 
 Ela levantou. Contornou a mesa. Ajoelhou-se na minha frente, no chão de pedra, e pegou as minhas duas mãos nas dela.
 
@@ -124,7 +124,7 @@ O pensamento atravessou a minha cabeça como uma faca. E eu ignorei.
 
 Nísia me levou para a cama pela mão. Desatou o meu vestido com dedos cuidadosos, como se cada laço fosse uma decisão que ela me dava tempo de desfazer. Quando o tecido caiu aos meus pés, ela me olhou por um longo momento, sem tocar, e a pele inteira se arrepiou debaixo daquele olhar.
 
-Eu tinha trinta e dois anos. Um filho. O corpo de uma mulher que nunca descansou, e as marcas do parto na barriga, prateadas, que eu sempre odiei.
+Eu tinha trinta e dois anos. Um filho. O corpo de uma mulher que nunca descansou, e as marcas do parto na barriga, prateadas, que eu odiava.
 
 Ela se abaixou e beijou as marcas. Uma por uma. Devagar. Enquanto eu segurava o cabelo dela com os punhos fechados.
 
@@ -140,13 +140,11 @@ Engoli.
 
 Nísia sentiu. Sentiu a hesitação, o nome preso, o corpo inteiro travando por meio segundo. Diminuiu o ritmo. Subiu. Me olhou de perto.
 
-— Quer que eu pare?
+— Eu paro agora e a gente finge que você veio tomar vinho — disse ela, com a respiração curta, a boca molhada de mim. — Ninguém nesta ilha vai saber. Nem eu vou lembrar, se você mandar.
 
-— Não.
+E eu, com a voz que eu não reconheci, segurei a cabeça dela com as duas mãos e empurrei de volta para onde estava.
 
-E depois, mais baixo, com a voz que eu não reconheci:
-
-— Não para.
+— Não ouse.
 
 Ela não parou.
 
@@ -192,17 +190,17 @@ Eu tinha ficado viúva por engano. E tinha me deitado com outra em cima de um ca
 
 ---
 
-— Você está pensando nela — diz Nísia, agora, na sala úmida, com a mão ainda no meu ombro.
+— Você está pensando nela — diz Nísia, agora, na sala úmida, com a mão ainda no meu ombro. — Você fica com a boca torta para a esquerda quando pensa nela. Eu aprendi a ler isso faz anos, de tanto que ficou torta.
 
-Me afasto. Não com brusquidão. Um passo só.
+Me afasto. Um passo só, sem brusquidão.
 
-— Estou pensando em navios — digo. — Em como vou alimentar mais uma boca com o que sobrou da despensa.
+— Estou pensando na despensa — digo. — Em quantas bocas a minha cevada aguenta, e a sua acabou de entrar na conta.
 
 Viro-me e olho para ela com a cara de pedra, e explico as regras como explico ao escriba a conta do azeite. Ela fica na ala sul. Euricleia cuida dela. Jantamos separadas. Ela não fala com o Antínoo nem com nenhum dos outros. E se alguém perguntar, veio tratar de comércio, e é isso, e só isso.
 
-Ela me olha por um longo momento. Não discute. Não pede explicação. Inclina a cabeça num gesto de aceitação que quase me quebra.
+Ela me olha por um longo momento. Não discute nem pede explicação. Inclina a cabeça num gesto de aceitação que quase me quebra.
 
-— Como você quiser.
+— Ala sul, então. Com a Euricleia vigiando a porta como um cão de três cabeças. — Ela quase sorri. — Já fui tratada pior por gente que gostava menos de mim.
 
 Vai até a porta. Para com a mão no trinco, sem se virar.
 
@@ -220,7 +218,7 @@ Não sei qual das três me assusta mais.
 
 O jantar é um erro.
 
-Eu sei antes de descer. Sei pela forma como o salão está barulhento já ao entardecer, pelo cheiro de vinho novo que sobe pelo poço da escada, pela risada do Antínoo que eu reconheço de dois andares de distância. Mas uma rainha que não desce ao jantar no dia em que chega uma visitante é uma rainha que tem alguma coisa a esconder.
+Percebo antes de descer, pela forma como o salão está barulhento já ao entardecer, pelo cheiro de vinho novo que sobe pelo poço da escada, pela risada do Antínoo que eu reconheço de dois andares de distância. Mas uma rainha que não desce ao jantar no dia em que chega uma visitante é uma rainha que tem alguma coisa a esconder.
 
 Então desço. Sento na cadeira alta. Ponho o Timóteo no banco baixo ao meu lado.
 
@@ -232,17 +230,19 @@ O Antínoo espera o terceiro prato. Espera o vinho fazer efeito nos outros. Espe
 
 E então levanta a taça na minha direção.
 
-— Majestade — diz, alto, sorrindo. — Vi o navio de Same no porto. A viúva veio de novo. — Faz uma pausa, e cento e oito cabeças se viram. — Que amizade bonita, a de vocês. Ela vem toda lua, não é? Em seis anos, nunca faltou uma. Fico pensando no que uma viúva rica de Same tem para tratar com tanta urgência com uma rainha que não tem mais o que vender.
+— Majestade — diz, alto, sorrindo. — Vi o navio de Same no porto. A viúva veio de novo. — Faz uma pausa, e cento e sete cabeças se viram. — Que amizade bonita, a de vocês. Ela vem toda lua, não é? Em seis anos, nunca faltou uma. Fico pensando no que uma viúva rica de Same tem para tratar com tanta urgência com uma rainha que não tem mais o que vender.
 
 Risos. Não muitos. Os mais bêbados.
 
 Eu sinto o sangue sair do meu rosto. Sinto a mão do Timóteo, no banco, procurar a barra do meu vestido e se fechar nela.
 
-— Azeite — digo.
+— Ela vende azeite — digo. — E compra cevada. Se você quiser aprender como se faz, posso te emprestar uma tabuinha. Imagino que seja a primeira vez que alguém neste salão ouve falar de comprar alguma coisa.
 
-— Azeite! — repete ele, encantado. — Claro. Azeite. — Ele bebe. — Sabe o que dizem em Same, majestade? Dizem que a rainha de Ítaca nunca escolhe nenhum de nós porque já escolheu. Só que escolheu uma que não pode ser rei.
+Alguém, no fundo, engasga com o vinho. O Antínoo sorri mais.
 
-O salão se cala de verdade agora.
+— Azeite. Claro. — Ele bebe. — Sabe o que dizem em Same, majestade? Dizem que a rainha de Ítaca nunca escolhe nenhum de nós porque já escolheu. Só que escolheu uma que não pode ser rei.
+
+Agora o salão inteiro se cala.
 
 Não sei o que meu rosto faz. Sei o que as minhas mãos fazem: ficam espalmadas no braço da cadeira, abertas, imóveis, como no conselho. Sei que eu conto. Conto as tochas da parede da esquerda. Nove. Conto as da direita. Oito; uma apagou.
 
@@ -262,19 +262,17 @@ Quando ela vier.
 
 O Timóteo me pergunta, no último degrau, o que o Antínoo quis dizer.
 
-— Nada — digo. — Ele estava bêbado.
+— Nada que preste — digo. — Vinho falando pela boca dele.
 
-— Ele está sempre bêbado. Mas às vezes ele quer dizer alguma coisa.
+— Vinho fala pela boca dele desde que eu tenho seis anos. — Ele chuta o degrau. — Mas às vezes no meio do vinho ele acerta, mãe, e todo mundo ri mais alto para disfarçar. Hoje riram baixo.
 
-Olho para o meu filho. Dez anos. O olho quase curado, o lábio cicatrizado, uma mancha amarelada no queixo. Parece mais velho do que ontem. É o que me dói nele: cresce aos saltos, sempre que alguma coisa o machuca.
+Olho para o meu filho. Dez anos. O olho quase curado, o lábio cicatrizado, uma mancha amarelada no queixo. Parece mais velho do que ontem. É o que me dói nele: cresce aos saltos, a cada coisa que o machuca.
 
-— Ele quis dizer que eu gosto da Nísia — digo.
+— Ele quis dizer que eu gosto da Nísia — digo. É mais fácil dizer a verdade pequena do que deixar o menino caçar a grande sozinho.
 
-— E gosta?
+Ele pensa, com a testa franzida, a testa da outra.
 
-— Gosto. Ela é minha amiga.
-
-— Como a mãe Emily era sua amiga?
+— A Nísia traz figo seco para mim e não me pergunta se eu estou estudando — diz. — Eu gosto dela também. — E depois, olhando o degrau: — A senhora gosta dela como gostava da mãe Emily?
 
 A pergunta me atravessa como uma lança. Ele não sabe o que perguntou. Ou sabe, e é pior.
 
@@ -284,21 +282,23 @@ Ele pensa. Depois assente, devagar, como quem guarda uma informação para usar 
 
 No quarto dele, antes de dormir, ele pega o arco que estava encostado na parede. É um arco curto de freixo, que o Eumeu lhe deu no último aniversário e que ele carrega para todo lado como se fosse parte do braço.
 
-— Eu vou treinar mais amanhã — diz. — O dia inteiro.
+— Eu vou treinar mais amanhã — diz. — O dia inteiro. Antes do Eumeu acordar e depois de a senhora dormir.
 
-— Você já treina todo dia.
+— Você já tem calo nos três dedos e a Euricleia reclama que você atira nas galinhas.
 
-— Não é o bastante. — Ele baixa a voz e toca o queixo. — No dia do poço, o Antínoo disse que não adianta eu ter arco. Que a mãe não vai voltar e que o pai nunca existiu. Que quando ele for rei vai mandar cortar as minhas mãos para eu nunca mais atirar em ninguém. — Ele me olha. — Disse rindo. Disse que era brincadeira.
+— Nas galinhas eu erro porque quero. — Ele baixa a voz e toca o queixo. — Não chega. — Ele baixa a voz e toca o queixo. — No dia do poço, o Antínoo disse que não adianta eu ter arco. Que a mãe não vai voltar e que o pai nunca existiu. Que quando ele for rei vai mandar cortar as minhas mãos para eu nunca mais atirar em ninguém. — Ele me olha. — Disse rindo. Disse que era brincadeira.
 
 Me ajoelho na frente dele. Seguro os ombros com as duas mãos e olho no olho bom, o verde que ele puxou de mim. E sinto que, se eu não disser agora a coisa certa, vou perder o meu filho para uma coisa pior do que a morte, que é a descrença.
 
 — Você tem razão de treinar — digo. — O dia todo. Até não conseguir levantar o braço. Mas não para matar o Antínoo. Para o dia em que você não precisar.
 
-— Que dia?
+— E quando é esse dia? — Ele aperta o arco. — A senhora fala como a Euricleia fala da chuva. Que vem. E não vem.
 
-— Eu não sei. Mas ele vem.
+— A chuva veio no inverno passado e você reclamou do barro.
 
-— Mãe. — Ele engole. — Ela vai voltar?
+Ele quase ri. Engole.
+
+— Mãe. Ela vai voltar?
 
 Penso num pedaço de pano dourado. Num mastro quebrado. Num barqueiro que ninguém levou a sério.
 
@@ -312,20 +312,96 @@ Depois, devagar, como quem testa uma corda, assente. E levanta o arco.
 
 À noite, no meu quarto, acendo a lamparina.
 
-Não penso em apagar. Desta vez, não. Fico de pé na janela segurando o bronze quente com as duas mãos, olhando a escuridão onde o mar e o morro se juntam numa única mancha preta. Procuro, de propósito, a pedra chata lá no alto, onde nós costumávamos sentar nas noites de verão.
+Não penso em apagar. Desta vez, não. Fico de pé na janela segurando o bronze quente com as duas mãos, olhando a escuridão onde o mar e o morro se juntam numa única mancha preta. Procuro, com teimosia, a pedra chata lá no alto, onde nós costumávamos sentar nas noites de verão.
 
 Não vejo ninguém. Claro que não.
 
 Penduro a lamparina no gancho. Fico um instante parada, de braços cruzados, com a cabeça encostada no batente, olhando o mar como se ele me devesse alguma coisa.
 
-Ele deve. Deve muito.
+Ele me deve dez anos e uma mulher.
 
 Depois apago a vela do candelabro e me deito de lado, de frente para a oliveira, de costas para a porta.
 
-Durmo mal.
+Durmo mal. Acordo duas vezes. Na terceira desisto.
 
-Acordo uma vez, no meio da noite, com a impressão de ter ouvido uma voz lá fora. Muito baixa. Muito longe. No vento. Uma voz rouca, que esticava a primeira sílaba.
+---
 
-Era o vento. Eu sei que era.
+Desço à cozinha antes de o galo pensar em cantar.
 
-Fico acordada até o amanhecer mesmo assim.
+Não sei bem para quê. Leite morno, digo a mim mesma. Uma fatia do pão de ontem. A cozinha a essa hora é o único lugar desta casa que ainda cheira a mim e não a eles, e eu atravesso o corredor de camisola e manto, descalça, com uma vela num pires, como uma ladra na minha própria casa.
+
+Tem luz lá dentro.
+
+Eu paro na porta.
+
+A Nísia está sentada no banco comprido, do lado do forno torto, com as pernas dobradas debaixo da túnica de dormir e uma caneca nas mãos. O cabelo solto. A trança desfeita caindo pelas costas até a cintura, e a conta de âmbar, solta, na palma da mão esquerda, rolando de um lado para o outro como uma pedrinha que ela não sabe onde guardar. Quando me vê, não se levanta. Fecha a mão sobre a conta.
+
+— A Euricleia me deu a chave da despensa para eu fazer infusão de tomilho — diz, antes que eu pergunte. — Ela disse que hóspede que não dorme assusta os cachorros. Acho que ela queria me ver longe da porta da ala sul por uma hora, para fofocar com o vigia. Pode me mandar de volta. Eu levo a caneca.
+
+— Você está sentada no meu banco.
+
+— Está escrito em algum lugar?
+
+— Está escrito nas costas de quem senta nele. Eu gastei a madeira em dez anos de madrugada.
+
+Ela olha o banco, depois olha para mim, e chega para o lado meio palmo. Meio palmo exato. Nem um dedo a mais. Deixa o espaço do meu lado, como quem deixa a porta encostada.
+
+Eu sento. Não devia. Sento.
+
+O forno ainda está morno da fornada da tarde. Eu sinto o calor nas costas, na nuca, e sinto o calor dela do lado, mais forte, através de meio palmo de ar e duas camadas de linho. Ela me passa a caneca sem perguntar. Eu bebo. Tomilho com mel. Ela pôs mel demais, como eu ponho.
+
+— Você contou para ela? — pergunta a Nísia, olhando o fogo.
+
+Eu engasgo com o tomilho.
+
+— Contar o quê?
+
+— Não faz essa cara, Anne, que eu não sou o Antínoo. — A voz dela continua baixa, mas tem uma lâmina nova no fundo. — A casa de pedra. Se ela chegar amanhã, ou depois, ou na lua nova, e se sentar naquela cama que você não deixa ninguém tocar, você vai contar? Ou vai deixar ela descobrir num salão, por boca de bêbado, como você descobriu da ninfa?
+
+Eu ponho a caneca no banco entre nós, devagar, como quem põe uma faca.
+
+— Isso não é da sua conta.
+
+— Foi da minha conta uma noite inteira. — Ela vira o rosto para mim. Os olhos cor de mel, à luz da vela, ficam quase dourados. — Eu não estou cobrando. Eu nunca cobrei. Você me deixou um *obrigada* escrito no pó da mesa e apagou com a mão, e eu vi a marca da mão no pó de manhã e entendi o recado inteiro. Eu só quero saber se eu vou ser o segredo que você esconde dela, ou a mentira que você conta. São coisas diferentes, e eu quero saber de qual eu vou ter que ter vergonha.
+
+A frase me acerta em algum lugar embaixo das costelas.
+
+— Eu não sei — digo. E é a verdade mais feia que eu tenho.
+
+Ela concorda com a cabeça. Abre a mão. A conta de âmbar está lá, morna, com o mosquito de asas abertas dentro, preso há mil anos.
+
+— Você me deu isso no quarto ano — diz. — No dia em que eu trouxe o primeiro carregamento de sal e você descobriu que eu tinha te cobrado menos do que o preço. Você ficou furiosa. Disse que rainha de Ítaca não aceita esmola. E no fim do jantar tirou isso do seu próprio colar e me deu, para ficar quites. — Ela rola a conta com o polegar. — Eu nunca fiquei quites com você, Anne. Nunca quis.
+
+Ela pega a minha mão. Vira a palma para cima. Põe a conta dentro.
+
+E fecha os meus dedos em volta dela, com os dedos dela por cima dos meus.
+
+Ficamos assim. O forno morno nas costas. A vela tremendo no pires. A mão dela em cima da minha. Eu sinto o pulso dela no polegar, rápido, e sinto o meu, mais rápido. Eu sinto o cheiro de lavanda e de tomilho e de pele morna de quem acabou de sair da cama, e o meu corpo, o idiota do meu corpo que passou quatro anos quieto depois daquela noite, se lembra inteiro de uma boca descendo pela minha barriga.
+
+Ela se inclina. Meio palmo vira menos.
+
+— Se você me disser para ficar no banco — sussurra —, eu fico. Se disser para voltar para a ala sul, eu volto. Mas diz alguma coisa, Anne, porque eu não aguento mais adivinhar a tua cara.
+
+Eu abro a boca.
+
+E ouço, lá fora, muito longe, no vento que entra pela fresta da porta da horta, uma voz. Rouca. Esticando a primeira sílaba de um nome.
+
+Pode ser o vento. Pode ser um pescador bêbado no caminho do porto. Pode ser a minha cabeça, que passou o dia inteiro ouvindo *pano dourado* e *duas léguas de Zacinto*.
+
+Eu tiro a mão de baixo da dela.
+
+Com a conta dentro.
+
+— Volta para a ala sul — digo. — E prende o cabelo. Se o Antínoo te vir assim amanhã de manhã ele vai ter assunto até o inverno.
+
+Ela fica parada. Depois sorri. Não é um sorriso triste. É pior. É o sorriso de quem perdeu uma aposta que já sabia que ia perder e acha graça de ter apostado.
+
+— Pode ficar com a conta esta noite — diz, levantando, ajeitando a túnica. — Me devolve amanhã, quando lembrar que é minha.
+
+Ela vai. Os pés descalços não fazem barulho no chão de pedra, e a porta da cozinha fica balançando um tempo depois que ela passa, rangendo baixinho na dobradiça de cima, a que eu mando consertar todo verão.
+
+Eu fico no banco com a conta de âmbar na palma, olhando o mosquito preso lá dentro, de asas abertas, pego no meio do voo por uma coisa doce que endureceu em volta dele.
+
+De manhã eu devolvo. Ela prende de novo na trança, sem dizer nada.
+
+Mas por uma noite inteira a conta ficou embaixo do meu travesseiro, do lado que não é o meu.

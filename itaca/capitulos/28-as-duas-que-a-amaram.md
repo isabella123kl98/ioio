@@ -86,7 +86,7 @@ O corredor fica muito quieto.
 
 — A Nísia está aqui.
 
-— Chegou com ela. No mesmo dia. Num navio de Same, com a vela azul, e o barco de pesca em que a ninfa veio rebocado atrás, meio afundado, fazendo água pelo casco. A rainha Nísia desceu primeiro, segurando a ninfa pelo braço, e trouxe ela até aqui a pé, e pediu um quarto para ela, e depois pediu outro para ela mesma. — A Euricleia aperta o avental. — Eu dei o quarto de hóspedes da ala leste. O que tem a janela para a torre.
+— Chegou com ela. No mesmo dia. Num navio de Same, com a vela azul, e o barco de pesca em que a ninfa veio rebocado atrás, meio afundado, fazendo água pelo casco. A Nísia desceu primeiro, segurando a ninfa pelo braço, e trouxe ela até aqui a pé, e pediu um quarto para ela, e depois pediu outro para ela mesma. — A Euricleia aperta o avental. — Eu dei o quarto de hóspedes da ala leste. O que tem a janela para a torre.
 
 Eu fecho os olhos.
 
@@ -308,7 +308,7 @@ Eu me levanto.
 
 Ela abre os olhos.
 
-— Saia — repito. — Você veio, você me viu, eu te vi. Você me disse que dormiu com ela sete anos e que dobrou o tempo dela e que ela segurava uma coisa embaixo do travesseiro que eu não sei o que é. Já disse tudo. Agora sai. Pega o barco furado de Esquéria, ou o navio da rainha de Same, ou voa com o teu mensageiro, eu não me importo como. Mas sai da minha casa antes do sol baixar, porque eu não vou conseguir dormir com você debaixo do mesmo telhado.
+— Saia — repito. — Você veio, você me viu, eu te vi. Você me disse que dormiu com ela sete anos e que dobrou o tempo dela e que ela segurava uma coisa embaixo do travesseiro que eu não sei o que é. Já disse tudo. Agora sai. Pega o barco furado de Esquéria, ou o navio da viúva de Same, ou voa com o teu mensageiro, eu não me importo como. Mas sai da minha casa antes do sol baixar, porque eu não vou conseguir dormir com você debaixo do mesmo telhado.
 
 Ela não se levanta.
 

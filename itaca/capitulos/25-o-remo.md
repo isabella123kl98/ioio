@@ -304,7 +304,7 @@ Liso. Prateado. Com as estrelas refletidas. Uma onda pequena e bem-comportada la
 
 *Ela rezou.*
 
-Uma vez. Só uma. Para o deus que eu ofendi. E chamou ele de *senhor do mar* e me chamou de idiota na mesma frase. E nunca pediu de novo. Dez anos sem pedir. A mulher que pede contas a todos os mercadores da costa, que pede o dobro em todo contrato, que pede satisfação a uma rainha de Same e a um conselho inteiro de velhos, ficou dez anos sem pedir nada a nenhum deus, porque deu a palavra.
+Uma vez. Só uma. Para o deus que eu ofendi. E chamou ele de *senhor do mar* e me chamou de idiota na mesma frase. E nunca pediu de novo. Dez anos sem pedir. A mulher que pede contas a todos os mercadores da costa, que pede o dobro em todo contrato, que pede satisfação a uma viúva de Same e a um conselho inteiro de velhos, ficou dez anos sem pedir nada a nenhum deus, porque deu a palavra.
 
 Sento na areia molhada.
 
