@@ -130,6 +130,14 @@ Ela avança até a cadeira mais perto do fogo, a que eu reservei, e se deixa cai
 
 Fico de pé junto à lareira, a um braço de distância, olhando-a de cima. A luz das chamas faz sombras nas rugas do rosto dela, nos vincos das mãos. Ela mantém os olhos no fogo.
 
+Só uma vez ela levanta a cabeça, quando eu me mexo para pôr mais uma acha no fogo. Os olhos turvos sobem pelo meu vestido, pelo pescoço, e param.
+
+Na mecha solta.
+
+Ficam ali o tempo de uma respiração. Depois descem de novo para o fogo, rápidos, como os de alguém que olhou para onde não devia num templo.
+
+Eu sinto o pescoço esquentar onde a mecha encosta. Ponho a acha no fogo com tanta força que levanta faísca.
+
 — O seu nome.
 
 Há uma pausa. Curta. Em outra pessoa eu não notaria.
