@@ -218,7 +218,7 @@ Para ela saber, quando descer de novo, que alguém viu.
 
 ---
 
-Saio do porão com o dedo latejando debaixo do trapo e do fio de cabelo. atravesso o pátio até o fundo, onde há um alpendre velho cheio de sacos de ração e restos de madeira. O alvo de palha continua amarrado na porta do celeiro, com doze buracos no centro, juntos, do tamanho de uma mão.
+Saio do porão com o dedo latejando debaixo do trapo e do fio de cabelo, e com a boca seca de quem bebeu vinho forte em jejum. atravesso o pátio até o fundo, onde há um alpendre velho cheio de sacos de ração e restos de madeira. O alvo de palha continua amarrado na porta do celeiro, com doze buracos no centro, juntos, do tamanho de uma mão.
 
 Ele está lá.
 
