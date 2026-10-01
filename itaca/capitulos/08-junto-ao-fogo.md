@@ -108,7 +108,7 @@ Se for ela, ela vai ver.
 
 Se não for, ninguém vai notar uma mecha fora do lugar na cabeça de uma rainha cansada no fim de um dia ruim.
 
-Desço a escada com o coração fazendo um barulho que eu tenho certeza de que o Antínoo escuta lá do salão.
+Na porta, volto. Pego o azul-acinzentado da cama, dobro, e guardo no baú, embaixo do véu, para não ter de olhar para ele quando subir. Desço a escada com o coração fazendo um barulho que eu tenho certeza de que o Antínoo escuta lá do salão.
 
 Acendo o fogo com as minhas próprias mãos. Mando sair todas as criadas, menos Euricleia, que fica no canto, junto à porta, numa banqueta, com o fuso nas mãos e os olhos fechados de quem finge dormir. Ela não dorme quando eu estou acordada; nunca dormiu, em vinte anos.
 
